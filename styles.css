@@ -54,3 +54,4 @@ footer{background:var(--ink);color:#bfb8aa;padding:40px 0;font-size:.9rem;text-a
 @media(max-width:800px){.book-cover{margin:0 auto}}
 .book-btns{justify-content:flex-start!important;margin-top:0!important}
 .edition-note{display:inline-block;font-size:.8rem;letter-spacing:.08em;text-transform:uppercase;color:#8a6d2f;border:1px solid #c9a45c;padding:4px 10px;margin:0 0 16px}
+.ed1-note{font-size:.9rem;color:#6b6457;margin:22px 0 10px}
