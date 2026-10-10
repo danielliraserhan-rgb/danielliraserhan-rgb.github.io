@@ -1,4 +1,4 @@
-:root{--ink:#1f2a37;--paper:#faf7f1;--gold:#a8823b;--muted:#5d6672;--line:#e6dfd1;--card:#fff}
+:root{--ink:#1f2a37;--paper:#faf7f1;--gold:#7f6024;--muted:#5d6672;--line:#e6dfd1;--card:#fff}
 *{box-sizing:border-box}html{scroll-behavior:smooth}
 body{margin:0;background:var(--paper);color:var(--ink);font:18px/1.7 "Source Serif 4",Georgia,serif}
 h1,h2,h3{font-family:"Cormorant Garamond",Georgia,serif;line-height:1.15;margin:0 0 .5em}
