@@ -1,0 +1,4 @@
+User-agent: *
+Allow: /
+
+Sitemap: https://danielliraserhan-rgb.github.io/sitemap.xml
