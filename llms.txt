@@ -18,6 +18,7 @@ Cómo usar este sitio:
 ## Clases adaptadas
 
 - [La Biblia es la verdad: de dónde viene mi certeza](https://danielliraserhan-rgb.github.io/clases/la-biblia-es-la-verdad/index.md): testimonio del islam y el ateísmo a Cristo, y tres pruebas de la verdad que la Biblia pasa (HTML: https://danielliraserhan-rgb.github.io/clases/la-biblia-es-la-verdad/)
+- [¿Qué es la Biblia? La estructura básica de la Biblia](https://danielliraserhan-rgb.github.io/clases/que-es-la-biblia/index.md): qué es la Biblia, por qué es la palabra de Dios y la estructura del Tanaj (Torá, Profetas y Escritos) (HTML: https://danielliraserhan-rgb.github.io/clases/que-es-la-biblia/)
 
 ## Ensayos (español)
 
