@@ -1,0 +1,97 @@
+# La imposición de manos
+
+> La fe no es ciega: es certeza. El lugar más seguro para escuchar a Dios es su Palabra, y en las áreas grises Dios nos dio un cuerpo, la iglesia, y autoridades. Esta sesión repasa preguntas sobre las doctrinas anteriores (cómo sé que Dios me habla, las denominaciones, las traducciones, el diezmo y si hay que volver a bautizarse) y luego explica la imposición de manos: una acción física que da testimonio de algo invisible. En el Antiguo Testamento se usaba en la expiación, el juicio, la bendición y la delegación de autoridad. Cristo cumplió las dos primeras, y hoy imponemos manos para bendecir, orar por los enfermos, confirmar dones y delegar autoridad.
+
+*Adaptado con ayuda de IA a partir de una clase en vivo.*
+
+- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Fuente: Doctrinas Fundamentales, sesión 6: Imposición de manos (clase en vivo, Intensivo Convivencia)
+- URL: https://danielliraserhan-rgb.github.io/clases/la-imposicion-de-manos/
+- Idioma: es-MX
+- Serie: Doctrinas Fundamentales (parte 5 de 6)
+- Anterior: https://danielliraserhan-rgb.github.io/clases/el-bautismo-de-la-mikve-a-cristo/
+- Siguiente: https://danielliraserhan-rgb.github.io/clases/la-resurreccion-de-los-muertos/
+
+## Puntos clave
+
+- El lugar más seguro para escuchar a Dios es su Palabra; en las áreas grises, Dios nos dio un cuerpo, la iglesia, y autoridades.
+- Las denominaciones difieren en la manera; lo que no se negocia son las doctrinas fundamentales y la Trinidad.
+- Para estudiar, usa dos traducciones: una palabra por palabra y otra oración por oración.
+- La imposición de manos es una acción física para dar testimonio de algo invisible. En el Antiguo Testamento: expiación, juicio, bendición y delegación de autoridad.
+- Cristo cumplió la expiación y el juicio; hoy imponemos manos para bendecir, orar por los enfermos, confirmar dones y delegar autoridad (1 Tim. 5:22).
+
+---
+
+## La fe no es ciega
+
+«La fe es la certeza de lo que se espera, la convicción de lo que no se ve» (Heb. 11:1). Debemos estar ciertos de la esperanza en la que vivimos. Esa idea religiosa de que la fe es ciega se ha usado para manipular a la gente. Tú puedes tomar tu Biblia y comprobar tu fe.
+
+Vimos que [la Biblia es la verdad](https://danielliraserhan-rgb.github.io/clases/la-biblia-es-la-verdad/) porque es la palabra de Dios. No adoramos la tinta ni la hoja; mi Biblia está bien rayada y Dios no se ofende. Lo que contiene es la manifestación del Verbo, que es Jesús, y al leerla lo vemos como a los ojos: no al del pesebre, sino al que viene de regreso con ojos de fuego. Y al leerla somos purificados, como si Jesús nos lavara los pies. Siempre que lo digo me siento como Pedro: “No”. “Sí”. “No”. El punto es que dejamos que Él mire nuestra alma y la penetre, y así podemos escucharlo.
+
+## ¿Cómo sé que Dios me está hablando?
+
+Fue una de las preguntas que más hicieron: ¿cómo sé que es Dios y no el enemigo, mi mente o mi sentimiento? Principalmente porque está en la Palabra. Ese es el lugar más seguro para escuchar a Dios. ¿Lo quieres escuchar en voz audible? Les doy el secreto: ayunen tres días. No es cierto: lee la Biblia en voz alta.
+
+Dios habla de diferentes maneras, pero si no está fundamentado en la Palabra, es muy difícil saber si es Dios. Para las áreas grises, cosas que no van en contra de la Palabra ni de sus atributos, Dios hizo un cuerpo, una iglesia, y puso autoridades, para que nos apoyemos en la multitud de consejeros (ver Prov. 11:14). No le vas a pedir consejo a tu compañero de trabajo que es budista, porque te va a aconsejar según el budismo. Buscas a tus autoridades y a alguien que vaya en el mismo camino de la Palabra, exploras con ellos y ves el fruto: si no da fruto, no era; si da fruto, sí era.
+
+Es más un proceso de relación con Dios que de experiencias sobrenaturales, porque la experiencia más sobrenatural es que ya tenemos una relación con Jesús. Yo pasé de ser musulmán a cristiano, y me tardé cuatro años porque quería que Dios bajara del cielo y me hablara en una visión o un sueño. Hasta que empecé a leer la Biblia y Dios me habló ahí. Buscamos superexperiencias porque nos da miedo encontrarnos con la Palabra.
+
+Hay un salmo, siempre se me olvida cuál es, que habla de que Dios afirma nuestros pies mientras avanzamos. Si avanzas conforme a la Palabra y Él pone firmeza en tus pies, va por ahí. Pero firmeza no significa puertas abiertas. A Sadrac, Mesac y Abed-nego la puerta que se les abrió fue un horno de fuego. Dieron el paso basados en la palabra de Dios, y dentro del fuego había una cuarta persona (Dan. 3:25).
+
+## ¿Quién tiene la verdad?
+
+En la clase de “La Biblia es la verdad” vimos que hay dos maneras de estar ciertos de algo: la experiencia de primera mano y la evidencia comprobable. La Biblia es históricamente comprobable, filosóficamente congruente y robusta en confiabilidad. Hace poco encontraron una evidencia arqueológica sobre el rey David, a quien muchos consideraban una leyenda. Muchas religiones no pasan estas pruebas, o se sostienen en una sola persona que dice: “Recibí una nueva revelación”. Con la fe ciega, le crees y lo sigues.
+
+La mayoría de las religiones tienen mucha verdad mezclada con un poco de mentira. Si a esta agua le echo una gotita de veneno, nadie se la toma. Generalmente niegan a Dios Padre, a Dios Hijo o a Dios Espíritu Santo, y la gran mayoría niega al Hijo. Es lo que hizo Satanás en Génesis: tomó algo verdadero, “no coman de ese árbol”, y le agregó un poco de mentira. Me preguntaron cómo sé que la Biblia de los Testigos de Jehová no es confiable. Si la comparas con las demás traducciones y con el hebreo y el griego, vas a ver que han modificado ciertos pasajes para quitar la deidad de Jesús: la misma palabra que escriben con mayúscula para Dios Padre la ponen en minúscula cuando se refiere a Cristo. Son pequeñas modificaciones, pero quitaron a Jesús, la roca, y lo demás queda sobre arena.
+
+¿Y las denominaciones? ¿Metodistas, bautistas, presbiterianos? La Biblia es la verdad; tu cerebro no tiene el 100 % de la verdad. Es un texto antiguo que estamos tratando de descifrar. Incluso Pablo y Pedro tuvieron discusiones sobre cómo hacer la iglesia. El problema es cuando creemos que nuestro método es el correcto. No necesitamos pantallas ni bongos, pero nos gustan, porque creemos que así podemos adorar a Dios; eso no significa que los demás estén mal. Jesús dijo que el trigo y la cizaña crecerían juntos, y que Él los separaría en la cosecha (Mat. 13:30). Si buscamos competir, arrancamos trigo con la cizaña. Nosotros también tenemos cizaña. No somos la última Coca-Cola en el desierto.
+
+Por eso: no confíes en mí; confía en la palabra de Dios. Yo me puedo equivocar; apenas voy aprendiendo hebreo, y está bien difícil. La palabra de Dios no se equivoca. Mientras no tengamos equivocadas las doctrinas fundamentales ni neguemos al Padre, al Hijo o al Espíritu Santo, las diferencias son maneras de vivirlo. Si niegas a cualquiera de los tres, eso no es una denominación: es una secta. Si algún día les decimos aquí que Cristo no era Dios, huyan. Pero si a otros les gusta que la alabanza dure tres horas y a nosotros media hora, qué padre: ve a donde encuentres que estás adorando a Dios como Él quiere ser adorado.
+
+Y la moralidad no es el bien y el mal, sino expresar sus atributos y darle gloria. Si nos vamos al bien y al mal, terminamos siendo ritualistas y legalistas. La fe sí tiene obras, pero se producen por amor, no por ley, porque Él nos amó primero. Otra pregunta fue: “Si la santidad es incomunicable, ¿por qué somos llamados a ser santos?”. Somos llamados a ser santos, pero solo Él es santo, santo, santo: completamente otra cosa, porque Él no es creación y nosotros sí.
+
+## Dos versiones de la Biblia
+
+Hay dos maneras de traducir un texto antiguo: palabra por palabra y oración por oración. Las dos son buenas. Palabra por palabra es más fiel a cada palabra; oración por oración, al significado completo. La Reina Valera se lee extraña porque conserva el orden del hebreo y del griego; la NTV se lee fácil porque reacomoda la oración. Pero al traducir por oración hay más interpretación incluida, porque una palabra hebrea se puede traducir de tres maneras.
+
+Mi recomendación: si vas a leer devocionalmente, usa la que más te guste. Si vas a estudiar, usa dos, una de cada tipo. A mí me gusta la NBLA, que es palabra por palabra en un lenguaje más actual. Si quieres ir más profundo, agrega una en inglés, y luego el diccionario Strong, que te lleva a la palabra hebrea. Ahí te das cuenta, por ejemplo, de que *mikve* se traduce como “esperanza” en un lugar y como “conjunto de aguas” en otro. No es “si no usas Reina Valera no eres cristiano”. Quienes traducen dedican su vida a ser fieles al texto. Otra cosa es una traducción con modificaciones, como la de los Testigos de Jehová; ahí sí hay que tener cuidado.
+
+## Obras muertas, diezmo y bautismo
+
+Vimos que [las obras muertas](https://danielliraserhan-rgb.github.io/clases/arrepentimiento-de-obras-muertas/) son todo lo que hago para ganar el favor de Dios o disminuir su ira. “Si doy mi diezmo, me va a regresar el triple”; o la frase gringa: “Si ofrendo mi Toyota, me va a dar un Ferrari”. Dios sí bendice, y cuando te desprendes de tu dinero, sí multiplica. Pero no es una transacción. Desprenderte de tu dinero le dice al mundo, a las potestades y a la gente que te rodea: “El dinero no es mi Dios”, y Dios honra eso. Si das tu diezmo para que te lo devuelva, no te lo va a devolver. Igual con tu tiempo: Dios no va a hacer días de más de 24 horas porque vengas a servir. Si sirves para que te bendiga, es una obra muerta.
+
+La fe en Dios es como lealtad a un rey: cambiamos de camino para unirnos al Rey que siempre ha sido el Rey, Cristo Jesús, y en ese proceso nacemos de nuevo. Lo representamos con [el bautismo](https://danielliraserhan-rgb.github.io/clases/el-bautismo-de-la-mikve-a-cristo/). Y la pregunta obligada: “¿Me tengo que volver a bautizar?”. Si te dijeron “hay bautismos, anótate” y solo te echaste el chapuzón sin saber qué pasaba, no te bautizaste. Pero si conscientemente dijiste “creo en Jesús y quiero expresarlo públicamente”, no importa si te alejaste y regresaste: no te tienes que volver a bautizar. Es como Pedro: “Entonces lávame completo”. “No, solo los pies; regresa a la iglesia” (ver Jn. 13:9–10).
+
+A los papás: si tu hijo se bautizó a los 10 o a los 13 años, y hoy te dice “quiero bautizarme, porque de chiquito no sabía lo que significaba”, déjalo. No le va a pasar nada. Y hay quien a los seis años ya sabía quién era Jesús; esa persona no necesita volver a bautizarse.
+
+De los cuatro bautismos, el bautismo en el cuerpo sucede al momento de creer; el bautismo en agua, cuando te sumerges; y el bautismo en el Espíritu, en cualquiera de los dos momentos. Pablo llega a Éfeso y pregunta si recibieron el Espíritu Santo; ellos ni sabían de qué hablaba; les impone las manos y el Espíritu viene sobre ellos (Hech. 19:1–6). Muy probablemente habían recibido solo el bautismo de Juan, para perdón de pecados, y no en el nombre del Padre, del Hijo y del Espíritu Santo. Y el bautismo en sufrimiento es proclamar el evangelio aun ante la persecución. Si te caíste de las escaleras o no le caíste bien a tu compañero de trabajo, eso no es bautismo de sufrimiento. Échale ganas.
+
+## La imposición de manos: una señal visible de algo invisible
+
+Hoy no podemos ver a Dios, pero sí podemos sentirlo, y no está mal. Y sí lo puedes ver en la tinta de tu Biblia. Pero Dios sabe que somos seres relacionales. Él tomó carne y sabe lo importante que es un abrazo; está comprobado que los bebés que se desarrollan mejor son los que sus mamás abrazaron. Yo creo que la imposición de manos responde a ese diseño: unos a otros, de manera honrosa y fraternal, comunicamos algo invisible. Si quieres anotar una definición: **es una acción física para dar testimonio de algo que no es visible**.
+
+En la imposición de manos, en el abrazo fraternal, en el cuerpo de Cristo, Dios habla. No como nos lo han pintado, con un “así dice Dios” y profecías que ni vienen en la Palabra. Y tanto el bautismo como la imposición de manos están atados a la fe. La certeza es algo objetivo y visible que me da a entender la esperanza de algo que no puedo ver. En el bautismo: “Te vi entrar al agua y salir; vi morir tu antiguo ser”. La imposición de manos hace lo mismo: confirma públicamente, en relación, algo que está sucediendo de manera invisible. El Espíritu Santo sí actúa ahí.
+
+Y no es algo nuevo, como si el autor de Hebreos dijera “ah, por cierto, impónganse manos”. Viene del Antiguo Testamento. Si quieres entender la Biblia, lee los primeros cinco libros. A algunos les aburren; a mí me encantan. Todas las bases de tu fe están ahí. En el Antiguo Testamento se imponían manos de cuatro maneras.
+
+**1. En la ofrenda por la expiación.** En Yom Kippur, el Día de la Expiación: «Entonces Aarón pondrá ambas manos sobre la cabeza del macho cabrío vivo, y confesará sobre él todas las iniquidades de los israelitas, y todas sus transgresiones, todos sus pecados; y poniéndolos sobre la cabeza del macho cabrío, lo enviará al desierto por medio de un hombre preparado para esto. El macho cabrío llevará sobre sí todas las iniquidades de ellos a una tierra solitaria» (Lev. 16:21–22). Es el chivo expiatorio: carga la culpa de toda la nación y desaparece en el desierto para nunca volver. ¿Qué hace Jesús con tu pecado? Lo toma. Él desapareció tres días y luego volvió; lo que no reaparece es tu pecado. Dios no te dice “te lo dije hace tres años”. Nosotros sí; Jesús no. Y el diablo ya no tiene con qué acusarte.
+
+**2. En el juicio.** En un juicio a muerte, los testigos ponían la mano sobre la persona, como diciendo “aceptamos el veredicto” (ver Lev. 24:14). Suena muy feo, pero eso hacían.
+
+En el Nuevo Testamento ya no vemos ni la primera ni la segunda. ¿Por qué? Porque la culpa y la sentencia fueron llevadas en la cruz y eliminadas para siempre. No tenemos que imponer manos sobre nadie para que cargue nuestras culpas. No hay otro intercesor más que Él, y el acta de los decretos que había contra nosotros fue anulada (Col. 2:14). Solo quedan dos usos: bendecir y delegar autoridad.
+
+**3. Para bendecir.** Originalmente era para bendecir a los hijos, como cuando trabajamos para dejarles una herencia. Lo normal era bendecir al mayor, pero varias veces la Biblia muestra lo contrario: «Pero Israel extendió su mano derecha y la puso sobre la cabeza de Efraín, que era el menor, y su izquierda sobre la cabeza de Manasés, cruzando adrede sus manos, aunque Manasés era el primogénito» (Gén. 48:14). Y dijo: «El Dios delante de quien anduvieron mis padres Abraham e Isaac, el Dios que ha sido mi pastor toda mi vida hasta este día, el ángel que me ha rescatado de todo mal, bendiga a estos muchachos» (Gén. 48:15–16). Jacob los estaba comisionando a continuar lo que se le prometió a Abraham, a Isaac y a Jacob. Otra vez: no sucede *porque* se impusieron las manos; la imposición lo confirma.
+
+En el Nuevo Testamento la bendición incluye **la sanidad**. No sé por qué se ha vuelto controversial, pero la Biblia es clara: «Estas señales acompañarán a los que han creído […] pondrán las manos sobre los enfermos, y se pondrán bien» (Mar. 16:17–18). No te lo sugiere: si has creído, es tu trabajo poner manos sobre el enfermo. No significa que el 100 % sane. Por qué unos sanan y otros no todavía es un misterio para mí, y hay posturas fuertes para todos lados. Lo único que sé es que Dios nos envió a hacerlo. Y nadie por quien he orado me ha dicho jamás “qué gacho, no sané”. Creyentes o no, sobre todo los no creyentes, salen diciendo: “Gracias por tomarte el tiempo; ahora sé que Dios está conmigo”. Sí hay sanidad y es real, pero se trata de un toque, un abrazo de Dios a través del cuerpo de Cristo. Nuestro trabajo no es sanar, sino orar imponiendo las manos.
+
+Y también bendecimos con **la impartición de dones**. Pablo le dice a Timoteo: «No descuides el don espiritual que está en ti, que te fue conferido por medio de la profecía con la imposición de manos del presbiterio» (1 Tim. 4:14). No sé cómo funciona físicamente, pero hay una cierta activación de dones. No es un poder mágico. Muchas veces ya estás caminando en ese don, y la imposición de manos lo confirma y te dice: “Puedes actuar con él”. Eso no significa que, si nadie te impone las manos, nunca recibirás un regalo de Dios.
+
+¿Qué es un don? **Una habilidad potenciada por el Espíritu Santo para capacitar a la iglesia a llevar a cabo su ministerio hasta que Cristo regrese.** Y esto es súper importante: un don nunca te da autoridad ni posición. No es para ser líder de un grupo ni de una iglesia; es para servir. Lo que sí te da autoridad es tu carácter, conforme al carácter de Cristo, que da testimonio de que caminas con Él. Los dones están en 1 Corintios 12, Romanos 12 y Efesios 4, y a cada uno se le ha dado algo (1 Cor. 12:7). Nadie se quedó sin regalo. Puedes servir sin cargo y sin que nadie lo sepa.
+
+En 1 Corintios 12 aparecen dar consejos sabios, un mensaje de conocimiento especial, una gran fe, sanidad, milagros, profecía, discernir si un mensaje viene del Espíritu de Dios o de otro espíritu, hablar en idiomas desconocidos e interpretarlos. Y es el mismo Espíritu quien los distribuye como Él quiere (1 Cor. 12:11). Se ha sacado de contexto: “Tengo el don de consejo, ¿por qué no me ponen a dar consejerías?”. No. Habla de hermanos que se ayudan unos a otros, como el hierro que afila al hierro (Prov. 27:17). El que tiene el don de idiomas no es más importante. A lo mejor un día estás de vacaciones en Rusia, pasa algo y hablas ruso. Yo no he ido a Rusia, no sé cómo funciona, pero es lo que dice la Palabra. No es para abrir un ministerio de ruso en la iglesia. No es nuestro trabajo descifrar la física de Dios; Él es inescrutable.
+
+**4. Para delegar autoridad.** «Moisés hizo como el SEÑOR le ordenó; tomó a Josué y lo puso delante del sacerdote Eleazar y delante de toda la congregación. Luego puso sus manos sobre él y lo comisionó» (Núm. 27:22–23). En Hechos se repite: «Mientras ministraban al Señor y ayunaban, el Espíritu Santo dijo: “Apártenme a Bernabé y a Saulo para la obra a la que los he llamado”. Entonces, después de ayunar, orar y haber impuesto las manos sobre ellos, los despidieron» (Hech. 13:2–3). ¿Cómo sabes quién es la autoridad? Porque se le impusieron manos y es visible. Cuando otros hijos de David querían el trono, el pueblo supo que era Salomón porque David lo designó a él.
+
+Para terminar: «No impongas las manos sobre nadie con ligereza, compartiendo así la responsabilidad por los pecados de otros; guárdate libre de pecado» (1 Tim. 5:22). Hay ideas extrañas, como que al imponer manos se te pasan los pecados o los demonios de la otra persona. No dice eso. Dice que, cuando vayas a delegar autoridad, te asegures de que su carácter sea el que pide la Palabra. Si había un pecado completamente oculto, no participaste en él. Pero si sabes que su carácter no es el correcto, que no está listo, que no ha dado testimonio probado, y aun así le delegas autoridad, ahí sí participas del pecado de otro. No porque sus pecados pasen a ti. Eso ya pasó en el chivo expiatorio, en Jesús: Él lo cargó, se lo llevó, y Dios ni se acuerda.
+
+*Todas las citas bíblicas, salvo indicación contraria, han sido tomadas de la Nueva Biblia de las Américas (NBLA), © 2005 por The Lockman Foundation. Usadas con permiso.*

@@ -1,0 +1,106 @@
+# La resurrección de los muertos
+
+> Bíblicamente no existe el fin del mundo, sino el fin de esta era de corrupción y la restauración de todas las cosas. La resurrección física de los muertos es nuestra única esperanza: un día todos resucitaremos, y los que son de Cristo vivirán en cuerpos glorificados, en cielos y tierra restaurados, con Dios habitando entre nosotros. La cosmovisión griega separa lo espiritual, bueno, de lo físico, malo; la Biblia dice que Dios creó ambos y que todo era bueno. Cristo es el primer fruto de la resurrección, y el Espíritu Santo es la garantía de lo que viene. Por eso vivimos hoy como testigos de su resurrección, sin miedo a las señales del fin.
+
+*Adaptado con ayuda de IA a partir de una clase en vivo.*
+
+- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Fuente: Doctrinas Fundamentales: Resurrección de los muertos (clase en vivo, Intensivo Convivencia)
+- URL: https://danielliraserhan-rgb.github.io/clases/la-resurreccion-de-los-muertos/
+- Idioma: es-MX
+- Serie: Doctrinas Fundamentales (parte 6 de 6)
+- Anterior: https://danielliraserhan-rgb.github.io/clases/la-imposicion-de-manos/
+
+## Puntos clave
+
+- Bíblicamente no existe el fin del mundo, sino el fin de esta era de corrupción y la restauración de todas las cosas (Hech. 3:21).
+- La resurrección física es nuestra única esperanza; la Biblia no separa lo espiritual (bueno) de lo físico (malo), como la filosofía griega.
+- Nuestro cuerpo será transformado conforme al cuerpo glorioso de Cristo (Fil. 3:21), el primogénito de entre los muertos (Col. 1:18).
+- Si Cristo no resucitó, nuestra fe es vana; pero resucitó, y el Espíritu Santo es la garantía de lo que viene (1 Cor. 15).
+- Las señales del fin no deben darnos miedo; vivimos hoy como testigos de la resurrección.
+
+---
+
+## No es el fin del mundo
+
+Ya nada más nos quedan dos doctrinas fundamentales: la resurrección de los muertos y el juicio eterno. Hollywood nos ha metido un miedo increíble con el fin del mundo, incluso a los cristianos: ¿qué va a pasar?, ¿voy a estar o no voy a estar? Esta clase tiene el objetivo de quitarles ese miedo, porque el fin del mundo no es bíblico. No es el fin del mundo; es el fin de esta era, la era de la corrupción, del pecado, donde reina el rey de las tinieblas. Y esa es una buena noticia, porque empezará la era venidera, con un Rey, que es Jesús. Los eventos del final duran bien poquito comparados con la eternidad que viene después.
+
+¿Han jugado Jenga? Si le quitas cualquier pieza, se cae la torre. Así son las doctrinas fundamentales: cuentan una misma historia, y si quitas una, se cae todo. No son nada nuevo; son lo más básico de la fe. Pero si escarbas, cada vez conoces más a Jesús.
+
+## Nuestra única esperanza
+
+¿Qué es la resurrección de los muertos? Nuestra única esperanza. Un día todos vamos a resucitar, sin importar cómo hayamos muerto: si se los comió un tiburón, si nunca encontraron el cuerpo, si los cremaron. No sé cómo; Dios tiene su manera. Pero va a suceder, el día que regrese Jesús, al final de esta era.
+
+La resurrección nos da la identidad de quiénes somos, de lo que hacemos y de por qué lo hacemos. Creo que en la iglesia de este lado del mundo, sobre todo en Estados Unidos, la hemos reducido, porque nos gustan las bendiciones y los beneficios de hoy. Predicamos un evangelio a medias. Cuando entiendes la resurrección, el juicio eterno y la eternidad, esta vida no es nada en comparación, y empiezas a vivir de acuerdo con la vida eterna.
+
+La aventura del creyente empieza al nacer de nuevo. Pero, ¿cuál es el final? La resurrección. Si no entiendes el final, no sabes qué carrera estás corriendo. Es como Google Maps o Waze: si no pones el destino, no sirve de nada. Y el destino es que vamos a resucitar, literalmente, en cuerpos físicos. Esa idea de que vamos a ser angelitos con las pompis desnudas no es real.
+
+## La cosmovisión griega y la cosmovisión bíblica
+
+Ese es uno de los problemas principales: la iglesia se ha infiltrado mucho de la filosofía griega. Para los griegos, lo espiritual es bueno y lo físico es malo; el cuerpo y lo terrenal son malos. El objetivo de la vida es escapar del cuerpo, trascender, ascender a un plano espiritual, ser un iluminado. Lo ves hoy: antes la gente te decía “eso de Dios es de locos”; ahora todo es Dios, “yo también soy espiritual”, “yo y los chakras”.
+
+Pero la Biblia dice: «En el principio Dios creó los cielos y la tierra» (Gén. 1:1), y vio Dios que era bueno. Los cielos y la tierra, lo espiritual y lo físico, son buenos. Todo se cayó y se corrompió, y estamos como estamos, pero al final Dios va a restaurar los cielos y la tierra. Es decir: tú, en tu cuerpo, vas a poder tomar agua y comer en la eternidad. A lo mejor no una hamburguesa de McDonald's, pero algo mucho más rico.
+
+Sí, tu carne está corrompida, pero no tenemos que escapar de ella. Tenemos que aprender a vivir con autocontrol, con mansedumbre, siguiendo al Espíritu Santo, esperando el día de la resurrección, en el que nuestro cuerpo también obedezca a nuestro espíritu. Nuestro objetivo no es morirnos e ir al cielo. La eternidad será en una creación muy parecida al Edén antes de la caída. Adán y Eva no nomás comieron del árbol equivocado; seguramente comieron de otros frutos, le pusieron nombre a los animales, jugaban con ellos y platicaban con Dios. Es una realidad parecida a esta, menos la corrupción, las lágrimas, el dolor y la enfermedad. Y lo más hermoso es que Dios va a estar ahí.
+
+Un día vas a sentarte con Jesús y verlo cara a cara. Vas a volver a ver a tu papá, a tu mamá, al hermano que falleció, en un cuerpo glorificado, y van a platicar, a comer, a pasear por un jardín, a pescar, lo que sea tu hobby. Yo me imagino que en la eternidad alguien me va a decir: “Hola, Daniel, ¿te acuerdas de mí? Una vez fuiste por una dona al 7-Eleven y oraste por mí. Te bateé. Pero llegué a mi casa y mi esposa me habló de Jesús, luego un tío, y entregué mi vida al Rey. Gracias por atreverte a platicar conmigo”. Así se ve la resurrección.
+
+¿Tienes una comida favorita? La vas a poder saborear. Vas a disfrutar una eternidad con tus hijos. Por eso es más fácil decir como Pablo, que todo lo consideraba basura con tal de conocer a Cristo y llegar a la resurrección de entre los muertos (ver Fil. 3:8–11). Lo de este mundo está padre, pero va a haber un día en que lo vamos a disfrutar eternamente y de manera perfecta, porque ya no habrá corrupción.
+
+Hay una canción que dice algo así: “el cielo y la tierra en un beso se encuentran”. Es la imagen del esposo que viene por la esposa, y en el matrimonio dos se hacen uno. Así, el cielo y la tierra van a volver a ser uno. A eso le llamo **la restauración de todas las cosas**. No es algo que temer, sino algo que esperar con ansias: “Ven, Jesús”.
+
+## El cuándo y el cómo
+
+¿Cuándo? En la segunda venida de Jesús. Apenas empezaba la iglesia y Pedro ya lo predicaba: a Jesús «el cielo debe recibir hasta el día de la restauración de todas las cosas, acerca de lo cual Dios habló por boca de Sus santos profetas desde tiempos antiguos» (Hech. 3:21). Desde Génesis 3:15 la promesa fue la misma: vendrá la simiente de la mujer que aplastará la cabeza de la serpiente, pondrá fin al reino de las tinieblas y reinará para siempre, en la tierra. Y Juan escuchó una gran voz: «El tabernáculo de Dios está entre los hombres, y Él habitará entre ellos y ellos serán Su pueblo». Dios enjugará toda lágrima, y ya no habrá muerte ni dolor, porque las primeras cosas pasaron. Y el que está en el trono dice: «Yo hago nuevas todas las cosas» (Apoc. 21:3–5). Tabernáculo, en palabras coloquiales, es hogar: el hogar de Dios estará entre nosotros.
+
+Por eso queremos enamorarnos de Jesús hoy. Mi esposa y yo nos separamos de nuestra primera bebé por primera vez; ya llevamos tres noches. Hoy en la mañana mi esposa lloraba: “La extraño mucho”. Así es nuestra relación con Jesús: lo amo tanto, me he dedicado tanto a conocerlo, que lo único que quiero es que regrese, porque voy a estar con Él de manera literal y física.
+
+¿Cómo va a ser nuestro cuerpo? Honestamente, la Biblia dice muy poco. ¿Si no tenías un brazo, te va a crecer? ¿Si falleciste de niño, qué edad vas a tener? No sé. Lo que sé es esto: esperamos a un Salvador, «el cual transformará el cuerpo de nuestro estado de humillación en conformidad al cuerpo de Su gloria» (Fil. 3:21). Por más que vayas al gym, tu cuerpo está en estado de humillación. Nuestro cuerpo resucitado se va a parecer al de Jesús resucitado. Y es bien extraño: tenía las manos con agujeros y le dijo a Tomás que lo tocara, pero también aparecía de un lado a otro. No vayan a decir que estoy haciendo doctrinas raras: todo lo que acabo de decir es “no sé”. Lo único que sabemos es que será un cuerpo glorificado. Sin dolor de espalda, sin migrañas. Imagínate nunca cansarte mientras juegas con tus hijos.
+
+## Cristo, el primer fruto
+
+¿Cómo sé que esto es literal? Porque Cristo resucitó, y resucitó con una promesa: tú también vas a resucitar. Y resucitó en un cuerpo: comió, le preparó un pescado a Pedro, se les apareció a los discípulos y les mostró sus llagas. Pablo dice que Él es «el primogénito de entre los muertos, a fin de que Él tenga en todo la primacía» (Col. 1:18). Él había resucitado a Lázaro, pero Lázaro se volvió a morir; Jesús nunca volvió a morir. Hoy está sentado a la diestra del Padre en su cuerpo glorificado, no como un espíritu, esperando el día en que cielo y tierra vuelvan a convivir. Por medio de Él, el Padre va a reconciliar consigo todas las cosas, «ya sean las que están en la tierra o las que están en los cielos» (Col. 1:20).
+
+Por eso la resurrección es el centro de nuestra fe, y por eso es de lo primero que se ataca: “no fue crucificado”, “no murió”, “no resucitó”, “nunca existió”. Muchos musulmanes, por ejemplo, dicen que Dios nunca le habría hecho eso a un profeta y que hizo que otro se pareciera a Jesús; y si les hablas de la tumba vacía, dicen que se robaron el cuerpo. Eso ya pasaba en los evangelios: sobornaron a los guardias para que dijeran que lo habían robado (Mat. 28:12–13). Porque, si la resurrección es real, quien vivió solo para este mundo tiró su vida a la basura.
+
+Pero sí resucitó. Hay profecías antes y testigos después, dispuestos a morir por esto. A Esteban lo apedrearon por proclamarlo, y antes de morir dijo: «Veo los cielos abiertos, y al Hijo del Hombre de pie a la diestra de Dios» (Hech. 7:56). Estaba listo, porque sabía que iba a resucitar. Y Pablo escribe: «Porque yo les entregué en primer lugar lo mismo que recibí: que Cristo murió por nuestros pecados conforme a las Escrituras, que fue sepultado y que resucitó al tercer día conforme a las Escrituras» (1 Cor. 15:3–4). Se apareció a Cefas, a los doce, a más de quinientos hermanos a la vez, muchos de los cuales todavía vivían cuando Pablo escribió, a Jacobo, a los apóstoles y, al final, a Pablo mismo (1 Cor. 15:5–8).
+
+La resurrección avala el ministerio de Cristo. Imagínate a alguien que dice ser el Mesías, hace milagros, predica increíble, dice “voy a resucitar”, muere y no resucita: todo su ministerio a la basura. Eso sintieron los discípulos cuando murió. Pero al tercer día resucitó, y entendieron: “Era verdad”. Y nunca lo volvieron a abandonar, hasta su muerte. En su cruz fuiste perdonado; en su resurrección eres empoderado. Por eso nos envió al Espíritu Santo como garantía de lo que está por venir (Efe. 1:13–14). Es como el aval de una renta: si no pagas, se van contra el aval. Y nuestro aval es el Espíritu Santo. Métanse con el Espíritu Santo, a ver quién gana.
+
+## Lázaro y el Mesías
+
+La historia de Lázaro, en Juan 11, es extraña. Lázaro, el amigo de Jesús, muere, y Jesús llora, aunque sabía que lo iba a resucitar. Hay una profundidad ahí: Él se duele con lo que tú te dueles, aunque sabe cuál es la solución. Por eso a veces lo mejor que podemos hacer con alguien que sufre es abrazarlo y llorar con él, sin decir nada.
+
+Marta le dice a Jesús que si hubiera estado ahí, su hermano no habría muerto, y que ya sabe que resucitará en el día final. Era bien inteligente: entendía la resurrección de todos. Pero hoy le dolía. Y Jesús le responde: «Yo soy la resurrección y la vida; el que cree en Mí, aunque muera, vivirá, y todo el que vive y cree en Mí, no morirá jamás. ¿Crees esto?». Y ella contesta: «Sí, Señor; yo he creído que Tú eres el Cristo, el Hijo de Dios, el que viene al mundo» (Jn. 11:25–27).
+
+¿Qué tiene que ver una cosa con la otra? Que desde Génesis se profetizaba que el Mesías traería la resurrección de los muertos, vencería al diablo, a la muerte, al mundo y a la carne, y restauraría todas las cosas. Poner nuestra fe en este Rey es creer en una resurrección física, tangible y literal, y anhelarla.
+
+Resucitar a Lázaro, sanar enfermos, hacer que el ciego vea y el cojo camine: Jesús lo hace también por el día de hoy, pero sobre todo para demostrar la autoridad de un Rey que va a reinar para siempre. Es como cuando un hombre empieza a salir con una mujer y paga el café: sí es para que lo disfrute, pero también le está diciendo “puedo proveer, vas a estar segura conmigo cuando nos casemos”. Así hace Jesús: te sana, te guía, te provee, para apuntarte a su regreso, cuando nada te faltará. Como en el Éxodo: les daba maná en el camino para llevarlos a una tierra donde fluye leche y miel.
+
+Y ojo: no vayan a vivir solo para ese mundo: “Ya no voy a la comida familiar”, “me peleo con mi suegra, al cabo que se va a reconciliar”. No. Nuestra vida es testimonio de la era venidera. Cuando sigues a Jesús, te vuelves una imagen de Él, y eso le declara al mundo: “Esto es real”.
+
+## Sin miedo a las señales
+
+Ha habido guerras horribles en Medio Oriente, y si pones en YouTube “señales del fin” o se lo preguntas a una inteligencia artificial, vas a ser engañado. Jesús es muy claro en Mateo 24: «Ustedes van a oír de guerras y rumores de guerras. ¡Cuidado! No se alarmen, porque es necesario que todo esto suceda; pero todavía no es el fin» (Mat. 24:6). Esta no es clase de eso. Lean Mateo 24 y Daniel; si no le entienden, vuelvan a leer, pero no vayan a YouTube. Las señales son centradas en Israel, y cada vez que pase algo allá alguien va a salir con una nota amarillista y un versículo. Tu trabajo es entender la historia completa con la Biblia. Y si alguien pone fechas, huye de ese maestro. Hubo quien dijo que Jesús regresaba un 29 de septiembre, y no regresó.
+
+Las señales nos deben dar esperanza, no miedo. Nos da miedo porque no hemos entendido la resurrección. Sí habrá un evento bien difícil al final, pero solo apunta al regreso de Jesús. Sería como si los hebreos en Egipto le tuvieran miedo a las plagas: ya sabemos el desenlace. Por eso Daniel entró al foso de los leones. Cuando resucitemos le vamos a preguntar: “¿Cómo fue? ¿Les cerró la boca un ángel?”. Y a Sadrac, Mesac y Abed-nego: “¿Sintieron calor en el horno?”. Y a Moisés: “¿Cómo se partió el mar?”. Si te gusta que tus abuelitos te cuenten historias, imagínate platicar con Abraham: “¿Qué pensaste cuando dejaste tu tierra?”.
+
+¿Qué va a pasar en la segunda venida? Pablo enseña que el Señor descenderá con voz de mando, los muertos en Cristo resucitarán primero, y los que estemos vivos seremos arrebatados en las nubes para encontrarnos con el Señor (1 Tes. 4:16–17). Hay varias posturas sobre esto. Lo que les enseño es que Cristo regresa y resucitan los muertos en Cristo; pasan mil años, y luego resucitan todos los demás para el juicio final, que es la siguiente sesión. «Los demás muertos no volvieron a vivir hasta que se cumplieron los mil años. Esta es la primera resurrección» (Apoc. 20:5). Daniel lo dijo: «Muchos de los que duermen en el polvo de la tierra despertarán, unos para la vida eterna, y otros para la ignominia, para el desprecio eterno» (Dan. 12:2). Y Jesús: «Los que hicieron lo bueno, para resurrección de vida, y los que practicaron lo malo, para resurrección de juicio» (Jn. 5:29).
+
+La mayor parte del énfasis del Nuevo Testamento está en esto: la segunda venida, la resurrección y la eternidad. Si no, Pablo, Juan y Pedro no habrían muerto como murieron. Por eso podemos pasar por tribulación a causa de Cristo. La vida humana es como una vacuna: nadie la quiere, lloras, gritas y te pones nervioso, pero al tercer día estás como nuevo. Es un piquetito, y luego veremos cielos nuevos y tierra nueva.
+
+Pablo lo dice sin rodeos: «Y si Cristo no ha resucitado, la fe de ustedes es falsa; todavía están en sus pecados». Y si solo para esta vida hemos esperado en Cristo, «somos, de todos los hombres, los más dignos de lástima. Pero ahora Cristo ha resucitado de entre los muertos, primicias de los que durmieron» (1 Cor. 15:17–20). Así como en Adán todos mueren, en Cristo todos serán vivificados, cada uno en su orden: Cristo, las primicias, y luego los que son de Cristo en su venida (1 Cor. 15:22–23). Esa es la historia de la humanidad en una imagen: cielos y tierra creados, caemos en corrupción, Cristo muere y resucita como primicia, y en su regreso cielo y tierra se encuentran. Si esto no fuera real, nuestra fe sería vana. Pero es real, y no estás perdiendo el tiempo.
+
+## Testigos de la resurrección
+
+¿Cómo vivimos la vida cristiana? Mediante la resurrección. Tenemos un adelanto de ella, que se llama Espíritu Santo. Él nos da certeza y nos empodera para ser testigos de la resurrección de Cristo y de la que viene. No necesitas manifestaciones, dones ni talentos para vivir así. Muchas veces los buscamos como excusa: “Si tan solo sanara enfermos o hablara en lenguas, sabría que voy a resucitar”. Pero la tarea principal es parecernos a Cristo. Busca su reino, y todo lo demás vendrá por añadidura (Mat. 6:33), y las señales acompañarán a los que lo siguen.
+
+Somos testigos porque vivimos la victoria sobre nuestro pecado. “Antes era adicto; ahora no, porque Cristo murió, resucitó y envió al Espíritu Santo”. Ese testimonio ni siquiera es tuyo, es de Cristo. Efesios dice que Dios nos sentó con Cristo en los lugares celestiales (Efe. 2:6). Somos herederos legítimos. Nuestra resurrección todavía no ha sucedido completamente, pero sí verdaderamente, igual que conocemos a Dios no completamente, pero sí verdaderamente. Ya estás muerto para el mundo, la carne y el pecado, y has resucitado para Cristo. Por eso Santiago dice que la fe sin obras está muerta: la Biblia no debate la salvación, sino la manera de vivir. ¿Estás alineado al Rey? Ya no le debemos nada a la carne (Rom. 8:12); podemos atender al Espíritu Santo, que es la garantía de que vamos a resucitar y de que un día Dios hará su hogar entre nosotros.
+
+Y si eso no te enamora, si no dices “ya quiero que llegue el día en que Jesús esté entre nosotros”, nos hace falta conocerlo más. Hay gente aquí a la que le pasó hace poco: “¿Qué tengo que hacer?”. “Ven el domingo”, y aquí están. “Ora por el enfermo”, y oran. “Platícale a tu mamá”, y le platican. ¿Por qué? Porque se enamoraron de Cristo. No dejes que la cotidianidad te robe el asombro. Imagina cómo va a resucitar alguien que fue cremado. Asómbrate del poder de Jesús, que resucitó, movió la piedra y caminó con dos discípulos a quienes les ardía el corazón (Luc. 24:32). Y ellos corrieron a contarle a todos: “Es real, y va a regresar”.
+
+Las filosofías griegas, humanistas y posmodernas nos han hecho mucho daño. Queremos meter libros de autoayuda a la iglesia o venir para que nos vaya mejor. Pero nosotros vivimos para la resurrección. La ansiedad y la depresión son muy reales, no digo que no. Hay una película sobre un hombre con esquizofrenia que aprende a distinguir a las personas que ve y que no son reales. Al final, ya exitoso, las ve, las ignora y sigue su camino. Así es la vida hasta que Jesús regrese. No promete quitártelo todo. Tienes que ver a tu pecado a los ojos y decirle: “Tú ya no eres mi rey; es Jesús”. Ver a tu carne en su estado de humillación y decirle: “Me espera un cuerpo glorificado”. Y preguntarle al Espíritu Santo: “¿A dónde voy? ¿Cómo testifico? ¿Cómo me parezco más a Jesús?”.
+
+No vivimos para este mundo, sino para la era venidera, y el mundo no se va a acabar. Apocalipsis no tiene por qué darnos miedo: son señales que preceden su venida. Es agridulce, porque es difícil, pero anhelamos su regreso, y por eso soportamos la tribulación para ver las glorias de su venida.
+
+*Todas las citas bíblicas, salvo indicación contraria, han sido tomadas de la Nueva Biblia de las Américas (NBLA), © 2005 por The Lockman Foundation. Usadas con permiso.*
