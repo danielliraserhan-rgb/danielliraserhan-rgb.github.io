@@ -65,3 +65,78 @@ h3.lang{font-weight:600;line-height:1.7}
 .yt-play::after{content:"";position:absolute;left:27px;top:14px;border-style:solid;border-width:10px 0 10px 17px;border-color:transparent transparent transparent #fff}
 .yt-lite:hover .yt-play,.yt-lite:focus .yt-play{opacity:1}
 footer p{margin:0}
+
+/* ===== Páginas de artículo (ensayos y clases) ===== */
+.post-hero{background:linear-gradient(160deg,#1f2a37 0%,#2c3b4d 100%);color:#f4efe6;padding:84px 0 72px;text-align:center}
+.post-hero h1{font-size:clamp(2.1rem,5.5vw,3.6rem);font-weight:500;margin:.35em 0 .2em}
+.post-hero .sub{font-family:"Cormorant Garamond",Georgia,serif;font-style:italic;font-size:clamp(1.2rem,2.8vw,1.6rem);color:#d9d3c7;margin:0 auto 1em;max-width:760px}
+.post-hero .byline{font:600 .78rem Inter,system-ui,sans-serif;letter-spacing:.12em;text-transform:uppercase;color:#c9a45c;margin:0}
+.crumbs{display:block;font:600 .72rem Inter,system-ui,sans-serif;letter-spacing:.1em;text-transform:uppercase;color:var(--muted);padding-top:18px;line-height:1.6}
+.crumbs a{text-decoration:none;font:inherit;letter-spacing:inherit;color:var(--gold)}
+.article{max-width:740px;margin:0 auto;padding:36px 24px 80px}
+.article .ai-note{font-size:.86rem;color:var(--muted);font-style:italic;border-left:2px solid var(--gold);padding-left:12px;margin:14px 0 0}
+.article .summary{background:var(--card);border:1px solid var(--line);border-top:2px solid var(--gold);padding:22px 26px;margin:0 0 28px}
+.article .summary .box-h{font:600 .75rem Inter,system-ui,sans-serif;letter-spacing:.15em;text-transform:uppercase;color:var(--gold);margin:0 0 6px}
+.article .summary .box-h::after{display:none}
+.article .summary h3.box-h{margin-top:16px}
+.article .summary p,.article .summary li{font-size:1rem}
+.article .summary ul{margin:6px 0 0}
+.essay-meta{display:grid;grid-template-columns:repeat(auto-fit,minmax(150px,1fr));gap:10px 18px;margin:0 0 22px;font-size:.92rem}
+.essay-meta dt{font:600 .7rem Inter,system-ui,sans-serif;letter-spacing:.12em;text-transform:uppercase;color:var(--muted)}
+.essay-meta dd{margin:0}
+.article .actions{display:flex;gap:12px;flex-wrap:wrap;margin:0 0 30px}
+.article nav.toc{margin:0 0 36px}
+.article nav.toc ol{margin:8px 0 0;padding-left:22px;font-size:.98rem}
+.article nav.toc a{color:var(--ink);text-decoration:none;font:inherit;letter-spacing:0;text-transform:none}
+.article nav.toc a:hover{color:var(--gold)}
+.article h2{font-size:clamp(1.6rem,3.4vw,2.1rem);font-weight:500;margin:1.8em 0 .5em;scroll-margin-top:80px}
+.article h2::after{content:"";display:block;width:44px;height:2px;background:var(--gold);margin-top:10px}
+.article h3{font-size:1.4rem;font-weight:600;margin:1.5em 0 .4em;scroll-margin-top:80px}
+.article h4{font-family:"Cormorant Garamond",Georgia,serif;font-size:1.2rem;margin:1.2em 0 .3em}
+.article p,.article li{hyphens:auto;overflow-wrap:break-word}
+.article blockquote{margin:1.3em 0;padding:4px 0 4px 22px;border-left:3px solid var(--gold);color:#2c3b4d}
+.article ol,.article ul{padding-left:24px}.article li{margin:.35em 0}
+.article .structural{background:var(--card);border:1px solid var(--line);padding:18px 22px;font-size:.95rem;white-space:normal}
+.article .structural p{margin:.2em 0}.article .structural blockquote{font-style:italic;margin:.4em 0}.article .structural blockquote p{margin:0}
+.article .bibliography p{padding-left:2em;text-indent:-2em;font-size:.95rem;margin:.5em 0}
+.footnotes{font-size:.9rem;border-top:1px solid var(--line);margin-top:40px}
+.footnotes ol{padding-left:22px}.footnotes li{margin:.4em 0}
+.footnote-ref sup,a.footnote-ref{text-decoration:none}
+.footnote-back{text-decoration:none;margin-left:4px}
+.article .cite{font-size:.9rem;color:var(--muted);margin-top:30px}
+.author-bio{background:var(--card);border:1px solid var(--line);border-left:4px solid var(--gold);padding:20px 24px;margin:34px 0 0}
+.author-bio h2{font-size:1.5rem;margin:0 0 .4em}.author-bio h2::after{display:none}
+.author-bio p{margin:0;font-size:.98rem}
+.article .back{margin-top:34px}
+.read-alt{font:600 .72rem Inter,system-ui,sans-serif;letter-spacing:.1em;text-transform:uppercase;text-decoration:none;margin-left:14px;color:var(--muted)}
+.list-hero{padding:96px 0 84px}
+@media print{header.nav,footer,.crumbs,.toc,.back,.actions{display:none}.post-hero{padding:40px 0;-webkit-print-color-adjust:exact;print-color-adjust:exact}.article{padding-top:20px}body{font-size:12pt}.article h2{break-after:avoid}.article blockquote,.article .summary,.author-bio{break-inside:avoid}}
+.card .card-links{flex:0 0 auto;margin:0}
+/* ---- Essay entries: faithful reproduction of the original documents ---- */
+.entry{max-width:52rem;margin:0 auto;padding:1.5rem 1rem 3rem}
+.entry-head{max-width:46rem;margin:0 auto 1.25rem;font-family:Inter,system-ui,sans-serif}
+.entry-head h1{font-family:"Times New Roman",Tinos,"Liberation Serif",Times,serif;font-weight:normal;font-size:clamp(1.6rem,4vw,2.2rem);line-height:1.2;margin:.2rem 0 .5rem;color:#111}
+.entry-head .byline,.entry-head .entry-links{font-size:.9rem;color:#444;margin:.2rem 0}
+.entry-head a{color:#7a5a18}
+.doc{font-family:"Times New Roman",Tinos,"Liberation Serif",Times,serif;font-size:1.15rem;color:#111;line-height:1.4}
+.doc .sheet{background:#fff;max-width:46rem;margin:0 auto 1.5rem;padding:clamp(1.25rem,5vw,4rem) clamp(1rem,6vw,4.5rem);box-shadow:0 1px 4px rgba(0,0,0,.12);border:1px solid #e6e2da}
+.doc p,.doc h2,.doc h3,.doc h4,.doc h5,.doc h6{margin:0;font:inherit;font-weight:normal;color:inherit;letter-spacing:normal;text-transform:none}
+.doc .e{min-height:1.4em}
+.doc .caps{text-transform:uppercase}.doc .sc{font-variant:small-caps}
+.doc .tab{display:inline-block;min-width:2em;white-space:pre}
+.doc .num{display:inline-block;min-width:1.5em}
+.doc .toc{display:flex;align-items:baseline;text-indent:0!important}
+.doc .toc .leader{flex:1;border-bottom:1px dotted #555;margin:0 .3em;min-width:1em}
+.doc a{color:inherit;text-decoration:underline;text-decoration-thickness:1px}
+.doc sup{line-height:0;font-size:.7em}
+.doc .fnref a,.doc .fnmark a{text-decoration:none;color:#7a5a18}
+.doc .doc-notes{margin-top:2.5rem;font-size:.87rem}
+.doc .doc-notes hr{width:12rem;margin:0 0 1rem;border:0;border-top:1px solid #333}
+.doc .fn{margin-bottom:.45rem}
+.doc .fn:target,.doc h2:target{background:#fff6dd}
+.doc .title-page{text-align:center}
+.entry .back{max-width:46rem;margin:1rem auto 0;font-family:Inter,system-ui,sans-serif;font-size:.9rem}
+.entry .back a{color:#7a5a18}
+@media (max-width:600px){.doc{font-size:1.05rem}.doc p[style*="justify"]{text-align:left!important}}
+@media print{.nav,footer,.crumbs,.entry-links,.back{display:none}.doc .sheet{box-shadow:none;border:0;padding:0}}
+.doc .toc a{display:flex;flex:1;align-items:baseline;text-decoration:none}

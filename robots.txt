@@ -1,4 +1,34 @@
+# robots.txt — Daniel Lira Serhan
+# Todo el contenido público puede rastrearse e indexarse, incluidos buscadores y asistentes de IA.
+
 User-agent: *
+Allow: /
+
+# Buscadores
+User-agent: Googlebot
+User-agent: Bingbot
+User-agent: Applebot
+User-agent: DuckDuckBot
+Allow: /
+
+# Búsqueda y respuestas con IA (citas y enlaces)
+User-agent: OAI-SearchBot
+User-agent: ChatGPT-User
+User-agent: PerplexityBot
+User-agent: Perplexity-User
+User-agent: Claude-SearchBot
+User-agent: Claude-User
+# xAI no publica un token oficial; estos nombres son los reportados por registros públicos
+User-agent: GrokBot
+User-agent: xAI-SearchBot
+Allow: /
+
+# Entrenamiento y grounding de modelos de IA (decisión del autor: permitido)
+User-agent: GPTBot
+User-agent: ClaudeBot
+User-agent: Google-Extended
+User-agent: Applebot-Extended
+User-agent: CCBot
 Allow: /
 
 Sitemap: https://danielliraserhan-rgb.github.io/sitemap.xml

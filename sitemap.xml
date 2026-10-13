@@ -1,15 +1,81 @@
 <?xml version="1.0" encoding="UTF-8"?>
-<urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9">
-<url><loc>https://danielliraserhan-rgb.github.io/</loc><lastmod>2026-10-10</lastmod></url>
-<url><loc>https://danielliraserhan-rgb.github.io/libros/nacer-de-nuevo.pdf</loc><lastmod>2026-10-10</lastmod></url>
-<url><loc>https://danielliraserhan-rgb.github.io/libros/origenes-la-creacion-y-el-pueblo-de-dios-edicion-1.pdf</loc><lastmod>2026-10-10</lastmod></url>
-<url><loc>https://danielliraserhan-rgb.github.io/ensayos/book-review-throne-lamb-dragon.pdf</loc><lastmod>2026-10-10</lastmod></url>
-<url><loc>https://danielliraserhan-rgb.github.io/ensayos/desnudos-pero-sin-verguenza.pdf</loc><lastmod>2026-10-10</lastmod></url>
-<url><loc>https://danielliraserhan-rgb.github.io/ensayos/en-cristo.pdf</loc><lastmod>2026-10-10</lastmod></url>
-<url><loc>https://danielliraserhan-rgb.github.io/ensayos/in-christ.pdf</loc><lastmod>2026-10-10</lastmod></url>
-<url><loc>https://danielliraserhan-rgb.github.io/ensayos/naked-but-not-ashamed.pdf</loc><lastmod>2026-10-10</lastmod></url>
-<url><loc>https://danielliraserhan-rgb.github.io/ensayos/teodicea.pdf</loc><lastmod>2026-10-10</lastmod></url>
-<url><loc>https://danielliraserhan-rgb.github.io/ensayos/the-prophetic-poet.pdf</loc><lastmod>2026-10-10</lastmod></url>
-<url><loc>https://danielliraserhan-rgb.github.io/ensayos/theodicy.pdf</loc><lastmod>2026-10-10</lastmod></url>
-<url><loc>https://danielliraserhan-rgb.github.io/ensayos/what-is-a-jew-what-is-a-christian.pdf</loc><lastmod>2026-10-10</lastmod></url>
+<urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9" xmlns:xhtml="http://www.w3.org/1999/xhtml">
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/</loc>
+  <lastmod>2026-10-13</lastmod>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/ensayos/</loc>
+  <lastmod>2026-10-13</lastmod>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/clases/</loc>
+  <lastmod>2026-10-13</lastmod>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/clases/la-biblia-es-la-verdad/</loc>
+  <lastmod>2026-10-13</lastmod>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/ensayos/teodicea/</loc>
+  <lastmod>2026-10-13</lastmod>
+  <xhtml:link rel="alternate" hreflang="es-MX" href="https://danielliraserhan-rgb.github.io/ensayos/teodicea/"/>
+  <xhtml:link rel="alternate" hreflang="en" href="https://danielliraserhan-rgb.github.io/ensayos/theodicy/"/>
+  <xhtml:link rel="alternate" hreflang="x-default" href="https://danielliraserhan-rgb.github.io/ensayos/teodicea/"/>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/ensayos/en-cristo/</loc>
+  <lastmod>2026-10-13</lastmod>
+  <xhtml:link rel="alternate" hreflang="es-MX" href="https://danielliraserhan-rgb.github.io/ensayos/en-cristo/"/>
+  <xhtml:link rel="alternate" hreflang="en" href="https://danielliraserhan-rgb.github.io/ensayos/in-christ/"/>
+  <xhtml:link rel="alternate" hreflang="x-default" href="https://danielliraserhan-rgb.github.io/ensayos/en-cristo/"/>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/ensayos/desnudos-pero-sin-verguenza/</loc>
+  <lastmod>2026-10-13</lastmod>
+  <xhtml:link rel="alternate" hreflang="es-MX" href="https://danielliraserhan-rgb.github.io/ensayos/desnudos-pero-sin-verguenza/"/>
+  <xhtml:link rel="alternate" hreflang="en" href="https://danielliraserhan-rgb.github.io/ensayos/naked-but-not-ashamed/"/>
+  <xhtml:link rel="alternate" hreflang="x-default" href="https://danielliraserhan-rgb.github.io/ensayos/desnudos-pero-sin-verguenza/"/>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/ensayos/the-prophetic-poet/</loc>
+  <lastmod>2026-10-13</lastmod>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/ensayos/naked-but-not-ashamed/</loc>
+  <lastmod>2026-10-13</lastmod>
+  <xhtml:link rel="alternate" hreflang="en" href="https://danielliraserhan-rgb.github.io/ensayos/naked-but-not-ashamed/"/>
+  <xhtml:link rel="alternate" hreflang="es-MX" href="https://danielliraserhan-rgb.github.io/ensayos/desnudos-pero-sin-verguenza/"/>
+  <xhtml:link rel="alternate" hreflang="x-default" href="https://danielliraserhan-rgb.github.io/ensayos/desnudos-pero-sin-verguenza/"/>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/ensayos/in-christ/</loc>
+  <lastmod>2026-10-13</lastmod>
+  <xhtml:link rel="alternate" hreflang="en" href="https://danielliraserhan-rgb.github.io/ensayos/in-christ/"/>
+  <xhtml:link rel="alternate" hreflang="es-MX" href="https://danielliraserhan-rgb.github.io/ensayos/en-cristo/"/>
+  <xhtml:link rel="alternate" hreflang="x-default" href="https://danielliraserhan-rgb.github.io/ensayos/en-cristo/"/>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/ensayos/theodicy/</loc>
+  <lastmod>2026-10-13</lastmod>
+  <xhtml:link rel="alternate" hreflang="en" href="https://danielliraserhan-rgb.github.io/ensayos/theodicy/"/>
+  <xhtml:link rel="alternate" hreflang="es-MX" href="https://danielliraserhan-rgb.github.io/ensayos/teodicea/"/>
+  <xhtml:link rel="alternate" hreflang="x-default" href="https://danielliraserhan-rgb.github.io/ensayos/teodicea/"/>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/ensayos/what-is-a-jew-what-is-a-christian/</loc>
+  <lastmod>2026-10-13</lastmod>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/ensayos/book-review-throne-lamb-dragon/</loc>
+  <lastmod>2026-10-13</lastmod>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/libros/nacer-de-nuevo.pdf</loc>
+  <lastmod>2026-10-10</lastmod>
+</url>
+<url>
+  <loc>https://danielliraserhan-rgb.github.io/libros/origenes-la-creacion-y-el-pueblo-de-dios-edicion-1.pdf</loc>
+  <lastmod>2026-10-10</lastmod>
+</url>
 </urlset>
