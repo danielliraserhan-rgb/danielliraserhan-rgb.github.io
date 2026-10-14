@@ -10,6 +10,7 @@
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Éxodo · Sesión 5 (parte 5 de 5)
 - Anterior: https://danielliraserhan-rgb.github.io/clases/exodo-un-santuario-para-habitar-entre-ellos/
+- Siguiente serie (Levítico): https://danielliraserhan-rgb.github.io/clases/levitico-acercate-un-llamado-de-gracia/
 
 ## Puntos clave
 

@@ -1,0 +1,117 @@
+# Levítico: las fiestas de primavera
+
+> Los tiempos también son sacramentos: Dios puso las lumbreras por señales. Antes de las fiestas, Levítico muestra que la vida está en la sangre y que tras las leyes de pureza hay un corazón: mujer, acabas de dar a luz, atiende a tu bebé. Dios ama las fiestas. Cada una se ve de tres maneras: un hecho histórico del Éxodo, una celebración anual y una realidad escatológica. La Pascua: te sacaré. Los Panes sin Levadura: te libraré, anticipo del milenio. Las Primicias: te redimiré, anticipo de la resurrección. Y Pentecostés, cincuenta días después: te tomaré, el día de la ley y del pacto matrimonial.
+
+*Adaptado con ayuda de IA a partir de una clase en vivo.*
+
+- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 4 (clase grabada, Estudio 12:2)
+- URL: https://danielliraserhan-rgb.github.io/clases/levitico-las-fiestas-de-primavera/
+- Idioma: es-MX
+- Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 4 (parte 4 de 6)
+- Anterior: https://danielliraserhan-rgb.github.io/clases/levitico-los-sacerdotes-y-el-octavo-dia/
+- Siguiente: https://danielliraserhan-rgb.github.io/clases/levitico-las-fiestas-de-otono/
+
+## Puntos clave
+
+- Los tiempos también son sacramentos: las lumbreras son «para señales y para estaciones» (Gén. 1:14).
+- La vida está en la sangre, y Dios la dio para hacer expiación (Lev. 17:11).
+- Cada fiesta mira al pasado (el Éxodo), se celebra cada año y apunta a una realidad futura.
+- Pascua: te sacaré. Panes sin Levadura: te libraré. Primicias: te redimiré.
+- Pentecostés recuerda el Sinaí, la ley y el pacto: te tomaré.
+
+---
+
+## Los tiempos también son sacramentos
+
+Los tiempos revelan la gloria de Dios, y Dios los ha separado y los ha santificado. De hecho, cuando Dios creó todas las cosas en Génesis, puso las lumbreras por señales de los tiempos:
+
+«Haya lumbreras en la expansión de los cielos para separar el día de la noche, y sean para señales y para estaciones y para días y para años» (Gén. 1:14).
+
+Es decir, son sacramentos. Si ves, Dios lo único que quiere es comunicarse con su pueblo, y ha hecho tantas cosas para comunicarse y revelarse, y que lo podamos conocer en el idioma que podemos entender. Y las fiestas, es decir, los tiempos marcados por fiestas, lo van a recordar.
+
+Ahora, nos hemos saltado hasta el capítulo 23 de Levítico, donde hablaremos de las fiestas. Pero recuerda, puedes leer los demás capítulos entendiendo la realidad de lo que hemos platicado. Dios escogió a una nación que es Israel, y el libro es para Israel. No tenemos que estarnos preguntando: ¿y eso aplica para mí o no aplica para mí? ¿Cómo aplica para mí? Hay un principio detrás. ¿Cuál es el lenguaje? ¿Qué es lo que quería transmitir? ¿Qué significaba la lepra en ese momento? ¿Por qué el tema del derramamiento de sangre es importante?
+
+## La vida está en la sangre
+
+Y Levítico lo dice claramente:
+
+«Porque la vida de la carne está en la sangre, y Yo se la he dado a ustedes sobre el altar para hacer expiación por sus almas. Porque es la sangre, por razón de la vida, la que hace expiación» (Lev. 17:11).
+
+Hay algo desde Génesis 3 que nos habla de que en el sacrificio de un animal, en el derramamiento de sangre, es que podemos sustituir el pago que teníamos de muerte. Porque se nos ha dado la sangre para expiar, para pagar ese costo y poder volver a escoger el camino de la vida.
+
+Así que muchas de las reglas de purificación tienen que ver con eso. No comerás animales con sangre, porque la vida está en la sangre. Una mujer que acaba de dar a luz o que está en su periodo no puede estar pura. ¿Por qué? Porque ha perdido sangre. De ahí nace la cuarentena realmente: son 40 días en los que la mujer no es pura después de dar a luz a un varón (si es una niña, son 80: Lev. 12:2-5). No está hablando de poder tener acceso o no a Dios. Está hablando de que ahora Dios le da prioridad a ciertas cosas. Mujer, acabas de dar a luz. No tienes por qué estar en el templo sacrificando un corderito o un pichón. No vengas a darle gracias a Dios: atiende a tu bebé. Ya vendrá el momento en el que puedas regresar, ir y agradecer a Dios.
+
+Pero hay un momento en el que hay una santidad, hay algo importante que tienes que atender. Y así hay varias cosas. La lepra, en ese momento, en ese sentido, no tenía que ver con la lepra de la época, incluso, de Jesús, ni la lepra que podemos conocer hoy como enfermedad. Eran unas llagas representadas por lo que sucedió en las plagas de Egipto, y tenían esta connotación muy fuerte de que había habido un pecado. Y por lo tanto, en un pueblo tan santo, tan cercano a Dios, que pecaba, eventualmente había marcas en el cuerpo que tenían que ser purificadas. Y es de donde eventualmente los fariseos comienzan a preguntar quién pecó y empiezan a expulsar gente.
+
+¿Por qué? Porque se perdió el corazón de lo que Dios estaba diciendo en esta época. Lo que quiero decir con todo esto es: no perdamos ese corazón. No tratemos de ver en la letra de Levítico algo que no está en el corazón de Dios. Veamos cuál es el corazón de Dios a través de la letra de Levítico.
+
+## Dios ama las fiestas
+
+Y para eso también Dios instituyó las fiestas. Dios ama las fiestas. Dios ama las bodas. ¿Por qué? Porque te puedes sentar a la mesa, porque puedes recordarlo, porque puedes convivir. En las fiestas se nos olvida prácticamente todo: la preocupación, el estrés, el trabajo. Y estás con la familia sentado en la mesa.
+
+Dios instituyó ciertas fiestas a través de un calendario de agricultura, para que cuando el pueblo de Israel llegara a la tierra que Dios les había entregado, que hoy conocemos como Israel, pudieran recordar en cada momento a Dios y la razón por la que están en esa tierra. Es un sacramento. De nuevo, mantiene el equilibrio de santidad del pueblo, de la gente; ya lo vimos a través de los sacrificios, de la purificación y de los sacerdotes. Y también mantiene la tierra y los tiempos santos a través de esta institución de las fiestas.
+
+## Tres maneras de ver cada fiesta
+
+Hay siete fiestas oficiales, y una extra que veremos al final. El objetivo de estos tiempos, una vez más, es que hay una señal visible: van a conmemorar un hecho histórico, principalmente sucedido en el Éxodo; van a replicarse como un festejo anual; y van a apuntar hacia una realidad escatológica. Es decir, tienes que verlo de tres maneras.
+
+¿Cómo apunta hacia el pasado? ¿En qué hecho histórico está arraigado? Ahí entenderemos el principio de la fiesta. Luego, ¿cómo se replica anualmente? El objetivo de esa replicación anual es recordar el principio que Dios estableció, comprometernos una vez más, regresarnos a casa. Y número tres, nos apunta a una realidad escatológica, es decir, una realidad futura en donde Dios restaurará todas las cosas.
+
+Así que vamos a verlas. Tú lo puedes leer en Levítico 23. Realmente Levítico 23 solo las menciona; puedes ver su institución en Éxodo y en Números, y luego, eventualmente, la tradición judía las va desarrollando.
+
+## Primera fiesta: la Pascua, «te sacaré»
+
+Vamos a la primera, Levítico 23, versículo 5:
+
+«En el mes primero, el día catorce del mes, al anochecer, es la Pascua del Señor» (Lev. 23:5).
+
+Es el *Pésaj* de Dios, de Jehová. ¿Qué significa eso? Es la Pascua del Señor, si te puedes acordar: el momento en el que el ángel de la muerte pasa sobre la casa de todo aquel que tuviera la sangre del cordero marcada en su puerta. Es la que Dios instituyó en el momento que los sacó de Egipto, la primera parte de la promesa que les da en Éxodo: yo te sacaré.
+
+Así que recuerda el Éxodo. Les recuerda el momento exacto en el que Dios cumplió su promesa, en donde Dios los sacó. Más de esto lo puedes ver en [la clase de Éxodo](https://danielliraserhan-rgb.github.io/clases/exodo-los-sacare-los-librare-los-redimire/). Es también, oficialmente, el inicio del año: para ellos es el primer mes, y el día 14 del primer mes es la Pascua del Señor. Inicia el año. ¿Por qué? Porque es el momento en el que iniciaron una nueva vida. Históricamente le recuerda al pueblo que Dios lo sacó de Egipto, salvándolo de un juicio por medio de la sangre de un cordero.
+
+Así que cada festejo que ellos hacen recuerda la Pascua. Recuerdan las promesas de Dios, cómo Él los sacó de Egipto y cómo Él los llevó a esta tierra, y cómo puede volver a hacerlo una y otra vez. Y eventualmente apunta hacia una realidad escatológica, una realidad final en la que vendrá un nuevo Éxodo. La Biblia habla de que Dios escogió a Israel para recuperar a las demás naciones. ¿Por qué? Porque tenían que ser salvadas de una tierra que se había corrompido. El último Éxodo: la realidad del Éxodo y de la Pascua nos habla de que un día Dios nos sacará a todos los que ponemos nuestra fe en Él y creemos en Él de este mundo, de esta era maligna y corrupta, y nos llevará a la nueva era, en donde Él reinará por siempre.
+
+Así que, uno, te recuerda la realidad del Éxodo. Dos, te recuerda que Dios es el que te saca y el que te ha redimido. Y número tres, te apunta a la realidad futura, donde todo será bueno una vez más. Dios saca a su pueblo: es la primera parte de estas promesas del Éxodo. Después tenemos la segunda parte: Dios libra a su pueblo. Y la segunda de las fiestas habla justo de eso.
+
+## Segunda fiesta: los Panes sin Levadura, «te libraré»
+
+Versículo 6:
+
+«El día quince del mismo mes es la Fiesta de los Panes sin Levadura para el Señor; por siete días comerán pan sin levadura» (Lev. 23:6).
+
+Esta fiesta de los panes sin levadura habla de un proceso de transición entre que Dios los sacó de Egipto y los llevó al mar. En este periodo de siete días, la fiesta recuerda este momento. La manera en que se celebra es que por siete días no comen pan con levadura; comen puros panes sin levadura. La levadura habla del pecado. Habla de este momento en el que Dios los estaba purificando, limpiando del pecado. Los llevó de ser esclavos a la libertad completa. Todo ese proceso se llama redención.
+
+Pero los panes sin levadura por siete días hablan de este proceso de santificación, este proceso en que lentamente el pueblo de Israel va entendiendo quién es su Dios, hasta el momento en el que dicen: sí, soy tuyo. Cada vez que lo celebran, les recuerda a Dios librándolos y llamándolos a vivir una vida sin pecado.
+
+Y escatológicamente, ¿a qué se refiere? Hay todo un tema en el que hablamos de que, cuando Cristo regrese, o cuando venga esta semilla que hoy conocemos como Cristo, este Mesías que en ese momento no entendían quién era, hay un periodo de transición. Si la primera nos habla de que nos sacará de este mundo corrupto, la segunda nos habla del periodo de transición en el que el mundo será purificado y regresado a su estado original, en donde todo será bueno. Este concepto se le llama el milenio: son mil años en donde la tierra será restaurada a su estado original por la mano de aquel que gobernará, de [Siloh](https://danielliraserhan-rgb.github.io/clases/genesis-siloh-el-rey-que-vendra/), que vimos al final de Génesis, en Génesis 49.
+
+Así que, recuerda: la primera, el Pésaj, la Pascua, Dios sacó a su pueblo. La segunda, los panes sin levadura, es cuando Dios libra a su pueblo. Yo te sacaré y yo te libraré.
+
+## Tercera fiesta: las Primicias, «te redimiré»
+
+La tercera es la de los primeros frutos. En el versículo 10 dice:
+
+«Cuando ustedes entren en la tierra que Yo les daré, y sieguen su cosecha, entonces traerán al sacerdote una gavilla de las primicias de su cosecha» (Lev. 23:10).
+
+Y así prácticamente hablan los siguientes versículos de cómo va a funcionar esta fiesta. Pero ¿qué es lo que está haciendo? El hecho histórico en este momento habla de dos cosas; es bastante interesante, porque va a mezclar dos cosas. Por un lado, está hablando del tiempo en el desierto: se abre el mar, pasan por el mar, y durante el desierto Dios envió maná del cielo. Por lo tanto, el día que lleguen a la tierra recordarán que Dios es su proveedor al darle los primeros frutos. Si ves, habla del hecho histórico de que Dios los sostuvo, pero también del hecho de que llegaron a la tierra, que en este momento aún no sucede, pero que sucederá.
+
+Y así lo festejarán. Cada año, al darle las primicias al Señor, recuerdan que Él es su proveedor y que Él los compró. Esa es la parte donde hablamos de la redención: Dios redime a su pueblo. Dios los saca, Dios los libra, y vemos este periodo desde la Pascua hasta que se abre el mar. Pero una vez que entran al desierto, han sido redimidos. Tienen una vida completamente nueva en la que reconocen que el Señor es su proveedor.
+
+¿Cómo apunta escatológicamente esto? Al día de la resurrección. Es el día en el que los creyentes se levantarán y resucitarán como los primeros frutos del plan de Dios.
+
+## Cuarta fiesta: Pentecostés, «te tomaré»
+
+Estas primeras tres, y la que sigue, son en el tiempo de primavera. Van sucediendo muy seguidas. Tienen la Pascua el día 14; justo después son siete días; justo acabando esos siete días viene el festejo de los primeros frutos. Y después, en el versículo 16, dice:
+
+«Contarán cincuenta días hasta el día siguiente al séptimo día de reposo; entonces presentarán una ofrenda de espiga tierna al Señor» (Lev. 23:16).
+
+Esta fiesta se conoce como Pentecostés. ¿Por qué? Porque son *pente*, 5: cincuenta días después presentarán entonces una ofrenda, harán un festejo.
+
+¿Qué conmemora esto? Ya vimos: saca a su pueblo, libra a su pueblo, redime a su pueblo, y nos falta el día en que toma a su pueblo. Y esta específicamente es en la que recuerdan el día en el que el Señor les dio la ley en el monte Sinaí. Los lleva hacia el desierto, pero en el desierto los lleva a un momento en el que en el monte hace un pacto y los toma como pueblo: tú serás mi esposa y yo seré tu esposo; tú serás mi pueblo y yo seré tu Dios.
+
+Recuerda el momento del Sinaí, en donde se entregó la ley. Cada año, cuando esto se repite y se celebra, ellos regresan a la ley. Probablemente leen este libro de Levítico, leen el libro de Deuteronomio, recuerdan la historia, pero recuerdan el día en que Dios hizo un pacto bilateral con ellos. De esto se trata el día de Pentecostés: donde entrega la ley, donde entrega la carta matrimonial. Y ellos lo recuerdan.
+
+Y escatológicamente anuncia este día que eventualmente entenderemos, donde Dios pone la ley en nuestros corazones y donde todos seguirán la ley de Dios. ¿En qué sentido? Acuérdate de qué se trataba la ley: acércate. Cuando por fin el pueblo y el Señor realmente sean uno, en el sentido matrimonial del que está hablando. Él está ahí. Por fin el Señor habita entre nosotros. Las siguientes tres fiestas suceden en el otoño, y de ellas hablaremos en la siguiente sesión.
+
+*Todas las citas bíblicas, salvo indicación contraria, han sido tomadas de la Nueva Biblia de las Américas (NBLA), © 2005 por The Lockman Foundation. Usadas con permiso.*

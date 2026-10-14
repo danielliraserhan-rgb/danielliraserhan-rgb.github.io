@@ -1,0 +1,115 @@
+# Levítico: acércate, un llamado de gracia
+
+> Éxodo termina con la gloria del Señor llenando el tabernáculo, tan fuerte que Moisés no podía entrar. Levítico empieza a una hoja de distancia: el Señor llama a Moisés desde la tienda de reunión. En esencia: acércate. Levítico no es legalismo, es el mensaje de gracia de Dios a una nación santa formada por humanos imperfectos. Para mantener ese balance, Dios instituye sacramentos, señales externas de una gracia interna: los sacrificios, los sacerdotes y las fiestas. Como el sello en un decreto real, una fotografía revelada o un anillo de compromiso, sellan en la conciencia del pueblo las promesas de Dios.
+
+*Adaptado con ayuda de IA a partir de una clase en vivo.*
+
+- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Fuente: Orígenes (Estudio 12:2) · Levítico: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
+- URL: https://danielliraserhan-rgb.github.io/clases/levitico-acercate-un-llamado-de-gracia/
+- Idioma: es-MX
+- Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 1 (parte 1 de 6)
+- Serie anterior (Éxodo): https://danielliraserhan-rgb.github.io/clases/exodo-las-cuatro-copas-de-la-pascua/
+- Siguiente: https://danielliraserhan-rgb.github.io/clases/levitico-los-cinco-sacrificios/
+
+## Puntos clave
+
+- Levítico empieza donde termina Éxodo: el Señor llama a Moisés desde la tienda de reunión. En esencia: acércate.
+- Levítico no es legalismo: es el mensaje de gracia de Dios a una nación santa de humanos imperfectos.
+- «Santos serán porque Yo, el Señor su Dios, soy santo» (Lev. 19:2).
+- Un sacramento es una señal externa de una gracia interna; en Levítico son los sacrificios, los sacerdotes y las fiestas.
+- Como el sello de un decreto o un anillo de compromiso, el sacramento sella en nosotros las promesas de Dios.
+
+---
+
+## Levítico revela el carácter de Dios
+
+Muchas personas creen que el libro de Levítico es muy complicado, pero quiero decirte que un niño judío comienza su instrucción bíblica a los cinco años con el libro de Levítico. En esta clase quiero que podamos descubrir qué es lo esencial de este libro y por qué es tan importante, porque creo que revela el carácter de Dios, revela su gracia, revela un mensaje mucho más profundo que solo instrucciones de cómo hacer sacrificios, fiestas y purificaciones. Y todo tiene que ver con la gran historia que hemos estado contando en esta serie de cinco clases llamada Orígenes. Llegamos a la tercera, en donde estaremos abordando el libro de Levítico y cómo la gracia de Dios es revelada a través de él. Quiero recordarte rápidamente la gran historia hasta este momento.
+
+## La gran historia hasta aquí
+
+Si puedes recordarlo, Dios creó todas las cosas y todo era bueno. Todo era bueno en gran manera. Dios crea los cielos y la tierra y todo lo que hay en ella para revelar su carácter, revelarse a sí mismo, y que el ser humano pueda conocerlo y amarlo. Es ahí donde el humano encuentra su propósito: en encontrarse con el Señor que lo creó para que podamos deleitarnos en Él. Dios se da por nosotros y nosotros a su vez. El ser humano se entrega, se deleita, lo alaba con su vida y con todo lo que es.
+
+Sin embargo, Dios puso ahí en el Edén, en el jardín más hermoso, dos árboles. Esos dos árboles representaban una decisión: la honra al gobierno de Dios o la rebeldía a Dios. La dependencia del Dios creador de todas las cosas y el deleite eterno, o la decisión de rebelarnos y vivir de acuerdo a nuestro propio conocimiento, nuestro propio gobierno. Como tú ya sabes, el hombre, Adán, y consecuentemente cada uno de nosotros, viéndolo tanto en la historia de Israel como en nuestra vida personal, decidimos la independencia de Dios. Y aunque Dios promete una nueva semilla, un nuevo hijo que nos regresará a casa, vemos en la historia cómo la humanidad se va degradando, la tierra se va corrompiendo hasta el punto de la torre de Babel. En la torre de Babel las naciones son dispersadas y Dios crea una nación para sí mismo.
+
+Una nación con una intención, con un propósito, con una misión: ser bendecidos para bendecir. Llamar a todos los demás de regreso a casa. Es la nación que Dios escogió para ser santa, para ser separada, para alumbrarle al mundo y decirles: regresen a casa. En esencia, era como plantar un nuevo árbol y decirle al mundo: puedes regresar a casa, puedes volver a escoger esta nueva semilla, este nuevo árbol que nace de la esperanza de aquel que vendrá un día. Y así es que Dios escoge a Abraham, a Isaac y a Jacob, a esta historia de Israel. Y vemos cómo, a través de la vida de José, aunque todos los demás hijos se pueden empezar a perder, siempre habrá un remanente.
+
+Este remanente es José, quien se mantiene en los diseños de Dios, se mantiene honrando a Dios, se mantiene siendo un fiel servidor al Señor en todo lo que hace. Y de tal manera, un día bendice a sus hermanos. Esta es una pequeña probadita de la misión de Israel en la tierra. Así es como entramos al libro de Éxodo. Cuando llegan a Egipto, José encuentra favor con Faraón para toda su familia y les entregan un nuevo jardín, una nueva tierra llamada Gosén. El pueblo habita ahí, disfruta, se multiplica, hasta que son esclavizados por unas personas que no conocían a José, que toman el trono de Faraón y comienzan a esclavizarlos por miedo. Y es entonces donde Dios levanta a Moisés, lo llama desde la zarza ardiente y, más adelante, le hace una promesa de cuatro partes.
+
+¿La recuerdas? «Los sacaré de debajo de las cargas de los egipcios. Los libraré de su esclavitud, y los redimiré con brazo extendido y con grandes juicios. Los tomaré a ustedes por pueblo Mío, y Yo seré su Dios» (Éx. 6:6-7). Te sacaré: y entonces con mano dura vence a todos los dioses de Egipto y de Faraón a través de las plagas, y a través de esta última plaga, el día del Cordero, la Pascua, por fin los saca de esa tierra. Te libraré de la esclavitud: donde renueva su mente y esta actitud que tenían de esclavos, en donde el Señor proveía gratuitamente agua y pan y codornices durante todo el tiempo, porque proveía en sí mismo una cobertura del sol y en la noche alumbraba y producía calor. Y eventualmente se abre el mar y cruzan, completando la tercera promesa: yo te redimiré. Es cuando los toma y los compra por la sangre del Cordero, pero termina de darles una nueva vida.
+
+Y al final los lleva hasta el monte Sinaí, en donde les dice: yo te tomaré. Y comienza una nueva relación de pacto bilateral, una relación que se asemeja a lo que hoy conocemos como el matrimonio, en donde entendemos y conocemos cuál es la relación que Dios quiere tener con su pueblo. Terminando esta boda, este pacto, les dice: háganme una habitación, háganme un tabernáculo. Háganme un lugar en donde yo pueda habitar con ustedes, caminar, descansar.
+
+## Un nuevo Edén para habitar con Dios
+
+Recuerda, este era su objetivo desde el primer día. Desde antes de la fundación del mundo se dijo a sí mismo: hagamos al hombre a nuestra imagen y semejanza para que puedan disfrutarnos. Una vez más vemos que Dios provee un nuevo jardín, un nuevo Edén. Así como lo proveyó en Génesis, luego lo vemos en Éxodo cuando les dan Gosén. Y ahora lo vemos al final, cuando Dios los vuelve a sacar y los vuelve a llevar a un lugar en donde pueden habitar con Dios.
+
+Ahora, el libro de Éxodo se acaba de una manera increíble, muy interesante: terminan de construir la habitación, terminan de construir el tabernáculo, y entonces la nube de la presencia de Dios reposa sobre el tabernáculo:
+
+«Entonces la nube cubrió la tienda de reunión y la gloria del Señor llenó el tabernáculo. Moisés no podía entrar en la tienda de reunión porque la nube estaba sobre ella y la gloria del Señor llenaba el tabernáculo» (Éx. 40:34-35).
+
+## Acércate: de qué trata Levítico
+
+Y esto nos lleva a Levítico. Se acaba Éxodo y está a una hoja de distancia. Si leyéramos Levítico en el original, comienza diciendo:
+
+«El Señor llamó a Moisés y le habló desde la tienda de reunión» (Lev. 1:1).
+
+Acércate, le decía. Acércate. Este es el mensaje, este es el propósito, esto es lo que Dios quería lograr en el libro de Levítico. Es el llamado de Dios a una nación santa, a una nación en pacto, en relación, a decirle: acércate a mí, quiero estar contigo. Y esta es la manera en la que sucederá.
+
+Te invito a leer Levítico. Es mucho más importante que tú vayas a la Palabra, y no entiendas, y te pelees y trates de descubrirla, y luego que juntos podamos ir entendiendo el mensaje, el contexto y de lo que se está tratando. Muchas de las cosas que voy a estar hablando no las voy a poder leer verso por verso, sino que simplemente las voy a estar mencionando. Vamos a ir a través de todo el libro por varias secciones, y la primera sección va a ser entre Levítico 1 y Levítico 8.
+
+Es complejo y vienen demasiadas tecnicidades dentro del libro. Son instrucciones. Y la parte compleja del libro de Levítico es que venimos escuchando una historia: una historia de Israel, una historia del Éxodo, una historia narrativa. Y de repente la parte narrativa se detiene y comienza a hablar de muchas instrucciones. No vemos avanzar mucho el tiempo en el libro de Levítico, sino que todo está condensado. Y está condensado porque es un anexo, por decirlo de alguna manera, al libro del Éxodo. ¿Pero qué es Levítico? Es el llamado de Dios a decir: acércate. Es la manera en la que Dios toma todo lo que hemos visto en Génesis y en Éxodo y comienza a decir: tú eres una nación santa, y esta es la manera en la que una nación santa se relaciona con Dios.
+
+## Un pueblo imperfecto ante un Dios santo
+
+¿Cómo se va a relacionar ahora esta nación nueva, Israel, este pueblo lleno de humanos imperfectos, con un Dios que es completamente santo? Levítico nos presenta justo esta idea de cómo mantener el balance entre la imperfección del hombre, que es un pecador, y la santidad de Dios. Hay una frase que me encanta:
+
+«Santos serán porque Yo, el Señor su Dios, soy santo» (Lev. 19:2).
+
+Sepárense del mundo, manténganse puros, manténganse identificables como algo completamente distinto a lo que van a encontrar en las demás naciones. Sean santos porque yo soy santo. Y la manera en la que lo harán es a través de mantener la pureza y la sumisión a Dios. En esencia, volvemos al origen de todo: los dos árboles. El libro de Levítico ahora representa el árbol de la vida.
+
+Y yo sé, cuando leemos la palabra Levítico, la asemejamos a la palabra ley. Y la palabra ley en nuestras mentes muchas veces habla de un legalismo, de algo rígido, de que Dios te va a castigar si no haces lo que Él te dice. Pero Levítico no es eso para nada. Levítico es el mensaje de gracia de Dios diciéndoles: vuelve a casa. He plantado una nueva semilla de esperanza. Vendrá un hijo. Este hijo vendrá a través de una nación que es Israel. Israel, ustedes, plantados con esta semilla, crecen como un árbol que llamará a todas las demás naciones de regreso. Y entonces así se deben de comportar. De esto se trata Levítico. Mantendrá el balance ante esta imperfección al definir sacramentos o, en otras palabras más simples, señales, en las que podremos entender una realidad divina y espiritual de una manera externa o física.
+
+## ¿Qué es un sacramento?
+
+Y es la manera en la que el pueblo, una y otra vez, toma del árbol de la vida: se somete, honra el gobierno de Dios. Así que el libro de Levítico lo que hace es encontrar este balance, este equilibrio de un pueblo, de una nación santa, en relación a un Dios santo, a través de señales o sacramentos.
+
+¿Qué significa sacramento? La palabra la hemos escuchado. En el contexto cristiano tenemos principalmente dos sacramentos: el bautizo en agua y la santa cena. Y ambos hablan de un misterio. La palabra sacramento es un misterio. ¿Qué significa esto? No es algo misterioso, oculto. Es algo que necesita una revelación externa. Es una realidad espiritual, divina, invisible, que va a encontrar en el sacramento, en una aplicación, en algo físico, una representación de ella. Al final del día lo podemos conocer como señales.
+
+Y estos sacramentos instituidos en Levítico, estas señales, serán los sacrificios, los sacerdotes y las fiestas. ¿Para qué son? Son hechas para el pueblo. Son hechas para que el pueblo pueda reconocer su estado, su corazón, quebrantarse, regresar a Dios, y una vez más, de una manera simple y sencilla, poder regresar. Los sacrificios, sacerdotes y las fiestas tienen el objetivo de mantener al pueblo santo y puro, la tierra santa y pura y los tiempos santos y puros. Es decir, es la manera en la que se separarán de todas las demás naciones.
+
+Estas tres cosas son una revelación externa a todas las naciones de que Dios está con ellos, una realidad invisible. Son la realidad externa y práctica en la que ellos reconocen su necesidad de Dios. Es la manera práctica en la que ellos pueden regresar una y otra vez a recordar el día de descanso, el tiempo en el Éxodo. Una y otra vez. El sacramento no es algo misterioso, y no es esto lo que lo hace complejo. Realmente, el libro de Levítico no debe de ser complejo.
+
+## Escrito en un idioma que hay que traducir
+
+¿Por qué es complejo? Porque no está escrito para ti y para mí. Está escrito para el pueblo de Israel, en una época muy antigua, a un pueblo que había sido esclavizado en medio de Egipto, la nación, digamos, en ese momento más pagana en el sentido idólatra, que tenía cientos de dioses y eran representados por un faraón que conseguía favor de los dioses. Y veían sacrificios en todos lados: en las calles, de diferentes maneras, en diferentes lugares, a diferentes dioses. Es decir, está escrito en un lenguaje que ellos entendían, pero que tú y yo difícilmente podemos comprender el día de hoy.
+
+Así que no es complejo por sus misterios. Es complejo porque hay que traducir el mensaje, porque está en un idioma que tal vez tú y yo no entendemos. Pero en esencia está hecho para este Israel, un pueblo que ya está en un pacto con Dios, ya está en una relación con Dios. Y es una gracia revelada con una señal externa, un sacramento. Todo el libro de Levítico lo podríamos considerar esto. Toda la ley no es necesaria por sí misma. Los sacrificios: Dios no necesita los sacrificios.
+
+## Una señal externa de una gracia interna
+
+Pero los instituye como una revelación externa de una gracia interna. Y el peso del sacramento es principalmente para el hombre y no para Dios. Lo que el Señor está haciendo en cada una de estas cosas es sellar en nuestra conciencia sus promesas y sus obras. ¿Para qué? Para sustentar y sostener nuestra fe, que es débil. Y nosotros, al participar de ella, testificamos de nuestra sumisión y rendición.
+
+Te voy a dar el ejemplo del bautizo. El bautizo en agua no es necesario para Dios. Pero ¿qué sucede en el momento que llegas a Cristo, que lo conoces y que entregas tu vida a Él? La Palabra dice que pasaste de muerte a vida, que moriste juntamente con Cristo y resucitaste con Él. Es una realidad invisible, espiritual, no tangible. Pero al instituir el sacramento del bautizo, cuando tú eres sumergido en esa agua fría por completo y entonces sales de ella, toda tu alma, todo tu espíritu, todo tu cuerpo, tu conciencia es sellada con esa realidad. Y ahora puedes recordar ese momento. Ahora puedes tener algo tangible y físico de lo cual sostenerte. Es sellado en ti.
+
+El sacramento entonces es como este sello agregado a una promesa. No sirve de nada si no existe la promesa. No sirve de nada si tu corazón, tu intención, no es rendirte al Señor. Pero cuando lo que contiene es fe, es amor, es esta rendición, son las promesas de Dios, el sello mismo cobra sentido. Veámoslo como un pergamino, un decreto real de un rey que contiene una letra, que contiene algo, y luego está firmado o sellado. La firma por sí misma no significa nada. El sello por sí mismo no significa nada. Sin embargo, cuando entendemos de quién es la firma y cuál es el documento firmado, cobra peso, cobra relevancia. Y esto es un sacramento. Para esto son los sacrificios, para esto son los sacerdotes y para esto son las fiestas. Cada sacramento tiene el objetivo de revelar algo, de recordar algo, de comprometerte y de apuntarte a algo.
+
+## Cada pacto tiene su señal
+
+Cada pacto que vimos y cada pacto que veremos contiene un sacramento, una señal externa. En el momento en el que Dios le promete a Adán y a Eva que vendrá una semilla, los cubre con pieles de animales. En el momento que Dios le promete a la tierra que la restaurará a través del pacto con Noé, hay un arcoíris que está puesto sobre la tierra. En el momento que hace un pacto con Abraham, le da la circuncisión como un pacto, un sacramento.
+
+De nuevo, no es la circuncisión la que te separó; es el Señor quien lo hace. Pero cuando una persona, consciente de lo que significa, decide circuncidar a su hijo en el octavo día y dedicárselo al Señor, le está poniendo un sello sobre su vida, un peso, porque incluye esta rendición y esta fe. Es la palabra que se hace visible. Es la promesa que se hace tangible. Esto es un sacramento, y no está hecho para alcanzar salvación, no está hecho para recibir algo extraño. No, no: es un sello final que le recuerda a tu mente, a tu corazón, a tu espíritu, a tu alma, a todo lo que tú eres, que eres del Señor.
+
+La Santa Cena, una vez que participamos, nos recuerda esta realidad: que nuestros pecados fueron molidos en el cuerpo de Cristo y que en su sangre hemos sido lavados por completo. Y cuando tú lo comes, no se trata del pan, no se trata del vino; se trata de ese momento en el que estás siendo sellado, en que estás recordando. Así como Abraham, que vio la sangre, que vio la muerte, y se le selló en el corazón. Es que estamos viendo la cruz a través de un sacramento, a través de algo revelado.
+
+## Una fotografía revelada, un anillo en el dedo
+
+Por último, puedes entenderlo tal vez como una fotografía, al menos las fotografías de rollo. Cuando tú sales y tomas fotos, estás tomando una foto de un momento en especial, un momento hermoso, un momento que tu mente vio y capturó, que te provocó emociones y sentimientos. Pero eso se quedó grabado y no está revelado. Es un misterio. No sabes realmente cómo salió, hasta que la llevas y la revelas. Una vez que la revelas y la ves, puedes ver una obra maestra que te recuerda el momento en el que estuviste, que tal vez te compromete a la belleza y al momento en el que sentiste. Te apunta a ese lugar, y entonces la enmarcas para que todo mundo la vea. Es una señal externa de algo que ya había sucedido, que es invisible y que está ahí guardado, pero que ahora es revelado.
+
+Así que entendemos todo el libro de Levítico como un sacramento. Como los árboles: los dos árboles eran un sacramento, eran una señal. Algo tangible y visible en el que el ser humano podía decir: he sometido mi gobierno a Dios. ¿Cómo? Porque decido el árbol de la vida. Al decidir el árbol de la muerte, he rebelado mi vida contra el gobierno de Dios. Es una señal externa de una decisión interna, de una actitud interna, de un pensamiento interno.
+
+Es como, perdón, muchos ejemplos, pero me gusta ser claro, el anillo de compromiso. Hay una realidad invisible a cualquier lugar al que yo voy, a cualquier lugar al que cualquier persona casada va: estás casado. Hubo un evento que sucedió donde se firmó, donde se prometió, donde se entregaron. Sin embargo, el anillo portado en el dedo le dice al mundo de manera externa que existe una realidad interna. Hay un pacto interno que es revelado al mundo, y el mundo puede reconocer que estoy santificado para mi esposa, separado. Yo ya no soy del mundo: soy de mi esposa y mi esposa es mía.
+
+La ley, Levítico, es el sacramento que identifica a Israel y lo separa. ¿Por qué? Porque fue escogida una nación para recuperar a las demás naciones, con un objetivo: que todos puedan habitar con Dios una vez y para siempre. En la siguiente sesión vamos a estudiar estos sacramentos, iniciando con los primeros, que son los sacrificios: los cinco tipos de sacrificios. Después iremos a los capítulos del 8 al 10 y en adelante, hasta el 17, donde veremos la institución de los sacerdotes y la purificación del pueblo. Y eventualmente terminaremos con las fiestas y los diferentes tiempos que Dios establece.
+
+*Todas las citas bíblicas, salvo indicación contraria, han sido tomadas de la Nueva Biblia de las Américas (NBLA), © 2005 por The Lockman Foundation. Usadas con permiso.*
