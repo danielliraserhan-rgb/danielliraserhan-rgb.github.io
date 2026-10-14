@@ -10,6 +10,7 @@
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 6 (parte 6 de 6)
 - Anterior: https://danielliraserhan-rgb.github.io/clases/genesis-isaac-jacob-y-jose/
+- Siguiente serie (Éxodo): https://danielliraserhan-rgb.github.io/clases/exodo-dios-se-presenta-por-nombre/
 
 ## Puntos clave
 
