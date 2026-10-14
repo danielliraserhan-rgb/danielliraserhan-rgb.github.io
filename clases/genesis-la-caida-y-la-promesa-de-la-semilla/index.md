@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Génesis: Sesión 2 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/genesis-la-caida-y-la-promesa-de-la-semilla/
+- URL: https://daniellira.com/clases/genesis-la-caida-y-la-promesa-de-la-semilla/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 2 (parte 2 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/genesis-creados-para-conocer-y-amar-a-dios/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/genesis-de-cain-al-diluvio-y-babel/
+- Anterior: https://daniellira.com/clases/genesis-creados-para-conocer-y-amar-a-dios/
+- Siguiente: https://daniellira.com/clases/genesis-de-cain-al-diluvio-y-babel/
 
 ## Puntos clave
 

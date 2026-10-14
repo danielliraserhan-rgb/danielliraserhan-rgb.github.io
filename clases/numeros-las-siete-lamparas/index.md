@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Números: Sesión 4 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/numeros-las-siete-lamparas/
+- URL: https://daniellira.com/clases/numeros-las-siete-lamparas/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Números · Sesión 4 (parte 4 de 8)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/numeros-unidos-pero-diversos-en-funcion/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/numeros-la-queja-y-los-dos-reportes/
+- Anterior: https://daniellira.com/clases/numeros-unidos-pero-diversos-en-funcion/
+- Siguiente: https://daniellira.com/clases/numeros-la-queja-y-los-dos-reportes/
 
 ## Puntos clave
 

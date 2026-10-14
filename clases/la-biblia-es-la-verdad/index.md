@@ -4,12 +4,12 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Doctrinas Fundamentales, sesión 3 (Intensivo Convivencia)
-- URL: https://danielliraserhan-rgb.github.io/clases/la-biblia-es-la-verdad/
+- URL: https://daniellira.com/clases/la-biblia-es-la-verdad/
 - Idioma: es-MX
 - Serie: Doctrinas Fundamentales (parte 1 de 6)
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/conocer-a-dios-sus-atributos/
+- Siguiente: https://daniellira.com/clases/conocer-a-dios-sus-atributos/
 
 ## Puntos clave
 

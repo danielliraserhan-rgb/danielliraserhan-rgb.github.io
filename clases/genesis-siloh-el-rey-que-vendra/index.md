@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Génesis: Sesión 6 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/genesis-siloh-el-rey-que-vendra/
+- URL: https://daniellira.com/clases/genesis-siloh-el-rey-que-vendra/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 6 (parte 6 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/genesis-isaac-jacob-y-jose/
-- Siguiente serie (Éxodo): https://danielliraserhan-rgb.github.io/clases/exodo-dios-se-presenta-por-nombre/
+- Anterior: https://daniellira.com/clases/genesis-isaac-jacob-y-jose/
+- Siguiente serie (Éxodo): https://daniellira.com/clases/exodo-dios-se-presenta-por-nombre/
 
 ## Puntos clave
 

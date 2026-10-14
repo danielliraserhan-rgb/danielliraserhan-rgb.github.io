@@ -1,11 +1,11 @@
 # What Is a Jew? What Is a Christian?
 
-- Author: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Author: Daniel Lira Serhan (https://daniellira.com/)
 - Type: Research paper
 - Course: THEO-5345: Christianity/Pluralistic World · Dallas Baptist University
 - Date: 2025-07-26
-- URL: https://danielliraserhan-rgb.github.io/ensayos/what-is-a-jew-what-is-a-christian/
-- PDF: https://danielliraserhan-rgb.github.io/ensayos/what-is-a-jew-what-is-a-christian.pdf
+- URL: https://daniellira.com/ensayos/what-is-a-jew-what-is-a-christian/
+- PDF: https://daniellira.com/ensayos/what-is-a-jew-what-is-a-christian.pdf
 - Language: en
 
 *Full text of the paper, reproduced exactly as in the original document.*

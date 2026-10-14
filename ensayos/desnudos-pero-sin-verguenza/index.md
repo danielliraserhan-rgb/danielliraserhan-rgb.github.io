@@ -1,12 +1,12 @@
 # Desnudos pero sin vergüenza: Génesis 3
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Tipo: Un trabajo exegético
 - Curso: THEO-5307 · Dallas Baptist University
 - Presentado a: Dr. Jon Choi
 - Fecha: 2024-10-13
-- URL: https://danielliraserhan-rgb.github.io/ensayos/desnudos-pero-sin-verguenza/
-- PDF: https://danielliraserhan-rgb.github.io/ensayos/desnudos-pero-sin-verguenza.pdf
+- URL: https://daniellira.com/ensayos/desnudos-pero-sin-verguenza/
+- PDF: https://daniellira.com/ensayos/desnudos-pero-sin-verguenza.pdf
 - Idioma: es-MX
 
 *Texto íntegro del ensayo, reproducido tal como aparece en el documento original.*

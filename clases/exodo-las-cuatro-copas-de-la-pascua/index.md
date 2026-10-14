@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Éxodo: Las copas, sesión extra (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/exodo-las-cuatro-copas-de-la-pascua/
+- URL: https://daniellira.com/clases/exodo-las-cuatro-copas-de-la-pascua/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Éxodo · Sesión 5 (parte 5 de 5)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/exodo-un-santuario-para-habitar-entre-ellos/
-- Siguiente serie (Levítico): https://danielliraserhan-rgb.github.io/clases/levitico-acercate-un-llamado-de-gracia/
+- Anterior: https://daniellira.com/clases/exodo-un-santuario-para-habitar-entre-ellos/
+- Siguiente serie (Levítico): https://daniellira.com/clases/levitico-acercate-un-llamado-de-gracia/
 
 ## Puntos clave
 

@@ -1,11 +1,11 @@
 # The Prophetic Poet: Jeremiah 17
 
-- Author: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Author: Daniel Lira Serhan (https://daniellira.com/)
 - Type: Exegetical paper
 - Course: 5313 Hermeneutics · Dallas Baptist University
 - Date: 2024-11-11
-- URL: https://danielliraserhan-rgb.github.io/ensayos/the-prophetic-poet/
-- PDF: https://danielliraserhan-rgb.github.io/ensayos/the-prophetic-poet.pdf
+- URL: https://daniellira.com/ensayos/the-prophetic-poet/
+- PDF: https://daniellira.com/ensayos/the-prophetic-poet.pdf
 - Language: en
 
 *Full text of the paper, reproduced exactly as in the original document.*

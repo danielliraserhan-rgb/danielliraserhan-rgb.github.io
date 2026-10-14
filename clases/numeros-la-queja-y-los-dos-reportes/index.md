@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Números: Sesión 5 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/numeros-la-queja-y-los-dos-reportes/
+- URL: https://daniellira.com/clases/numeros-la-queja-y-los-dos-reportes/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Números · Sesión 5 (parte 5 de 8)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/numeros-las-siete-lamparas/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/numeros-de-core-a-la-serpiente-de-bronce/
+- Anterior: https://daniellira.com/clases/numeros-las-siete-lamparas/
+- Siguiente: https://daniellira.com/clases/numeros-de-core-a-la-serpiente-de-bronce/
 
 ## Puntos clave
 

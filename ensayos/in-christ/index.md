@@ -1,12 +1,12 @@
 # In Christ: For the Praise of His Glory
 
-- Author: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Author: Daniel Lira Serhan (https://daniellira.com/)
 - Type: Exegetical paper
 - Course: THEO · Dallas Baptist University
 - Presented to: Dr. Brent Thomason
 - Date: 2025-04-26
-- URL: https://danielliraserhan-rgb.github.io/ensayos/in-christ/
-- PDF: https://danielliraserhan-rgb.github.io/ensayos/in-christ.pdf
+- URL: https://daniellira.com/ensayos/in-christ/
+- PDF: https://daniellira.com/ensayos/in-christ.pdf
 - Language: en
 
 *Full text of the paper, reproduced exactly as in the original document.*

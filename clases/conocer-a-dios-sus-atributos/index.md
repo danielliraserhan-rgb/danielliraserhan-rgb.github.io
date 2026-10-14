@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Doctrinas Fundamentales: Atributos de Dios (clase en vivo, Intensivo Convivencia)
-- URL: https://danielliraserhan-rgb.github.io/clases/conocer-a-dios-sus-atributos/
+- URL: https://daniellira.com/clases/conocer-a-dios-sus-atributos/
 - Idioma: es-MX
 - Serie: Doctrinas Fundamentales (parte 2 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/la-biblia-es-la-verdad/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/arrepentimiento-de-obras-muertas/
+- Anterior: https://daniellira.com/clases/la-biblia-es-la-verdad/
+- Siguiente: https://daniellira.com/clases/arrepentimiento-de-obras-muertas/
 
 ## Puntos clave
 
@@ -24,7 +24,7 @@
 
 ## Como conocer el mar
 
-En la sesión pasada vimos que [la Biblia es la verdad](https://danielliraserhan-rgb.github.io/clases/la-biblia-es-la-verdad/) porque es la palabra de Dios: Dios ha querido comunicarse con su creación, y hoy nos habla en idioma Jesús, el Verbo hecho carne. Hoy queremos entrar un poco más a la pregunta de quién es Dios.
+En la sesión pasada vimos que [la Biblia es la verdad](https://daniellira.com/clases/la-biblia-es-la-verdad/) porque es la palabra de Dios: Dios ha querido comunicarse con su creación, y hoy nos habla en idioma Jesús, el Verbo hecho carne. Hoy queremos entrar un poco más a la pregunta de quién es Dios.
 
 Y hay que decirlo desde el principio: nunca vamos a comprender a Dios por completo. Eso no significa que no podamos conocerlo verdaderamente.
 

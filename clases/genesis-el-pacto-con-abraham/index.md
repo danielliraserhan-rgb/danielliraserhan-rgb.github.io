@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Génesis: Sesión 4 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/genesis-el-pacto-con-abraham/
+- URL: https://daniellira.com/clases/genesis-el-pacto-con-abraham/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 4 (parte 4 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/genesis-de-cain-al-diluvio-y-babel/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/genesis-isaac-jacob-y-jose/
+- Anterior: https://daniellira.com/clases/genesis-de-cain-al-diluvio-y-babel/
+- Siguiente: https://daniellira.com/clases/genesis-isaac-jacob-y-jose/
 
 ## Puntos clave
 

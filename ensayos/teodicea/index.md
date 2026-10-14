@@ -1,12 +1,12 @@
 # Teodicea: Cristo, la cruz y la restauración
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Tipo: Un ensayo temático
 - Curso: THET522 · Talbot en Español (Biola University)
 - Presentado a: Dr. Octavio Esqueda
 - Fecha: 2026-06-17
-- URL: https://danielliraserhan-rgb.github.io/ensayos/teodicea/
-- PDF: https://danielliraserhan-rgb.github.io/ensayos/teodicea.pdf
+- URL: https://daniellira.com/ensayos/teodicea/
+- PDF: https://daniellira.com/ensayos/teodicea.pdf
 - Idioma: es-MX
 
 *Texto íntegro del ensayo, reproducido tal como aparece en el documento original.*

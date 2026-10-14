@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Doctrinas Fundamentales: Arrepentimiento de obras muertas (clase en vivo, Intensivo Convivencia)
-- URL: https://danielliraserhan-rgb.github.io/clases/arrepentimiento-de-obras-muertas/
+- URL: https://daniellira.com/clases/arrepentimiento-de-obras-muertas/
 - Idioma: es-MX
 - Serie: Doctrinas Fundamentales (parte 3 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/conocer-a-dios-sus-atributos/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/el-bautismo-de-la-mikve-a-cristo/
+- Anterior: https://daniellira.com/clases/conocer-a-dios-sus-atributos/
+- Siguiente: https://daniellira.com/clases/el-bautismo-de-la-mikve-a-cristo/
 
 ## Puntos clave
 
@@ -24,7 +24,7 @@
 
 ## Construir sobre la roca
 
-Hasta ahora vimos que [la Biblia es la verdad](https://danielliraserhan-rgb.github.io/clases/la-biblia-es-la-verdad/) y vimos [los atributos de Dios](https://danielliraserhan-rgb.github.io/clases/conocer-a-dios-sus-atributos/). Empezamos con esas dos clases porque estamos poniendo cimientos. Jesús lo dijo así: «Por tanto, cualquiera que oye estas palabras Mías y las pone en práctica, será semejante a un hombre sabio que edificó su casa sobre la roca» (Mat. 7:24). Cae la lluvia, soplan los vientos, y la casa no cae.
+Hasta ahora vimos que [la Biblia es la verdad](https://daniellira.com/clases/la-biblia-es-la-verdad/) y vimos [los atributos de Dios](https://daniellira.com/clases/conocer-a-dios-sus-atributos/). Empezamos con esas dos clases porque estamos poniendo cimientos. Jesús lo dijo así: «Por tanto, cualquiera que oye estas palabras Mías y las pone en práctica, será semejante a un hombre sabio que edificó su casa sobre la roca» (Mat. 7:24). Cae la lluvia, soplan los vientos, y la casa no cae.
 
 Por eso empezamos con la palabra y con quién es Dios: la doctrina no es nuestro objeto de adoración. No estudiamos para tener bonitas definiciones, sino para conocerlo más, enamorarnos más de Él y vivir conforme a su imagen. La iglesia está edificada «sobre el fundamento de los apóstoles y profetas, siendo Cristo Jesús mismo la piedra angular» (Efe. 2:20), es decir, sobre lo que se dijo antes y después de Jesús. Es una misma historia. Cada doctrina que vamos a estudiar está en el Antiguo y en el Nuevo Testamento.
 

@@ -31,4 +31,4 @@ User-agent: Applebot-Extended
 User-agent: CCBot
 Allow: /
 
-Sitemap: https://danielliraserhan-rgb.github.io/sitemap.xml
+Sitemap: https://daniellira.com/sitemap.xml

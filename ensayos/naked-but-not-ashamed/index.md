@@ -1,12 +1,12 @@
 # Naked but not Ashamed: Genesis 3
 
-- Author: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Author: Daniel Lira Serhan (https://daniellira.com/)
 - Type: Exegetical paper
 - Course: THEO-5307 · Dallas Baptist University
 - Presented to: Dr. Jon Choi
 - Date: 2024-10-13
-- URL: https://danielliraserhan-rgb.github.io/ensayos/naked-but-not-ashamed/
-- PDF: https://danielliraserhan-rgb.github.io/ensayos/naked-but-not-ashamed.pdf
+- URL: https://daniellira.com/ensayos/naked-but-not-ashamed/
+- PDF: https://daniellira.com/ensayos/naked-but-not-ashamed.pdf
 - Language: en
 
 *Full text of the paper, reproduced exactly as in the original document.*

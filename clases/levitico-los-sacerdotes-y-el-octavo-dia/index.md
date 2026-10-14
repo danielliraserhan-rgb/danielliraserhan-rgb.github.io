@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 3 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/levitico-los-sacerdotes-y-el-octavo-dia/
+- URL: https://daniellira.com/clases/levitico-los-sacerdotes-y-el-octavo-dia/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 3 (parte 3 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/levitico-los-cinco-sacrificios/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/levitico-las-fiestas-de-primavera/
+- Anterior: https://daniellira.com/clases/levitico-los-cinco-sacrificios/
+- Siguiente: https://daniellira.com/clases/levitico-las-fiestas-de-primavera/
 
 ## Puntos clave
 

@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Éxodo: Sesión 2 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/exodo-los-sacare-los-librare-los-redimire/
+- URL: https://daniellira.com/clases/exodo-los-sacare-los-librare-los-redimire/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Éxodo · Sesión 2 (parte 2 de 5)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/exodo-dios-se-presenta-por-nombre/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/exodo-el-sinai-una-boda-entre-dios-y-su-pueblo/
+- Anterior: https://daniellira.com/clases/exodo-dios-se-presenta-por-nombre/
+- Siguiente: https://daniellira.com/clases/exodo-el-sinai-una-boda-entre-dios-y-su-pueblo/
 
 ## Puntos clave
 

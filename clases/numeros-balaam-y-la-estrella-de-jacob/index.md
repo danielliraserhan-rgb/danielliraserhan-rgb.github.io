@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Números: Sesión 7 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/numeros-balaam-y-la-estrella-de-jacob/
+- URL: https://daniellira.com/clases/numeros-balaam-y-la-estrella-de-jacob/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Números · Sesión 7 (parte 7 de 8)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/numeros-de-core-a-la-serpiente-de-bronce/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/numeros-una-nueva-generacion-junto-al-jordan/
+- Anterior: https://daniellira.com/clases/numeros-de-core-a-la-serpiente-de-bronce/
+- Siguiente: https://daniellira.com/clases/numeros-una-nueva-generacion-junto-al-jordan/
 
 ## Puntos clave
 

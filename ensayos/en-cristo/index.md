@@ -1,12 +1,12 @@
 # En Cristo: La obra trinitaria a favor del creyente
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Tipo: Un ensayo exegético
 - Curso: TETH521 · Talbot School of Theology (Biola University)
 - Presentado a: PhD. Octavio Esqueda
 - Fecha: 2026-02-18
-- URL: https://danielliraserhan-rgb.github.io/ensayos/en-cristo/
-- PDF: https://danielliraserhan-rgb.github.io/ensayos/en-cristo.pdf
+- URL: https://daniellira.com/ensayos/en-cristo/
+- PDF: https://daniellira.com/ensayos/en-cristo.pdf
 - Idioma: es-MX
 
 *Texto íntegro del ensayo, reproducido tal como aparece en el documento original.*

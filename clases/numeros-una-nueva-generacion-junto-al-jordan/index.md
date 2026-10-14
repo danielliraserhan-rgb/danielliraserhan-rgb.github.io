@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Números: Sesión 8 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/numeros-una-nueva-generacion-junto-al-jordan/
+- URL: https://daniellira.com/clases/numeros-una-nueva-generacion-junto-al-jordan/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Números · Sesión 8 (parte 8 de 8)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/numeros-balaam-y-la-estrella-de-jacob/
-- Siguiente serie (Deuteronomio): https://danielliraserhan-rgb.github.io/clases/deuteronomio-recuerda-para-que-no-vuelva-a-suceder/
+- Anterior: https://daniellira.com/clases/numeros-balaam-y-la-estrella-de-jacob/
+- Siguiente serie (Deuteronomio): https://daniellira.com/clases/deuteronomio-recuerda-para-que-no-vuelva-a-suceder/
 
 ## Puntos clave
 

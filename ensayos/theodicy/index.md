@@ -1,12 +1,12 @@
 # Theodicy: The Problem of Evil
 
-- Author: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Author: Daniel Lira Serhan (https://daniellira.com/)
 - Type: Exegetical paper
 - Course: THEO-6306 · Dallas Baptist University
 - Presented to: Dr. Gregg Ammons
 - Date: 2025-05-08
-- URL: https://danielliraserhan-rgb.github.io/ensayos/theodicy/
-- PDF: https://danielliraserhan-rgb.github.io/ensayos/theodicy.pdf
+- URL: https://daniellira.com/ensayos/theodicy/
+- PDF: https://daniellira.com/ensayos/theodicy.pdf
 - Language: en
 
 *Full text of the paper, reproduced exactly as in the original document.*

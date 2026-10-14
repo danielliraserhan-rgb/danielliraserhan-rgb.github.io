@@ -4,11 +4,11 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: clase en vivo «Estructura básica de la Biblia»
-- URL: https://danielliraserhan-rgb.github.io/clases/que-es-la-biblia/
+- URL: https://daniellira.com/clases/que-es-la-biblia/
 - Idioma: es-MX
-- Clase relacionada: https://danielliraserhan-rgb.github.io/clases/la-biblia-es-la-verdad/
+- Clase relacionada: https://daniellira.com/clases/la-biblia-es-la-verdad/
 
 ## Puntos clave
 
@@ -22,7 +22,7 @@
 
 ## Lo que la Biblia dice de la Biblia
 
-Hoy no voy a tocar evidencias externas; eso lo hago en otra clase, [La Biblia es la verdad](https://danielliraserhan-rgb.github.io/clases/la-biblia-es-la-verdad/), donde comparto parte de mi testimonio. Hoy me quedo con lo que la Biblia dice de sí misma: por qué es la verdad, cómo se forma y qué tiene tu Biblia. Y quiero rescatar el amor al Antiguo Testamento, que es lo que menos leemos. Lo tratamos como el iPhone: ¿para qué quiero el 15 si ya salió el 16? Con la Biblia no funciona así.
+Hoy no voy a tocar evidencias externas; eso lo hago en otra clase, [La Biblia es la verdad](https://daniellira.com/clases/la-biblia-es-la-verdad/), donde comparto parte de mi testimonio. Hoy me quedo con lo que la Biblia dice de sí misma: por qué es la verdad, cómo se forma y qué tiene tu Biblia. Y quiero rescatar el amor al Antiguo Testamento, que es lo que menos leemos. Lo tratamos como el iPhone: ¿para qué quiero el 15 si ya salió el 16? Con la Biblia no funciona así.
 
 ## ¿Qué clase de libro es la Biblia?
 

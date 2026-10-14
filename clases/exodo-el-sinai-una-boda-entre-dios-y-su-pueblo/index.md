@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Éxodo: Sesión 3 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/exodo-el-sinai-una-boda-entre-dios-y-su-pueblo/
+- URL: https://daniellira.com/clases/exodo-el-sinai-una-boda-entre-dios-y-su-pueblo/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Éxodo · Sesión 3 (parte 3 de 5)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/exodo-los-sacare-los-librare-los-redimire/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/exodo-un-santuario-para-habitar-entre-ellos/
+- Anterior: https://daniellira.com/clases/exodo-los-sacare-los-librare-los-redimire/
+- Siguiente: https://daniellira.com/clases/exodo-un-santuario-para-habitar-entre-ellos/
 
 ## Puntos clave
 

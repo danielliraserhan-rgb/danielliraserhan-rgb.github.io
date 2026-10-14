@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 4 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/levitico-las-fiestas-de-primavera/
+- URL: https://daniellira.com/clases/levitico-las-fiestas-de-primavera/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 4 (parte 4 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/levitico-los-sacerdotes-y-el-octavo-dia/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/levitico-las-fiestas-de-otono/
+- Anterior: https://daniellira.com/clases/levitico-los-sacerdotes-y-el-octavo-dia/
+- Siguiente: https://daniellira.com/clases/levitico-las-fiestas-de-otono/
 
 ## Puntos clave
 
@@ -68,7 +68,7 @@ Vamos a la primera, Levítico 23, versículo 5:
 
 Es el *Pésaj* de Dios, de Jehová. ¿Qué significa eso? Es la Pascua del Señor, si te puedes acordar: el momento en el que el ángel de la muerte pasa sobre la casa de todo aquel que tuviera la sangre del cordero marcada en su puerta. Es la que Dios instituyó en el momento que los sacó de Egipto, la primera parte de la promesa que les da en Éxodo: yo te sacaré.
 
-Así que recuerda el Éxodo. Les recuerda el momento exacto en el que Dios cumplió su promesa, en donde Dios los sacó. Más de esto lo puedes ver en [la clase de Éxodo](https://danielliraserhan-rgb.github.io/clases/exodo-los-sacare-los-librare-los-redimire/). Es también, oficialmente, el inicio del año: para ellos es el primer mes, y el día 14 del primer mes es la Pascua del Señor. Inicia el año. ¿Por qué? Porque es el momento en el que iniciaron una nueva vida. Históricamente le recuerda al pueblo que Dios lo sacó de Egipto, salvándolo de un juicio por medio de la sangre de un cordero.
+Así que recuerda el Éxodo. Les recuerda el momento exacto en el que Dios cumplió su promesa, en donde Dios los sacó. Más de esto lo puedes ver en [la clase de Éxodo](https://daniellira.com/clases/exodo-los-sacare-los-librare-los-redimire/). Es también, oficialmente, el inicio del año: para ellos es el primer mes, y el día 14 del primer mes es la Pascua del Señor. Inicia el año. ¿Por qué? Porque es el momento en el que iniciaron una nueva vida. Históricamente le recuerda al pueblo que Dios lo sacó de Egipto, salvándolo de un juicio por medio de la sangre de un cordero.
 
 Así que cada festejo que ellos hacen recuerda la Pascua. Recuerdan las promesas de Dios, cómo Él los sacó de Egipto y cómo Él los llevó a esta tierra, y cómo puede volver a hacerlo una y otra vez. Y eventualmente apunta hacia una realidad escatológica, una realidad final en la que vendrá un nuevo Éxodo. La Biblia habla de que Dios escogió a Israel para recuperar a las demás naciones. ¿Por qué? Porque tenían que ser salvadas de una tierra que se había corrompido. El último Éxodo: la realidad del Éxodo y de la Pascua nos habla de que un día Dios nos sacará a todos los que ponemos nuestra fe en Él y creemos en Él de este mundo, de esta era maligna y corrupta, y nos llevará a la nueva era, en donde Él reinará por siempre.
 
@@ -84,7 +84,7 @@ Esta fiesta de los panes sin levadura habla de un proceso de transición entre q
 
 Pero los panes sin levadura por siete días hablan de este proceso de santificación, este proceso en que lentamente el pueblo de Israel va entendiendo quién es su Dios, hasta el momento en el que dicen: sí, soy tuyo. Cada vez que lo celebran, les recuerda a Dios librándolos y llamándolos a vivir una vida sin pecado.
 
-Y escatológicamente, ¿a qué se refiere? Hay todo un tema en el que hablamos de que, cuando Cristo regrese, o cuando venga esta semilla que hoy conocemos como Cristo, este Mesías que en ese momento no entendían quién era, hay un periodo de transición. Si la primera nos habla de que nos sacará de este mundo corrupto, la segunda nos habla del periodo de transición en el que el mundo será purificado y regresado a su estado original, en donde todo será bueno. Este concepto se le llama el milenio: son mil años en donde la tierra será restaurada a su estado original por la mano de aquel que gobernará, de [Siloh](https://danielliraserhan-rgb.github.io/clases/genesis-siloh-el-rey-que-vendra/), que vimos al final de Génesis, en Génesis 49.
+Y escatológicamente, ¿a qué se refiere? Hay todo un tema en el que hablamos de que, cuando Cristo regrese, o cuando venga esta semilla que hoy conocemos como Cristo, este Mesías que en ese momento no entendían quién era, hay un periodo de transición. Si la primera nos habla de que nos sacará de este mundo corrupto, la segunda nos habla del periodo de transición en el que el mundo será purificado y regresado a su estado original, en donde todo será bueno. Este concepto se le llama el milenio: son mil años en donde la tierra será restaurada a su estado original por la mano de aquel que gobernará, de [Siloh](https://daniellira.com/clases/genesis-siloh-el-rey-que-vendra/), que vimos al final de Génesis, en Génesis 49.
 
 Así que, recuerda: la primera, el Pésaj, la Pascua, Dios sacó a su pueblo. La segunda, los panes sin levadura, es cuando Dios libra a su pueblo. Yo te sacaré y yo te libraré.
 

@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Números: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/numeros-el-libro-del-desierto/
+- URL: https://daniellira.com/clases/numeros-el-libro-del-desierto/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Números · Sesión 1 (parte 1 de 8)
-- Serie anterior (Levítico): https://danielliraserhan-rgb.github.io/clases/levitico-todo-apunta-a-cristo/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/numeros-el-campamento-en-forma-de-cruz/
+- Serie anterior (Levítico): https://daniellira.com/clases/levitico-todo-apunta-a-cristo/
+- Siguiente: https://daniellira.com/clases/numeros-el-campamento-en-forma-de-cruz/
 
 ## Puntos clave
 

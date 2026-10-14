@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 5 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/levitico-las-fiestas-de-otono/
+- URL: https://daniellira.com/clases/levitico-las-fiestas-de-otono/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 5 (parte 5 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/levitico-las-fiestas-de-primavera/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/levitico-todo-apunta-a-cristo/
+- Anterior: https://daniellira.com/clases/levitico-las-fiestas-de-primavera/
+- Siguiente: https://daniellira.com/clases/levitico-todo-apunta-a-cristo/
 
 ## Puntos clave
 

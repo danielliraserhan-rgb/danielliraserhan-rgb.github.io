@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Génesis: Sesión 3 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/genesis-de-cain-al-diluvio-y-babel/
+- URL: https://daniellira.com/clases/genesis-de-cain-al-diluvio-y-babel/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 3 (parte 3 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/genesis-la-caida-y-la-promesa-de-la-semilla/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/genesis-el-pacto-con-abraham/
+- Anterior: https://daniellira.com/clases/genesis-la-caida-y-la-promesa-de-la-semilla/
+- Siguiente: https://daniellira.com/clases/genesis-el-pacto-con-abraham/
 
 ## Puntos clave
 

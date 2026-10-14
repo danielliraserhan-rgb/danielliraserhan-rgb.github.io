@@ -4,12 +4,12 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Doctrinas Fundamentales: Resurrección de los muertos (clase en vivo, Intensivo Convivencia)
-- URL: https://danielliraserhan-rgb.github.io/clases/la-resurreccion-de-los-muertos/
+- URL: https://daniellira.com/clases/la-resurreccion-de-los-muertos/
 - Idioma: es-MX
 - Serie: Doctrinas Fundamentales (parte 6 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/la-imposicion-de-manos/
+- Anterior: https://daniellira.com/clases/la-imposicion-de-manos/
 
 ## Puntos clave
 

@@ -1,12 +1,12 @@
 # Book Review: The Throne, the Lamb and the Dragon
 
-- Author: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Author: Daniel Lira Serhan (https://daniellira.com/)
 - Type: Book review
 - Course: New Testament Literature and Interpretation · Dallas Baptist University, Graduate School of Ministry
 - Presented to: Dr. Brent A. Thomason
 - Date: 2025-03-23
-- URL: https://danielliraserhan-rgb.github.io/ensayos/book-review-throne-lamb-dragon/
-- PDF: https://danielliraserhan-rgb.github.io/ensayos/book-review-throne-lamb-dragon.pdf
+- URL: https://daniellira.com/ensayos/book-review-throne-lamb-dragon/
+- PDF: https://daniellira.com/ensayos/book-review-throne-lamb-dragon.pdf
 - Language: en
 
 *Full text of the paper, reproduced exactly as in the original document.*

@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Números: Sesión 6 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/numeros-de-core-a-la-serpiente-de-bronce/
+- URL: https://daniellira.com/clases/numeros-de-core-a-la-serpiente-de-bronce/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Números · Sesión 6 (parte 6 de 8)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/numeros-la-queja-y-los-dos-reportes/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/numeros-balaam-y-la-estrella-de-jacob/
+- Anterior: https://daniellira.com/clases/numeros-la-queja-y-los-dos-reportes/
+- Siguiente: https://daniellira.com/clases/numeros-balaam-y-la-estrella-de-jacob/
 
 ## Puntos clave
 

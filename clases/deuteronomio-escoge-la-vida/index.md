@@ -4,12 +4,12 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Deuteronomio: Sesión 5 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/deuteronomio-escoge-la-vida/
+- URL: https://daniellira.com/clases/deuteronomio-escoge-la-vida/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Deuteronomio · Sesión 5 (parte 5 de 5)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/deuteronomio-un-rey-y-un-profeta-como-moises/
+- Anterior: https://daniellira.com/clases/deuteronomio-un-rey-y-un-profeta-como-moises/
 
 ## Puntos clave
 

@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 2 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/levitico-los-cinco-sacrificios/
+- URL: https://daniellira.com/clases/levitico-los-cinco-sacrificios/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 2 (parte 2 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/levitico-acercate-un-llamado-de-gracia/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/levitico-los-sacerdotes-y-el-octavo-dia/
+- Anterior: https://daniellira.com/clases/levitico-acercate-un-llamado-de-gracia/
+- Siguiente: https://daniellira.com/clases/levitico-los-sacerdotes-y-el-octavo-dia/
 
 ## Puntos clave
 

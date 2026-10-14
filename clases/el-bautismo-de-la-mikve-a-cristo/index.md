@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Doctrinas Fundamentales, sesión 5: La doctrina de los bautismos (clase en vivo, Intensivo Convivencia)
-- URL: https://danielliraserhan-rgb.github.io/clases/el-bautismo-de-la-mikve-a-cristo/
+- URL: https://daniellira.com/clases/el-bautismo-de-la-mikve-a-cristo/
 - Idioma: es-MX
 - Serie: Doctrinas Fundamentales (parte 4 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/arrepentimiento-de-obras-muertas/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/la-imposicion-de-manos/
+- Anterior: https://daniellira.com/clases/arrepentimiento-de-obras-muertas/
+- Siguiente: https://daniellira.com/clases/la-imposicion-de-manos/
 
 ## Puntos clave
 
@@ -24,7 +24,7 @@
 
 ## Ser sumergido
 
-La clase completa se llama Doctrinas Fundamentales, y la sacamos de Hebreos 6. Ya vimos el [arrepentimiento de obras muertas](https://danielliraserhan-rgb.github.io/clases/arrepentimiento-de-obras-muertas/) y la fe en Dios. Hoy toca lo que Hebreos llama «la enseñanza sobre lavamientos» (Heb. 6:2), que comúnmente conocemos como la doctrina de los bautismos.
+La clase completa se llama Doctrinas Fundamentales, y la sacamos de Hebreos 6. Ya vimos el [arrepentimiento de obras muertas](https://daniellira.com/clases/arrepentimiento-de-obras-muertas/) y la fe en Dios. Hoy toca lo que Hebreos llama «la enseñanza sobre lavamientos» (Heb. 6:2), que comúnmente conocemos como la doctrina de los bautismos.
 
 ¿Por qué se llama bautismo si dice lavamientos? Porque la Biblia no se escribió en español, y la palabra griega es *bautismos*. Bautismo es una transliteración. Pero no es un lavamiento como lavarte las manos, sino una inmersión completa en un cuerpo de agua que te limpia. En palabras de hoy: eres sumergido.
 
@@ -66,7 +66,7 @@ Por eso, cuando Juan bautizaba, siempre apuntaba a esa mikve: al Mesías. El jud
 
 ## El bautismo y el nuevo nacimiento
 
-Eso es el nuevo nacimiento, que platicamos la sesión pasada: pasamos de muertos, excluidos e hijos del diablo, a través de Cristo, la gran mikve, a salir llenos de vida, sellados por el Espíritu Santo, sabiendo que somos hijos de Dios. El bautismo representa ese nacer de nuevo. (Lo desarrollamos también en el libro [*Nacer de nuevo*](https://danielliraserhan-rgb.github.io/#libros), que explica de dónde viene el bautismo en agua y por qué bautizarse; puedes [descargarlo en PDF](https://danielliraserhan-rgb.github.io/libros/nacer-de-nuevo.pdf).)
+Eso es el nuevo nacimiento, que platicamos la sesión pasada: pasamos de muertos, excluidos e hijos del diablo, a través de Cristo, la gran mikve, a salir llenos de vida, sellados por el Espíritu Santo, sabiendo que somos hijos de Dios. El bautismo representa ese nacer de nuevo. (Lo desarrollamos también en el libro [*Nacer de nuevo*](https://daniellira.com/#libros), que explica de dónde viene el bautismo en agua y por qué bautizarse; puedes [descargarlo en PDF](https://daniellira.com/libros/nacer-de-nuevo.pdf).)
 
 Pero quiero decirte algo: el nuevo nacimiento y su seguridad no dependen del bautismo. Tu matrimonio no depende del anillo. Hubo un pacto en la cruz, por la sangre de Cristo con la que fuiste comprado. Cuando te bautizas, testificas que eso ya sucedió en tu vida. Y por eso lo hacemos lo más rápido que podemos, como el eunuco: “¿Qué me impide bautizarme hoy?”. Si alguna vez te comprometiste, sabes que ya quieres que llegue la boda.
 

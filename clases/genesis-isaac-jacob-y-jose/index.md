@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Génesis: Sesión 5 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/genesis-isaac-jacob-y-jose/
+- URL: https://daniellira.com/clases/genesis-isaac-jacob-y-jose/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 5 (parte 5 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/genesis-el-pacto-con-abraham/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/genesis-siloh-el-rey-que-vendra/
+- Anterior: https://daniellira.com/clases/genesis-el-pacto-con-abraham/
+- Siguiente: https://daniellira.com/clases/genesis-siloh-el-rey-que-vendra/
 
 ## Puntos clave
 

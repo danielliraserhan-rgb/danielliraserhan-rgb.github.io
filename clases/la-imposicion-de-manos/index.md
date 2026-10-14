@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Doctrinas Fundamentales, sesión 6: Imposición de manos (clase en vivo, Intensivo Convivencia)
-- URL: https://danielliraserhan-rgb.github.io/clases/la-imposicion-de-manos/
+- URL: https://daniellira.com/clases/la-imposicion-de-manos/
 - Idioma: es-MX
 - Serie: Doctrinas Fundamentales (parte 5 de 6)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/el-bautismo-de-la-mikve-a-cristo/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/la-resurreccion-de-los-muertos/
+- Anterior: https://daniellira.com/clases/el-bautismo-de-la-mikve-a-cristo/
+- Siguiente: https://daniellira.com/clases/la-resurreccion-de-los-muertos/
 
 ## Puntos clave
 
@@ -26,7 +26,7 @@
 
 «La fe es la certeza de lo que se espera, la convicción de lo que no se ve» (Heb. 11:1). Debemos estar ciertos de la esperanza en la que vivimos. Esa idea religiosa de que la fe es ciega se ha usado para manipular a la gente. Tú puedes tomar tu Biblia y comprobar tu fe.
 
-Vimos que [la Biblia es la verdad](https://danielliraserhan-rgb.github.io/clases/la-biblia-es-la-verdad/) porque es la palabra de Dios. No adoramos la tinta ni la hoja; mi Biblia está bien rayada y Dios no se ofende. Lo que contiene es la manifestación del Verbo, que es Jesús, y al leerla lo vemos como a los ojos: no al del pesebre, sino al que viene de regreso con ojos de fuego. Y al leerla somos purificados, como si Jesús nos lavara los pies. Siempre que lo digo me siento como Pedro: “No”. “Sí”. “No”. El punto es que dejamos que Él mire nuestra alma y la penetre, y así podemos escucharlo.
+Vimos que [la Biblia es la verdad](https://daniellira.com/clases/la-biblia-es-la-verdad/) porque es la palabra de Dios. No adoramos la tinta ni la hoja; mi Biblia está bien rayada y Dios no se ofende. Lo que contiene es la manifestación del Verbo, que es Jesús, y al leerla lo vemos como a los ojos: no al del pesebre, sino al que viene de regreso con ojos de fuego. Y al leerla somos purificados, como si Jesús nos lavara los pies. Siempre que lo digo me siento como Pedro: “No”. “Sí”. “No”. El punto es que dejamos que Él mire nuestra alma y la penetre, y así podemos escucharlo.
 
 ## ¿Cómo sé que Dios me está hablando?
 
@@ -58,9 +58,9 @@ Mi recomendación: si vas a leer devocionalmente, usa la que más te guste. Si v
 
 ## Obras muertas, diezmo y bautismo
 
-Vimos que [las obras muertas](https://danielliraserhan-rgb.github.io/clases/arrepentimiento-de-obras-muertas/) son todo lo que hago para ganar el favor de Dios o disminuir su ira. “Si doy mi diezmo, me va a regresar el triple”; o la frase gringa: “Si ofrendo mi Toyota, me va a dar un Ferrari”. Dios sí bendice, y cuando te desprendes de tu dinero, sí multiplica. Pero no es una transacción. Desprenderte de tu dinero le dice al mundo, a las potestades y a la gente que te rodea: “El dinero no es mi Dios”, y Dios honra eso. Si das tu diezmo para que te lo devuelva, no te lo va a devolver. Igual con tu tiempo: Dios no va a hacer días de más de 24 horas porque vengas a servir. Si sirves para que te bendiga, es una obra muerta.
+Vimos que [las obras muertas](https://daniellira.com/clases/arrepentimiento-de-obras-muertas/) son todo lo que hago para ganar el favor de Dios o disminuir su ira. “Si doy mi diezmo, me va a regresar el triple”; o la frase gringa: “Si ofrendo mi Toyota, me va a dar un Ferrari”. Dios sí bendice, y cuando te desprendes de tu dinero, sí multiplica. Pero no es una transacción. Desprenderte de tu dinero le dice al mundo, a las potestades y a la gente que te rodea: “El dinero no es mi Dios”, y Dios honra eso. Si das tu diezmo para que te lo devuelva, no te lo va a devolver. Igual con tu tiempo: Dios no va a hacer días de más de 24 horas porque vengas a servir. Si sirves para que te bendiga, es una obra muerta.
 
-La fe en Dios es como lealtad a un rey: cambiamos de camino para unirnos al Rey que siempre ha sido el Rey, Cristo Jesús, y en ese proceso nacemos de nuevo. Lo representamos con [el bautismo](https://danielliraserhan-rgb.github.io/clases/el-bautismo-de-la-mikve-a-cristo/). Y la pregunta obligada: “¿Me tengo que volver a bautizar?”. Si te dijeron “hay bautismos, anótate” y solo te echaste el chapuzón sin saber qué pasaba, no te bautizaste. Pero si conscientemente dijiste “creo en Jesús y quiero expresarlo públicamente”, no importa si te alejaste y regresaste: no te tienes que volver a bautizar. Es como Pedro: “Entonces lávame completo”. “No, solo los pies; regresa a la iglesia” (ver Jn. 13:9–10).
+La fe en Dios es como lealtad a un rey: cambiamos de camino para unirnos al Rey que siempre ha sido el Rey, Cristo Jesús, y en ese proceso nacemos de nuevo. Lo representamos con [el bautismo](https://daniellira.com/clases/el-bautismo-de-la-mikve-a-cristo/). Y la pregunta obligada: “¿Me tengo que volver a bautizar?”. Si te dijeron “hay bautismos, anótate” y solo te echaste el chapuzón sin saber qué pasaba, no te bautizaste. Pero si conscientemente dijiste “creo en Jesús y quiero expresarlo públicamente”, no importa si te alejaste y regresaste: no te tienes que volver a bautizar. Es como Pedro: “Entonces lávame completo”. “No, solo los pies; regresa a la iglesia” (ver Jn. 13:9–10).
 
 A los papás: si tu hijo se bautizó a los 10 o a los 13 años, y hoy te dice “quiero bautizarme, porque de chiquito no sabía lo que significaba”, déjalo. No le va a pasar nada. Y hay quien a los seis años ya sabía quién era Jesús; esa persona no necesita volver a bautizarse.
 

@@ -4,13 +4,13 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Números: Sesión 2 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/numeros-el-campamento-en-forma-de-cruz/
+- URL: https://daniellira.com/clases/numeros-el-campamento-en-forma-de-cruz/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Números · Sesión 2 (parte 2 de 8)
-- Anterior: https://danielliraserhan-rgb.github.io/clases/numeros-el-libro-del-desierto/
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/numeros-unidos-pero-diversos-en-funcion/
+- Anterior: https://daniellira.com/clases/numeros-el-libro-del-desierto/
+- Siguiente: https://daniellira.com/clases/numeros-unidos-pero-diversos-en-funcion/
 
 ## Puntos clave
 

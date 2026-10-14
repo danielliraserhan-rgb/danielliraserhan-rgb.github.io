@@ -4,12 +4,12 @@
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
-- Autor: Daniel Lira Serhan (https://danielliraserhan-rgb.github.io/)
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
 - Fuente: Orígenes (Estudio 12:2) · Génesis: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
-- URL: https://danielliraserhan-rgb.github.io/clases/genesis-creados-para-conocer-y-amar-a-dios/
+- URL: https://daniellira.com/clases/genesis-creados-para-conocer-y-amar-a-dios/
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 1 (parte 1 de 6)
-- Siguiente: https://danielliraserhan-rgb.github.io/clases/genesis-la-caida-y-la-promesa-de-la-semilla/
+- Siguiente: https://daniellira.com/clases/genesis-la-caida-y-la-promesa-de-la-semilla/
 
 ## Puntos clave
 
