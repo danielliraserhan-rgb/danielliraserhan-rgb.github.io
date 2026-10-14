@@ -291,3 +291,6 @@ footer .legal .wrap{display:block;padding-top:16px;padding-bottom:18px;color:#9c
  .doc .sheet{box-shadow:none;border:0;padding:0}
 }
 #clases,#ministerio{--acento:var(--olivo)}
+.yt-lite img.yt-mark{position:absolute;top:16px;right:16px;left:auto;width:64px;height:64px;object-fit:contain;box-shadow:0 0 0 1px var(--filete)}
+.video{border:1px solid var(--tinta);box-shadow:8px 8px 0 -1px var(--vitela),8px 8px 0 0 var(--filete)}
+@media (max-width:860px){.yt-lite img.yt-mark{width:48px;height:48px;top:12px;right:12px}}
