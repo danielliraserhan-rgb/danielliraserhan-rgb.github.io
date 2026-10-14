@@ -10,6 +10,7 @@
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Números · Sesión 8 (parte 8 de 8)
 - Anterior: https://danielliraserhan-rgb.github.io/clases/numeros-balaam-y-la-estrella-de-jacob/
+- Siguiente serie (Deuteronomio): https://danielliraserhan-rgb.github.io/clases/deuteronomio-recuerda-para-que-no-vuelva-a-suceder/
 
 ## Puntos clave
 
