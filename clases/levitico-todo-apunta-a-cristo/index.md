@@ -10,6 +10,7 @@
 - Idioma: es-MX
 - Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 6 (parte 6 de 6)
 - Anterior: https://danielliraserhan-rgb.github.io/clases/levitico-las-fiestas-de-otono/
+- Siguiente serie (Números): https://danielliraserhan-rgb.github.io/clases/numeros-el-libro-del-desierto/
 
 ## Puntos clave
 
