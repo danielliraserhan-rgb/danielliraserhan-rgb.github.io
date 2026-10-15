@@ -14,6 +14,7 @@ Cómo usar este sitio:
 - [Página principal](https://daniellira.com/): biografía, historia personal, videos, libros, ensayos, clases y contacto
 - [Ensayos](https://daniellira.com/ensayos/): lista de ensayos académicos (español e inglés)
 - [Clases adaptadas](https://daniellira.com/clases/): clases en vivo adaptadas a texto
+- [Predicaciones](https://daniellira.com/predicaciones/): predicaciones y conversaciones en Convivencia Familiar Monterrey, con video y texto adaptado
 
 ## Clases adaptadas
 
@@ -92,6 +93,16 @@ Serie "Orígenes (Estudio 12:2) · Deuteronomio" (clases sobre el libro de Deute
 
 - [Orígenes: El evangelio en Génesis](https://daniellira.com/#libros): volumen I de la serie Orígenes, de Daniel Lira. Segunda edición en proceso editorial, disponible en 2027
 - [Nacer de nuevo (PDF)](https://daniellira.com/libros/nacer-de-nuevo.pdf): Luis Ortiz, Daniel Lira y Rodrigo Weigend, segunda edición, 2026
+
+## Predicaciones
+
+Predicaciones (y conversaciones con el pastor Luis Ortiz) en Convivencia Familiar Monterrey, adaptadas con ayuda de IA a partir de la transcripción del video; cada página incluye el video original.
+
+- [Dignidad: Zaqueo y la restitución](https://daniellira.com/predicaciones/dignidad-zaqueo-y-la-restitucion/index.md): Jesús vio a Zaqueo, le devolvió su dignidad, y el fruto fue la restitución (2025-12-14) (HTML: https://daniellira.com/predicaciones/dignidad-zaqueo-y-la-restitucion/)
+- [¿Conoces verdaderamente a Dios?](https://daniellira.com/predicaciones/conoces-verdaderamente-a-dios/index.md): Cuando no deseo a Dios, segunda parte: nacer de nuevo, el Espíritu Santo y el amor de Dios que nos desea (2025-10-15) (HTML: https://daniellira.com/predicaciones/conoces-verdaderamente-a-dios/)
+- [Como árboles: Salmo 1](https://daniellira.com/predicaciones/como-arboles-salmo-1/index.md): Morir, echar raíces en el río de agua viva, crecer y dar fruto (2025-10-05) (HTML: https://daniellira.com/predicaciones/como-arboles-salmo-1/)
+- [Cuando no deseo a Dios](https://daniellira.com/predicaciones/cuando-no-deseo-a-dios/index.md): Una conversación sobre por qué no deseamos a Dios y qué hacer en esas temporadas (2025-10-01) (HTML: https://daniellira.com/predicaciones/cuando-no-deseo-a-dios/)
+- [Tetelestai: ecos de la cruz](https://daniellira.com/predicaciones/tetelestai-ecos-de-la-cruz/index.md): «Consumado es»: lo que Cristo logró en la cruz sobre el pecado, la muerte, el diablo y nuestra vergüenza (2025-05-25) (HTML: https://daniellira.com/predicaciones/tetelestai-ecos-de-la-cruz/)
 
 ## Optional
 

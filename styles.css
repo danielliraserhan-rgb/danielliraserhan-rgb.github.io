@@ -294,3 +294,7 @@ footer .legal .wrap{display:block;padding-top:16px;padding-bottom:18px;color:#9c
 .yt-lite img.yt-mark{position:absolute;top:16px;right:16px;left:auto;width:64px;height:64px;object-fit:contain;box-shadow:0 0 0 1px var(--filete)}
 .video{border:1px solid var(--tinta);box-shadow:8px 8px 0 -1px var(--vitela),8px 8px 0 0 var(--filete)}
 @media (max-width:860px){.yt-lite img.yt-mark{width:48px;height:48px;top:12px;right:12px}}
+/* Predicaciones */
+.cards.pred .card .video{grid-column:2;margin:14px 0 4px;max-width:640px}
+.article>.video{margin:0 0 28px}
+@media (max-width:860px){.cards.pred .card .video{grid-column:1 / -1}}
