@@ -312,6 +312,6 @@ footer .legal .wrap{display:block;padding-top:16px;padding-bottom:18px;color:#9c
 .carta label.vh{position:absolute;width:1px;height:1px;overflow:hidden;clip:rect(0 0 0 0)}
 .carta input[type=email]{flex:1 1 240px;padding:12px 14px;border:1px solid var(--tinta);background:var(--vitela);font:inherit;font-size:16px;color:var(--tinta)}
 .carta input[type=email]:focus{outline:2px solid var(--rubrica);outline-offset:1px}
-.carta button{cursor:pointer;font-family:inherit}
+.carta button{cursor:pointer;font-family:var(--mono);letter-spacing:.04em}
 .carta-wrap{display:flex;justify-content:center}
 .lista-carta{padding-left:1.2em}.lista-carta li{margin:0 0 10px}
