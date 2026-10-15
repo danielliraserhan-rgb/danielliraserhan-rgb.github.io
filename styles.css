@@ -301,3 +301,17 @@ footer .legal .wrap{display:block;padding-top:16px;padding-bottom:18px;color:#9c
 
 .historia-video{margin-top:48px;align-items:center}
 .ancla{display:block;position:relative;top:-80px;visibility:hidden}
+
+/* Carta (newsletter + lista de espera Orígenes) — borrador */
+.carta{border-top:1px solid var(--filete);border-bottom:1px solid var(--filete);background:var(--pergamino);padding:36px 32px;margin:48px 0;max-width:var(--medida)}
+.carta .mono{display:block;font-family:var(--mono);font-size:12.5px;letter-spacing:.08em;text-transform:uppercase;color:var(--rubrica);margin-bottom:12px}
+.carta h2,.carta h3{font-family:var(--serif);font-weight:500;font-size:1.7rem;line-height:1.2;margin:0 0 12px;color:var(--tinta)}
+.carta p{margin:0 0 18px;color:var(--tinta)}
+.carta p.nota{font-size:15px;color:var(--piedra);margin:14px 0 0}
+.carta form{display:flex;gap:10px;flex-wrap:wrap}
+.carta label.vh{position:absolute;width:1px;height:1px;overflow:hidden;clip:rect(0 0 0 0)}
+.carta input[type=email]{flex:1 1 240px;padding:12px 14px;border:1px solid var(--tinta);background:var(--vitela);font:inherit;font-size:16px;color:var(--tinta)}
+.carta input[type=email]:focus{outline:2px solid var(--rubrica);outline-offset:1px}
+.carta button{cursor:pointer;font-family:inherit}
+.carta-wrap{display:flex;justify-content:center}
+.lista-carta{padding-left:1.2em}.lista-carta li{margin:0 0 10px}
