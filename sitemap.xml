@@ -2,7 +2,7 @@
 <urlset xmlns="http://www.sitemaps.org/schemas/sitemap/0.9" xmlns:xhtml="http://www.w3.org/1999/xhtml">
 <url>
   <loc>https://daniellira.com/</loc>
-  <lastmod>2026-10-13</lastmod>
+  <lastmod>2026-10-22</lastmod>
 </url>
 <url>
   <loc>https://daniellira.com/ensayos/</loc>
@@ -10,7 +10,7 @@
 </url>
 <url>
   <loc>https://daniellira.com/clases/</loc>
-  <lastmod>2026-10-13</lastmod>
+  <lastmod>2026-10-22</lastmod>
 </url>
 <url>
   <loc>https://daniellira.com/clases/la-biblia-es-la-verdad/</loc>
@@ -297,5 +297,17 @@
 <url>
   <loc>https://daniellira.com/privacidad/</loc>
   <lastmod>2026-10-15</lastmod>
+</url>
+<url>
+  <loc>https://daniellira.com/mi-historia/</loc>
+  <lastmod>2026-10-22</lastmod>
+</url>
+<url>
+  <loc>https://daniellira.com/origenes/</loc>
+  <lastmod>2026-10-22</lastmod>
+</url>
+<url>
+  <loc>https://daniellira.com/newsletter/</loc>
+  <lastmod>2026-10-22</lastmod>
 </url>
 </urlset>

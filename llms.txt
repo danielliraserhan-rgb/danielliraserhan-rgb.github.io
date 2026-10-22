@@ -1,22 +1,25 @@
 # Daniel Lira Serhan
 
-> Vive en Monterrey, Nuevo León, México. Autor de la serie Orígenes (cinco libros sobre la Torá; el primero es "Orígenes: El evangelio en Génesis", cuya edición 2 está por publicarse) y coautor de "Nacer de nuevo" con Luis Ortiz y Rodrigo Weigend. Estudiante de maestría en Talbot School of Theology (Biola University); estudió en Dallas Baptist University. Dirige Intensivo Convivencia, programa de discipulado para jóvenes, y sirve en la iglesia Convivencia Familiar Monterrey. Sitio principalmente en español (es-MX); algunos ensayos en inglés.
+> Hijo de Dios, esposo de Lily y papá de 3. Pastor de Jóvenes en Convivencia Familiar Monterrey (Monterrey, Nuevo León, México). Autor de la serie Orígenes (cinco libros sobre la Torá; el primero es "Orígenes: El evangelio en Génesis", cuya edición 2 está por publicarse) y coautor de "Nacer de nuevo" con Luis Ortiz y Rodrigo Weigend. Estudiante de maestría en Talbot School of Theology (Biola University); estudió en Dallas Baptist University. Dirige Intensivo Convivencia, programa de discipulado para jóvenes, y sirve en la iglesia Convivencia Familiar Monterrey. Sitio principalmente en español (es-MX); algunos ensayos en inglés.
 
 Cómo usar este sitio:
 
 - Cada ensayo y clase tiene una página HTML con el texto completo, notas al pie y bibliografía, y una versión en Markdown (mismo URL + `index.md`). El PDF original sigue disponible.
 - Los "Ensayos" son trabajos académicos escritos por Daniel Lira Serhan; se reproducen íntegros y sin cambios, tal como aparecen en los documentos originales; no contienen texto generado por IA.
-- Las "Clases adaptadas" son clases en vivo convertidas en artículos con ayuda de IA y revisadas por el autor. Conservan el tono oral de la clase.
+- Las "Clases" son clases en vivo convertidas en artículos con ayuda de IA y revisadas por el autor. Conservan el tono oral de la clase.
 - Al citar, atribuir a "Daniel Lira Serhan" y enlazar la página HTML. Texto completo de todo el contenido: https://daniellira.com/llms-full.txt
 
 ## Sitio
 
-- [Página principal](https://daniellira.com/): biografía, historia personal, libros, ensayos, clases y contacto
+- [Página principal](https://daniellira.com/): empieza aquí (3 pasos), quién soy, Orígenes, libros y biblioteca
+- [Mi historia](https://daniellira.com/mi-historia/): del islam y el ateísmo a Cristo
+- [Orígenes](https://daniellira.com/origenes/): la serie de cinco libros sobre la Torá
+- [Cartas](https://daniellira.com/newsletter/): una lectura por semana por correo
 - [Ensayos](https://daniellira.com/ensayos/): lista de ensayos académicos (español e inglés)
-- [Clases adaptadas](https://daniellira.com/clases/): clases en vivo adaptadas a texto
+- [Clases](https://daniellira.com/clases/): clases en vivo adaptadas a texto
 - [Predicaciones](https://daniellira.com/predicaciones/): predicaciones y conversaciones en Convivencia Familiar Monterrey, con video y texto adaptado
 
-## Clases adaptadas
+## Clases
 
 - [La Biblia es la verdad: de dónde viene mi certeza](https://daniellira.com/clases/la-biblia-es-la-verdad/index.md): testimonio del islam y el ateísmo a Cristo, y tres pruebas de la verdad que la Biblia pasa (HTML: https://daniellira.com/clases/la-biblia-es-la-verdad/)
 - [¿Qué es la Biblia? La estructura básica de la Biblia](https://daniellira.com/clases/que-es-la-biblia/index.md): qué es la Biblia, por qué es la palabra de Dios y la estructura del Tanaj (Torá, Profetas y Escritos) (HTML: https://daniellira.com/clases/que-es-la-biblia/)
@@ -29,7 +32,7 @@ Serie "Doctrinas Fundamentales" (Intensivo Convivencia, basada en Hebreos 6:1–
 - [La imposición de manos](https://daniellira.com/clases/la-imposicion-de-manos/index.md): cómo habla Dios, repaso de doctrinas y los usos de la imposición de manos en el Antiguo y el Nuevo Testamento (HTML: https://daniellira.com/clases/la-imposicion-de-manos/)
 - [La resurrección de los muertos](https://daniellira.com/clases/la-resurreccion-de-los-muertos/index.md): la resurrección física, el fin de esta era y la restauración de todas las cosas (HTML: https://daniellira.com/clases/la-resurreccion-de-los-muertos/)
 
-Serie "Orígenes (Estudio 12:2) · Génesis" (clases sobre el libro de Génesis; en orden):
+Serie "Génesis" (clases sobre el libro de Génesis; en orden):
 
 - [Génesis: creados para conocer y amar a Dios](https://daniellira.com/clases/genesis-creados-para-conocer-y-amar-a-dios/index.md): introducción a la serie y Génesis 1–2: la creación, la imagen de Dios y los dos árboles (HTML: https://daniellira.com/clases/genesis-creados-para-conocer-y-amar-a-dios/)
 - [Génesis: la caída y la promesa de la semilla](https://daniellira.com/clases/genesis-la-caida-y-la-promesa-de-la-semilla/index.md): Génesis 2–3: la caída, el protoevangelio de Génesis 3:15 y el primer sacrificio (HTML: https://daniellira.com/clases/genesis-la-caida-y-la-promesa-de-la-semilla/)
@@ -38,7 +41,7 @@ Serie "Orígenes (Estudio 12:2) · Génesis" (clases sobre el libro de Génesis;
 - [Génesis: Isaac, Jacob y José](https://daniellira.com/clases/genesis-isaac-jacob-y-jose/index.md): Génesis 25–45: la promesa a Isaac, Jacob convertido en Israel y la fidelidad de José (HTML: https://daniellira.com/clases/genesis-isaac-jacob-y-jose/)
 - [Génesis: Siloh, el rey que vendrá](https://daniellira.com/clases/genesis-siloh-el-rey-que-vendra/index.md): cierre de Génesis: repaso del evangelio en el libro y la promesa de Siloh en Génesis 49:8–10 (HTML: https://daniellira.com/clases/genesis-siloh-el-rey-que-vendra/)
 
-Serie "Orígenes (Estudio 12:2) · Éxodo" (clases sobre el libro de Éxodo; en orden):
+Serie "Éxodo" (clases sobre el libro de Éxodo; en orden):
 
 - [Éxodo: Dios se presenta por nombre](https://daniellira.com/clases/exodo-dios-se-presenta-por-nombre/index.md): introducción a Éxodo y capítulos 1 al 5: la opresión en Egipto, Moisés sacado de las aguas, la zarza que arde y Dios que se presenta por nombre: YO SOY EL QUE SOY. (HTML: https://daniellira.com/clases/exodo-dios-se-presenta-por-nombre/)
 - [Éxodo: yo los sacaré, los libraré y los redimiré](https://daniellira.com/clases/exodo-los-sacare-los-librare-los-redimire/index.md): Éxodo 6 al 17: las cuatro promesas de Dios a Israel, las diez plagas contra los dioses de Egipto, la Pascua, el mar abierto y la provisión en el desierto. (HTML: https://daniellira.com/clases/exodo-los-sacare-los-librare-los-redimire/)
@@ -46,7 +49,7 @@ Serie "Orígenes (Estudio 12:2) · Éxodo" (clases sobre el libro de Éxodo; en 
 - [Éxodo: un santuario para habitar entre ellos](https://daniellira.com/clases/exodo-un-santuario-para-habitar-entre-ellos/index.md): Éxodo 25 al 40: Dios pide un santuario para habitar entre su pueblo, el becerro de oro, Moisés que habla con Dios como un amigo y la gloria que llena el tabernáculo. (HTML: https://daniellira.com/clases/exodo-un-santuario-para-habitar-entre-ellos/)
 - [Éxodo: las cuatro copas de la Pascua](https://daniellira.com/clases/exodo-las-cuatro-copas-de-la-pascua/index.md): sesión extra de Éxodo: las cuatro copas de la cena de Pascua y las cuatro promesas de Éxodo 6, la copa que Jesús levantó en la última cena y la que dejó en la mesa. (HTML: https://daniellira.com/clases/exodo-las-cuatro-copas-de-la-pascua/)
 
-Serie "Orígenes (Estudio 12:2) · Levítico" (clases sobre el libro de Levítico; en orden):
+Serie "Levítico" (clases sobre el libro de Levítico; en orden):
 
 - [Levítico: acércate, un llamado de gracia](https://daniellira.com/clases/levitico-acercate-un-llamado-de-gracia/index.md): introducción a Levítico: Dios llama a Moisés desde la tienda de reunión, «acércate», y da a Israel sacramentos, señales externas de una gracia interna, para habitar con Él. (HTML: https://daniellira.com/clases/levitico-acercate-un-llamado-de-gracia/)
 - [Levítico: los cinco sacrificios](https://daniellira.com/clases/levitico-los-cinco-sacrificios/index.md): Levítico 1 al 5: el holocausto o sacrificio de ascensión, la ofrenda de cereal, la ofrenda de paz (shalom) y las ofrendas por el pecado y la culpa, y por qué la ley no era difícil de cumplir. (HTML: https://daniellira.com/clases/levitico-los-cinco-sacrificios/)
@@ -55,7 +58,7 @@ Serie "Orígenes (Estudio 12:2) · Levítico" (clases sobre el libro de Levític
 - [Levítico: las fiestas de otoño y el octavo día](https://daniellira.com/clases/levitico-las-fiestas-de-otono/index.md): Levítico 16 y 23: la fiesta de las Trompetas, el Día de la Expiación con sus dos machos cabríos, la fiesta de los Tabernáculos y el octavo día como imagen de la eternidad con Dios. (HTML: https://daniellira.com/clases/levitico-las-fiestas-de-otono/)
 - [Levítico: todo apunta a Cristo](https://daniellira.com/clases/levitico-todo-apunta-a-cristo/index.md): cierre de Levítico: Dios ahora habla por su Hijo. Cristo en los cinco sacrificios, como Sumo Sacerdote en la brecha y en cada fiesta, en su primera y su segunda venida. (HTML: https://daniellira.com/clases/levitico-todo-apunta-a-cristo/)
 
-Serie "Orígenes (Estudio 12:2) · Números" (clases sobre el libro de Números; en orden):
+Serie "Números" (clases sobre el libro de Números; en orden):
 
 - [Números: el libro del desierto](https://daniellira.com/clases/numeros-el-libro-del-desierto/index.md): introducción a Números: el libro del desierto, su estructura en dos censos, el orden que Dios da a su pueblo y los levitas tomados en lugar de los primogénitos. (HTML: https://daniellira.com/clases/numeros-el-libro-del-desierto/)
 - [Números: el campamento en forma de cruz](https://daniellira.com/clases/numeros-el-campamento-en-forma-de-cruz/index.md): Números 2 y 3: un dibujo del campamento de Israel visto desde arriba, con Judá al oriente, y el rescate de los primogénitos por los levitas y cinco siclos de plata. (HTML: https://daniellira.com/clases/numeros-el-campamento-en-forma-de-cruz/)
@@ -66,7 +69,7 @@ Serie "Orígenes (Estudio 12:2) · Números" (clases sobre el libro de Números;
 - [Números: Balaam y la estrella de Jacob](https://daniellira.com/clases/numeros-balaam-y-la-estrella-de-jacob/index.md): Números 22 al 25: Balaam, el asna que habla, las profecías de bendición sobre Israel, la estrella que saldrá de Jacob y el celo de Finees en Baal-peor. (HTML: https://daniellira.com/clases/numeros-balaam-y-la-estrella-de-jacob/)
 - [Números: una nueva generación junto al Jordán](https://daniellira.com/clases/numeros-una-nueva-generacion-junto-al-jordan/index.md): Números 26 al 36: el segundo censo, la división de la tierra, Rubén y Gad, la imposición de manos sobre Josué, el juicio sobre Madián, la muerte de Balaam y Dios que habita en medio de Israel. (HTML: https://daniellira.com/clases/numeros-una-nueva-generacion-junto-al-jordan/)
 
-Serie "Orígenes (Estudio 12:2) · Deuteronomio" (clases sobre el libro de Deuteronomio; en orden):
+Serie "Deuteronomio" (clases sobre el libro de Deuteronomio; en orden):
 
 - [Deuteronomio: recuerda, para que no vuelva a suceder](https://daniellira.com/clases/deuteronomio-recuerda-para-que-no-vuelva-a-suceder/index.md): introducción a Deuteronomio: la Torá como un solo libro, Moisés como abuelito que recuerda la historia, solo un Dios y un solo lugar, y Dios que pelea por su pueblo (Dt. 1-4). (HTML: https://daniellira.com/clases/deuteronomio-recuerda-para-que-no-vuelva-a-suceder/)
 - [Deuteronomio: cuida tu corazón y escucha, Israel](https://daniellira.com/clases/deuteronomio-cuida-tu-corazon-y-el-shema/index.md): Deuteronomio 4 y 6: cuidar el corazón de la idolatría, la profecía de dispersión y regreso de Israel, y el Shemá con la palabra hebrea ejad como unidad compuesta. (HTML: https://daniellira.com/clases/deuteronomio-cuida-tu-corazon-y-el-shema/)

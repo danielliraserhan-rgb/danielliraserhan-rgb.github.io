@@ -315,3 +315,4 @@ footer .legal .wrap{display:block;padding-top:16px;padding-bottom:18px;color:#9c
 .carta button{cursor:pointer;font-family:var(--mono);letter-spacing:.04em}
 .carta-wrap{display:flex;justify-content:center}
 .lista-carta{padding-left:1.2em}.lista-carta li{margin:0 0 10px}
+.subt{display:block;font-family:var(--mono);font-size:12.5px;letter-spacing:.06em;text-transform:uppercase;color:var(--piedra);font-weight:400;margin-top:6px}
