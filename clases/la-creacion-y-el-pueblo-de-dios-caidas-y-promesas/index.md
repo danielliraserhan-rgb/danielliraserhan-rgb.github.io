@@ -1,0 +1,154 @@
+# La Creación y el Pueblo de Dios: caídas y promesas
+
+> Las caídas de Génesis siguen un patrón: rebeldía que condena y aísla, respondida por la fidelidad de Dios que promete restauración. En días de Noé la maldad corrompe la tierra; Dios pone límites y provee un arca para quien anda con Él, y pacta con la tierra. En Babel, la sociedad se une contra Dios para hacerse un nombre; Dios la dispersa en setenta naciones. Y con Abraham revierte Babel: un hombre, un pueblo y una tierra para bendecir a todas las familias de la tierra.
+
+*Adaptado con ayuda de IA a partir de una clase grabada.*
+
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
+- Serie: Orígenes: La Creación y el Pueblo de Dios · Sesión 2 (parte 2 de 9)
+- URL: https://daniellira.com/clases/la-creacion-y-el-pueblo-de-dios-caidas-y-promesas/
+- Video: https://www.youtube.com/watch?v=B9IkPTMnm6Q
+
+## Puntos clave
+
+- Rebeldía que condena y aísla, respondida por la fidelidad de Dios que promete restauración.
+- La maldad de los días de Noé corrompió también la tierra; los 120 años fueron un límite amoroso.
+- Noé obedeció porque andaba con Dios: una fe que obra por amor.
+- El arca prefigura una salvación mayor; Dios es quien cierra la puerta.
+- El pacto con Noé incluye a los animales y a la tierra: la tierra será restaurada.
+- Babel es buscar el favor de Dios o evitar su juicio sin someterse a su gobierno.
+- Abraham revierte Babel: Dios engrandece su nombre para bendecir a todas las naciones.
+
+---
+
+## La gran historia de Dios
+
+Hoy vamos a ver caídas y promesas, la segunda parte de esta clase. El objetivo es que podamos entender la narrativa bíblica. Obviamente hay muchísimo más que exprimirle a Génesis; nos podríamos meter en cada palabra, en cada versículo, y Génesis 1 nos llevaría un año. Lo que quiero es presentarles la gran historia de Dios, para que cuando lean la Biblia puedan entender la cosmovisión bíblica y no las ideas que se han mezclado con la iglesia. Si después de la clase no lees tu Biblia, se va a quedar muy superficial.
+
+En la primera clase vimos que Dios creó los cielos y la tierra y todo era bueno. Luego vino la caída. Cuando hablamos de la caída siempre pensamos en Adán y Eva, pero la Biblia maneja a Adán y Eva y a Caín y Abel como una sola caída, en la que se rompe la relación del ser humano con Dios y la del ser humano con su hermano: la primera vez que alguien se aleja de Dios, y la primera vez que alguien se aleja de otro humano cometiendo el primer asesinato.
+
+En la iglesia la llamamos coloquialmente «caída», aunque la Biblia no usa esa palabra; tampoco dice «rebeldía». Lo que hacen es rebelarse contra el gobierno de Dios, y hay dos respuestas. La del hombre es condenación y aislamiento: se aísla lleno de vergüenza, con miedo, tratando de encubrirse. Pero Dios encuentra al hombre en su rebeldía y se presenta como un Dios fiel que da una oportunidad de arrepentimiento, una disciplina que llamamos límites amorosos, y un pacto o promesa de restauración.
+
+Este es el patrón que van a ver en toda la Biblia: un Dios fiel que se presenta ante una humanidad rebelde y caída; un corazón humano con deseos completamente corruptos que se encuentra con un plan perfecto para restaurar todas las cosas. Caen Adán y Eva, y Dios promete que vendrá aquel que vencerá al diablo y los regresará a su gobierno. Caen Caín y Abel, uno porque muere y el otro porque lo mató, y Dios promete una nueva simiente.
+
+Una y otra vez el ser humano empieza con su rebeldía, y Dios se acerca y nos da oportunidades de arrepentimiento. ¿A través de qué? De incluirnos en su plan. No se trata de mi plan. «¿Qué tiene Dios para mí, cuál es mi llamado?». El llamado de todos es la restauración de todas las cosas; cada uno tendrá su diversidad, pero el llamado general es que Dios quiere restaurarnos a su diseño original. En otras palabras: rebeldía que condena y aísla, respondida por la fidelidad de Dios que promete restauración. En cualquier capítulo de la Biblia vas a encontrar este patrón.
+
+Solemos decir: «Adán y Eva pecaron, ahí entró el pecado y nos manchó a todos, por lo tanto todos somos pecadores». Pero la Biblia enseña un patrón porque está hablando del corazón humano. No se trata solo de que ellos hayan pecado; es que ese patrón se repite en la humanidad y, perdón por la mala noticia, en ti y en mí. Hoy vamos a ver tres historias que lo repiten: Noé y el diluvio, la torre de Babel y el origen de las naciones, y Abraham y el pacto eterno que Dios hace con él.
+
+## Toda intención del corazón
+
+A consecuencia de la caída entramos al presente siglo malo, del que Pablo escribe mucho, en Gálatas y en Efesios: dominado por el príncipe de las tinieblas, por mi carne, por las tentaciones y tendencias de este mundo. Pero Dios siempre presenta su plan.
+
+«El Señor vio que era mucha la maldad de los hombres en la tierra, y que toda intención de los pensamientos de su corazón era solo hacer siempre el mal» (Gn 6:5). La consecuencia de un gobierno corrupto era una humanidad corrupta, que pensaba cada vez más en el mal, hasta que todo pensamiento del hombre era hacer el mal. No cabía la idea de «voy a hacer algo que agrade a Dios». No solo Adán y Eva, no solo Caín: el corazón de todo ser humano está inclinado a alejarse de Dios.
+
+A esto lo voy a llamar la segunda caída. En la primera se rompe la relación; en esta, la intención malvada del hombre produce la corrupción no solo de ellos, sino de la tierra. ¿Se acuerdan del director operativo? Su gobierno corrupto produce una empresa corrupta. Así, la consecuencia de un gobierno corrupto termina siendo una tierra corrupta: los cielos, la tierra, la humanidad, la relación con Dios, todo está corrompido.
+
+## Límites amorosos
+
+Ante esto, Dios decide aplicar su disciplina. «Entonces el Señor dijo: "No luchará Mi Espíritu para siempre con el hombre, porque ciertamente él es carne. Serán, pues, sus días 120 años"» (Gn 6:3). Si leíste Génesis 5, vivían cientos de años, hasta novecientos y tantos. Yo no sé qué hacían; tenían muchos hijos, por eso se pobló la tierra.
+
+Y Dios dice: «Si la intención del hombre es siempre hacer el mal y le doy novecientos años, va a producir más corrupción y más consecuencias para ellos y para la tierra». Por eso es amor y misericordia: la maldad del hombre va a ser limitada. Imagínate novecientos años de maldad, volviéndote cada día más malo. Vemos gente que agarra animalitos y los golpea; imagínate que esa persona viva novecientos años. Y lo digo como si fuera otro, pero somos tú y yo. Ya no vamos a ser tan malos, y por consecuencia la tierra ya no va a ser tan corrupta.
+
+Hay todo un tema en Génesis 6 sobre qué era esa maldad y por qué era tan horrible. No nos vamos a meter, porque la idea es enseñarles el patrón; pero era peor que lo peor que has visto.
+
+La segunda parte de su disciplina: «Borraré de la superficie de la tierra al hombre que he creado, desde el hombre hasta el ganado, los reptiles y las aves del cielo, porque me pesa haberlos hecho» (Gn 6:7). Está bien feo, pero eso dice: esto está tan corrupto que ya no hay manera de regresarlo. «Pero Noé halló gracia ante los ojos del Señor» (Gn 6:8).
+
+## Noé, el raro
+
+Imagínate que eres Noé y Dios te dice: «Construye un arca gigante». Todo el pueblo se iba a burlar de ti. Todos sabían que estabas construyendo un arca, y puedo asegurarte que Noé les decía por qué: «La maldad ha llegado a su colmo; Dios va a traer un diluvio, pero proveyó un arca, y todo el que entre en ella va a sobrevivir». Y lo único que hicieron fue rechazarlo. Además, muchos entienden que nunca había llovido: «Va a caer agua del cielo». «Eso no sucede, así no funciona, la ciencia dice». Era el raro, pero era el raro porque era el que escuchaba a Dios.
+
+Hay algo bien interesante: si sigues la genealogía año por año, esto ya es de nerds, pero yo lo hice, el diluvio llega el año en que muere Matusalén, el abuelito de Noé; su papá ya había muerto. Como Dios esperando a que no quedara ni uno más que Noé, a que la maldad realmente llegara a su tope. No es un Dios malo que dijo: «Voy a matarlos a todos sin darles oportunidad». Les dio más de mil años para regresar a Él, y luego todo el tiempo que tomó construir el arca. Imagínate cuánto tardarías. Y nadie quiso regresar a Dios.
+
+## El arca y la justicia de Dios
+
+El diluvio es algo real, pero también representa algo: la justicia de Dios, y al mismo tiempo la preservación de la vida del hombre que honra el gobierno de Dios, por su gracia, y la restauración de todas las cosas. El diluvio apunta al día en que Jesús va a regresar. Nos está dando tantas oportunidades, y nos ha mandado como iglesia a decir: «Hay un arca. La maldad está al colmo, pero hay una manera. Si rindes tu vida y entras al arca, vas a vivir en la época nueva: cuando bajen las aguas brotarán de nuevo los árboles, volarán las aves, se reproducirán los animales». Pero va a haber justicia: si no entras al arca, el diluvio se los lleva a todos.
+
+Ante la rebeldía de Adán y Eva, Dios los cubrió con el primer sacrificio y les prometió restauración en su simiente; cuando muere Abel y Caín se rebela, les da a Set. Con Noé vemos el mismo patrón: ante una maldad que llegó a su colmo, Dios provee un arca y promete la restauración no solo de la humanidad, sino de la tierra, a través de la descendencia de Noé. Y agrega algo que generalmente no entendemos: «Nunca más voy a borrar de la superficie a la humanidad ni a la creación con un diluvio». Esto es importante para la siguiente caída.
+
+El hombre es rebelde, y Dios responde con una promesa, y en la promesa siempre está incluido el canal por el que vendrá: una simiente, un arca. La Biblia, aunque es real e histórica, la podemos leer como una novela. No digo que sea ficción. Digo que una novela se escribe con una intención: algo que aparece más adelante se va a revelar, está diseñada por una mente inteligente para comunicar algo. La diferencia es que esta historia sucedió en la realidad, y quien la diseñó, Dios, puso en cada cosa algo que nos quiere decir.
+
+## Andar con Dios
+
+¿Por qué Noé hizo el arca, si era completamente ilógico? No llovía, probablemente nunca había hecho un arca, la gente se burlaba. Génesis 6:9 da la respuesta: «Noé era un hombre justo, perfecto entre sus contemporáneos. Noé andaba con Dios».
+
+Esto va a sonar repetitivo, pero honrar el gobierno de Dios no es simple obediencia. No es: «Dios dio una instrucción y Noé le hizo caso». Es que Noé andaba con Dios todos los días. Lo conocía, lo amaba, sabía que era bueno, que su voluntad es agradable y perfecta. Honrar su gobierno no es «te voy a obedecer», es «te amo y te honro; aunque no entiendo tu instrucción ni por qué me la pediste, como te conozco, quiero agradarte».
+
+Cuando hablamos de obediencia tendemos a: «Tienes que venir a la iglesia, tienes que leer tu Biblia». Es bueno, pero nace de conocer a Dios y querer estar con Él. Quiero ir a la iglesia porque ahí me encuentro con Él. Quiero ir a la palabra porque cuando la leo mi espíritu se llena y mi vida tiene sentido. Quiero juntarme con la iglesia porque Dios me dio una familia y eso le agrada.
+
+Yo creo que Noé ya caminaba con Dios. Cuando Dios le dice: «Construye un arca», Noé pregunta: «¿Por?». «Tú constrúyela; voy a traer un diluvio». «No te entiendo, pero lo voy a hacer». Como un hijo que siempre está con su papá y lo que quiere es agradarlo: aprende lo que te gusta y lo replica para estar contigo. Como esposos que se aman y se honran: no es «quedamos en tener una cita a la semana, pues vamos; ya, ándale, come». A nadie le gustaría eso. Qué diferencia decir: «A mí ni me gusta la pizza, pero a ti te encanta, vamos», y luego ella dice: «Ahora vamos a este otro lugar que te gusta a ti». Se conocen, caminan juntos.
+
+«Hazte un arca de madera de ciprés; harás el arca con compartimientos, y la cubrirás con brea por dentro y por fuera… Yo traeré un diluvio sobre la tierra… Pero estableceré Mi pacto contigo; y entrarás en el arca tú, y contigo tus hijos, tu mujer y las mujeres de tus hijos… Y así lo hizo Noé; conforme a todo lo que Dios le había mandado, así hizo» (Gn 6:14-22). Qué gacho, pero proveyó el arca.
+
+La Biblia habla de una fe que obra por amor (Gá 5:6): en los momentos difíciles, cuando no entiendes a Dios, de todas maneras obras por amor. Eso hizo Noé. No le fue contado por justicia construir el arca y subirse; fue creerle a Dios que traería el diluvio y que lo salvaría a través del arca (Heb 11:7). Y lo hizo porque quería estar con Dios. Lo contrario a una vida en rebeldía es una vida que se somete en honra a Dios y produce una fe que obra por amor. A eso estamos llamados tú y yo.
+
+## Dios cerró la puerta
+
+A los seiscientos años de Noé viene el diluvio. Imagínate vivir seiscientos años, y cuántos hijos habrán tenido que mantener. Se sube al arca, cae el diluvio, se llena la tierra, eventualmente se secan las aguas y empieza a poblarla otra vez.
+
+El arca es un prototipo de una salvación mayor que está por venir, para una humanidad que ya está muerta en su rebeldía. La Biblia lo dice así, por eso me atrevo a decirlo: como en los días de Noé, Dios traerá su justicia. Pero si el arca nos da un mensaje, es que Dios prometió una mejor arca, en este caso alguien, en quien podemos ser escondidos de la justicia de Dios para que, cuando pase el diluvio, salgamos a flote y vivamos en la restauración de todas las cosas.
+
+Y está bien increíble: no dice que Noé cerró la puerta. «El Señor cerró la puerta detrás de él» (Gn 7:16). Nosotros no le podemos cerrar la puerta a nadie, ni a nosotros mismos. El día que venga, Dios va a cerrar la puerta, y todos los que estén en el arca van a ser salvos y van a vivir en la tierra restaurada. Por eso vamos a las naciones a decirles: viene el diluvio. Si te paras en la esquina a decirlo así, ahorita ya no funciona; en algún momento funcionó. Pero es el mismo mensaje: estamos muertos, condenados, aislados y en vergüenza, pero Dios prometió salvación.
+
+## El pacto con la tierra
+
+Dios no solo establece límites, también establece pactos, y en este caso no solo con Noé, sino con la tierra. Noé sale y edifica un altar: lo primero que hace es buscar la presencia de Dios. Y Dios lo bendice como bendijo a Adán y a Eva: «Sean fecundos y multiplíquense, y llenen la tierra» (Gn 9:1).
+
+«Yo establezco Mi pacto con ustedes, y con su descendencia después de ustedes, y con todo ser viviente que está con ustedes: aves, ganados y todos los animales de la tierra… Nunca más será exterminada toda carne por las aguas del diluvio, ni habrá más diluvio para destruir la tierra» (Gn 9:9-11). Todos venimos de Noé, así que es un pacto con la humanidad, con los animales y con la tierra. «Pongo Mi arco en las nubes y será por señal del pacto entre Yo y la tierra» (Gn 9:13).
+
+No solo la humanidad será redimida: la tierra será redimida. ¿Se acuerdan de la dualidad? Lo espiritual y lo terrenal siguen siendo buenos, y Dios promete restaurar también las consecuencias de nuestra maldad.
+
+Cada vez que te vistes en la mañana o vistes a tus hijos, puedes recordar la fidelidad de Dios con Adán y Eva cuando los cubrió con pieles. Cada vez que llueve y ves un arcoíris, puedes recordar la esperanza de que un día Él restaurará la tierra: no más incendios, no nos va a faltar el agua, no vas a tener que comprar un tinaco a última hora. Los ríos, los mares, los cielos, la tierra y los animales van a regresar a lo que Él diseñó.
+
+Hasta aquí: con Adán y Eva se corrompe la relación de Dios con el hombre, y Dios promete una simiente que nos regresará a su gobierno. Con Caín y Abel, parte de la misma caída, se rompe la relación entre humanos, y Dios reitera la restauración, ahora incluyendo la relación entre hermanos. Con Noé y su generación se corrompe la tierra, y Dios promete que la tierra será restaurada.
+
+## Babel: una torre más alta que el diluvio
+
+Dios prometió: «Nunca más traeré un diluvio». Y en vez de honrar su gobierno: «Toda la tierra hablaba la misma lengua y las mismas palabras. Según iban hacia el oriente, hallaron una llanura en la tierra de Sinar, y se establecieron allí» (Gn 11:1-2). Ya son una tribu, organizados, con una misma lengua; podrían poblar la tierra y vivir hermosamente, clamando: «Ven, Señor». Pero dicen: «Vamos, fabriquemos ladrillos y cozámoslos bien… Edifiquémonos una ciudad y una torre cuya cúspide llegue hasta los cielos, y hagámonos un nombre famoso, para que no seamos dispersados sobre la superficie de toda la tierra» (Gn 11:3-4).
+
+Están diciendo: hagamos una torre para gobernar y reunir a todos bajo el gobierno del hombre. ¿Por qué una torre? ¿Por qué no una ciudad bien padre, o algo subterráneo? Lo último que Dios había hecho para eliminar la maldad fue un diluvio. Yo creo que en su mente, en vez de decir «le voy a creer a Dios porque es bueno y lo conozco», dijeron: «Vamos a hacer una torre tan alta que el día que a Dios se le ocurra traer otro diluvio sobrevivamos y sigamos gobernando como queramos».
+
+La torre de Babel es una radiografía del corazón humano. «A ver, ya le dimos la medicina, ya restauramos; vamos a tomarle otra radiografía». Y siguen siendo malos. Ya no habla de la relación con Dios, ni con los hermanos, ni del mal gobierno sobre la tierra: ahora es la caída de la sociedad, que eventualmente produce las naciones. Es la tercera caída: un grupo de personas con el objetivo común de rebelarse contra el gobierno de Dios. En vez de «vamos a agradar a Dios», dicen: «Vamos contra Dios; a ver si ahora sí traes tu diluvio». Como Eva, que vio que el fruto era deseable para alcanzar sabiduría, ellos dicen: «Hagamos una torre para alcanzar el cielo». Y a lo mejor vivimos más de 120 años, porque Dios ya no va a poder con nosotros. Todo esto muestra la falta de honra al gobierno de Dios.
+
+## Nuestras torres
+
+«Eso pasó allá». Pero es lo que tú y yo a veces hacemos. Buscamos pastillitas mágicas, la oración perfecta, al profeta ungido que me dé la palabra perfecta. Buscamos, uno, encontrar el favor de Dios sin someternos a su gobierno, o dos, evitar su juicio sin someternos a su gobierno. En vez de rendirnos y decir: «Tú eres el rey, sabes más que yo, te entrego mi vida, haz lo que quieras con ella», le decimos: «Está padre tu bendición, la quiero, pero que alguien más me la dé. No quiero leer tu palabra y ser confrontado con mi maldad. Quiero que alguien la procese y me dé paso uno, dos, tres y cuatro para alcanzar mi mejor vida».
+
+Eso no es la Biblia. Paso uno: muere a ti mismo. Paso dos: toma tu cruz. Paso tres: sígueme. No hay otra. Es morir a ti mismo para entrar al gobierno de Dios y dejar que Él gobierne bajo su diseño perfecto.
+
+¿Qué representa la torre? «Hagámonos famosos y evitemos el juicio. Alcancemos el favor y la bendición de Dios, ser conocidos, gobernar, vivir nuestro propósito sin Dios».
+
+Entonces Dios marca un límite amoroso. Es bien bueno Dios. Es como si dijera: «No vaya a ser que, con esta pastilla mágica o con la oración perfecta, se confundan y crean que eso es suficiente. No vaya a ser que, siendo famosos y gobernando una tierra corrupta, crean que viven de la manera correcta». La Biblia dice que nada de lo que se propongan les será imposible (Gn 11:6). Qué increíble es el ser humano: hombres y mujeres que trabajan, alcanzan sus metas, se compran la casa gigante, el yate, se van de vacaciones. Nada tiene de malo todo eso. Pero si creemos que esa es la bendición de Dios, algo estamos haciendo mal.
+
+La mayor bendición y favor de Dios para los apóstoles fue, literalmente, morir por Cristo. A Esteban, el primer mártir, lo están apedreando, y dice: «Veo los cielos abiertos, y al Hijo del Hombre de pie a la diestra de Dios», y «Señor, no les tomes en cuenta este pecado» (Hch 7:56, 60). Pero creemos que construir torres gigantes, edificios hermosos y tener pantallas bonitas es el favor de Dios. Si un día la presencia de Dios deja de estar en este lugar, de nada sirve la pantalla. No es la torre ni el becerro de oro; de eso no se trata.
+
+Cuando creemos que podemos alcanzar una relación con Dios a través de las obras, creemos que no hay necesidad de su presencia ni de honrarlo. Es lo que les pasa más adelante a los fariseos: «Yo ya hago A, B, C y D, y lo hago muy bien; ayuno, y para que todos me vean, oro en las plazas. Dios me tiene que bendecir». Y en el camino, Dios se hizo hombre, caminó entre ellos, y lo rechazaron; se perdieron la bendición de su presencia. Noé era justo porque andaba con Dios. Los discípulos eran lo peor de lo peor, pero fueron hallados justos porque caminaban con Dios.
+
+## Las naciones y las culturas
+
+Así que Dios dice: «Dispersémoslos». Si cuentas las descendencias en Génesis 10, son setenta: la humanidad se dispersa en setenta naciones, con distintos idiomas, y nunca más se iban a poder poner de acuerdo para hacer una torre gigante.
+
+Ahí iniciaron lo que hoy llamamos culturas. La palabra *cultura* comparte raíz con *culto*. Y otra vez somos bien malos: en vez de decir «Dios de verdad es poderoso y no me va a dejar salirme con la mía», cada pueblo empieza a adorar a otros dioses y a hacerse ídolos. Una cultura se define por un pueblo, con un idioma, que adora a un dios. Con el tiempo eso cambió, y la iglesia y el Estado se separaron, pero por muchos siglos una cultura se representaba por el pueblo, el idioma y el dios al que adoraba.
+
+Piensa en India: piensas en el hinduismo, no en individuos que cada uno tiene su propia religión. Piensa en México, al menos hasta hace pocos años: católicos. Piensa en Israel: judíos. Eso es una cultura, y esto sienta las bases de algo que veremos mucho más adelante.
+
+## Abraham: la reversión de Babel
+
+¿Cuál es el patrón? El hombre es rebelde, se condena, se aísla, se dispersa, y Dios trae una promesa. Y la promesa aquí es hermosa: por medio de un hombre, todas las naciones dispersas serán reunidas ante un solo Dios, a través de un pueblo que poblará una tierra para bendecir a las demás naciones. Esencialmente, Dios dice: «Hice setenta naciones, los dispersé, hicieron sus propias culturas, pero no los voy a abandonar. Voy a escoger a un hombre que se llama Abraham».
+
+«Vete de tu tierra, de entre tus parientes y de la casa de tu padre, a la tierra que Yo te mostraré. Haré de ti una nación grande, y te bendeciré, engrandeceré tu nombre, y serás bendición… En ti serán benditas todas las familias de la tierra» (Gn 12:1-3). No solo le está diciendo «deja a tus papás»; literalmente le dice: deja tu cultura, tu identidad, tus dioses, tu pueblo, porque yo voy a hacer de ti una gran nación, te voy a dar una tierra y yo seré tu Dios.
+
+«Engrandeceré tu nombre». La torre de Babel la hicieron para hacerse un nombre, para hacerse famosos. Y ahora Dios dice: «Yo te voy a hacer famoso a ti, no por tus obras, sino por mi fidelidad, mi misericordia y mi gracia, para que cuando vean tu nombre no piensen en ti, sino en mí». Dios toma la maldad humana y en sus promesas la restaura: sí va a haber alguien famoso, pero ese seré yo. Eso sienta las bases para el día en que llega Jesús y cantamos que hay un nombre sobre todo nombre: el que fue, el que es y el que será; el Verbo encarnado, Emanuel, Dios con nosotros; Jesús, que en hebreo significa «el Señor salva».
+
+## Un faro entre las naciones
+
+Dios promete reunir, restaurar y bendecir a través de un pueblo, un Dios y una tierra: una nación creada por Dios, bendecida para bendecir a toda la tierra y regresar a todos a casa. Les da un territorio perpetuo, y por eso el mundo odia a Israel: Dios les prometió esa tierra, los llevó a ella y les prometió que ahí crearía una nación que Él gobernaría. Su enemigo, el diablo, lo único que ha querido desde entonces es destruir a Israel. En Génesis 3:15, la enemistad era con la simiente, pero también con la mujer. Si sigues leyendo el Antiguo Testamento, el pueblo descendiente de Abraham es presentado como una mujer que daría a luz una simiente que se llama Jesús. El diablo tiene enemistad con ese pueblo de Abraham, Isaac y Jacob, y con el Cristo que había de venir.
+
+Así, Dios creó su propia nación, con su propia cultura, su propio idioma, el hebreo, y su único Dios. Y Abraham hace tal cual Dios le dice. Me gusta mucho la imagen de un faro: Abraham se convierte en un faro que dice que, por medio de un hombre, las naciones serán reunidas ante un solo Dios. «Están naufragando, perdidos, ahogándose, y puse un faro en medio de ellos», para que todo el que está perdido encuentre la vida eterna. Es un prototipo. ¿Sucedió históricamente? Sí. Pero apunta a alguien que está por venir. Abraham es el padre de las naciones, como el abuelito de todos, para una sola cosa: reunirlos a todos.
+
+## El plan completo en doce capítulos
+
+Hasta aquí se acaban las caídas de la humanidad, de la tierra y de las naciones, y hasta aquí Dios ha prometido todo lo que hará en su gran plan. Después da los detalles: con Moisés habla de cómo esa nación va a permanecer en la tierra, y con David dice que esa simiente no solo será una persona, sino un rey. Pero el plan de restauración ya está sellado: restauraré la relación de Dios con el hombre, la relación entre hermanos, las naciones, y los cielos y la tierra.
+
+Efesios lo dice: hay un solo cuerpo, un solo Espíritu, un solo Señor, una sola fe, un solo bautismo, un solo Dios y Padre (Ef 4:4-6), y con judíos y gentiles, el pueblo de Abraham y las demás naciones, Dios hizo un solo y nuevo hombre (Ef 2:15). Unidad con diversidad. Si lees Génesis 1 al 12, ya la hiciste. De aquí en adelante Génesis se trata de esa descendencia.
+
+«Oye, ¿por qué no salen México y los aztecas?». Porque se trata del pueblo que Dios escogió para contar su historia, para que todos podamos regresar a Él. La Biblia se escribió en hebreo para un pueblo judío, hasta que vino Cristo y se extendió a los gentiles para reunirnos a todos bajo un pueblo, una nación y un solo Dios.
