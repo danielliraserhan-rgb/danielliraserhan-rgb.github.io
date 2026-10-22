@@ -1,0 +1,156 @@
+# La Creación y el Pueblo de Dios: Egipto, lejos de casa
+
+> El plan de Dios ya está completo en Abraham, Isaac y Jacob; Génesis es el marco al que regresamos para tomar las medidas. José, el hijo amado, es vendido por sus hermanos, pero su identidad está arraigada en el amor del Padre: es el mejor esclavo, honra a Potifar aunque le cueste la cárcel, y en la cárcel también prospera. Su carácter, no sus dones, lo lleva al palacio. Se reconcilia con sus hermanos, lleva a Israel a Gosén y declara que Dios cambió el mal en bien. Jacob promete el cetro a Judá.
+
+*Adaptado con ayuda de IA a partir de una clase grabada.*
+
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
+- Serie: Orígenes: La Creación y el Pueblo de Dios · Sesión 5 (parte 5 de 9)
+- URL: https://daniellira.com/clases/la-creacion-y-el-pueblo-de-dios-egipto-lejos-de-casa/
+- Video: https://www.youtube.com/watch?v=qqaRTkNyI0s
+
+## Puntos clave
+
+- Génesis es el modelo al que regresamos para tomar las medidas del plan de Dios.
+- La identidad de José está arraigada en el amor de su padre: el Señor estaba con él.
+- Un siervo fiel honra a su autoridad aun cuando nadie lo ve, aunque le cueste.
+- La temporada no dicta tu carácter; tu carácter dicta tu temporada.
+- Los dones no dan posiciones; el carácter otorga autoridad.
+- Antes de la gloria viene el sufrimiento; José quita la culpa a sus hermanos y da gloria a Dios.
+- El cetro no se apartará de Judá hasta que venga aquel a quien pertenece.
+
+---
+
+## El plan ya está completo
+
+En esta quinta parte, «Egipto: lejos de casa», seguimos en Génesis. Hemos visto cómo Dios hace la creación, nos muestra el corazón humano, su propio corazón, su carácter y su gran plan, y prácticamente terminamos de ver ese plan la sesión pasada. Dios creó los cielos y la tierra y era bueno, y todo va a llegar a la restauración de todas las cosas, cuando los cielos y la tierra vuelvan a ser buenos. En el diseño de Dios todo es bueno; en la corrupción humana todo es malo. Lo que Dios quiere es regresarnos a su diseño original. La creación inicia en un jardín, y la historia de la redención termina en un jardín. Por eso Génesis es importante.
+
+Hubo tres caídas. Con Adán y Eva y Caín y Abel se rompe la relación con Dios y entre hermanos. Con Noé se corrompe la tierra por un mal gobierno: un gobierno corrupto produce cosas corruptas, como un árbol no puede dar fruto bueno y malo. En Babel, por primera vez una sociedad se organiza para rebelarse contra Dios, y nacen las distintas naciones y lenguas. Pero ante cada caída Dios hace pactos, y los promete en tres personas: Abraham, Isaac y Jacob.
+
+Abraham es el viejito con luz: fue bendecido para bendecir a todas las naciones, como un faro que guía a las naciones de regreso a casa. Luego está el cordero que Dios proveyó en el sacrificio de Isaac. Un dato súper interesante: el monte donde Isaac iba a ser sacrificado es el mismo lugar donde después se edifica el templo y se ofrecen los sacrificios (2 Cr 3:1). Cada sacrificio en el templo recordaba: «Él proveerá, Él proveerá». La ley nunca se trató de la ley; siempre se trató del corazón detrás de ella. Y luego está Jacob, a quien Dios le cambia el nombre a Israel, por quien serán bendecidas todas las naciones.
+
+Aquí se completa el plan de Dios. Podrías cerrar tu Biblia y vivir confiado en que Dios es bueno, en que contesta nuestra rebeldía con sus pactos, en que es fiel y lo va a cumplir. Fue suficiente para Abraham, para Isaac y para Jacob: creyeron la promesa y les fue contado por justicia. Todavía no se ha revelado quién es Jesús ni que irá a la cruz, pero ya se reveló que Dios proveerá el sacrificio que nos tocaba. Lo que sigue es cómo responde este pueblo y los procesos por los que pasa para ser transformado y bendecir a las naciones.
+
+El objetivo de esta clase, más que descubrir todos los tesoros de Génesis, que son muchísimos, es agarrar una línea, un marco de referencia, para que cuando abras Ezequiel o Isaías y digas «¿qué está pasando aquí?», lo leas a la luz de este patrón: «Ah, el cordero; hace referencia a esto».
+
+## Los mil marcos
+
+Imagínense esta historia. A alguien le encargan hacer mil marcos de madera, y le dan uno como modelo. Él dice: «Está fácil: lo pongo sobre la madera, lo trazo y lo corto». Pero hace el segundo marco con el primero que él hizo, el tercero con el segundo, y así. Si en el primero se equivocó por un centímetro, en el segundo ya se equivocó por dos, y para el marco número mil ya es un monstruo que no cabe en la pared.
+
+Eso es Génesis: el lugar al que regresamos para preguntar dónde están las medidas. «Recuérdame cuál era el plan. ¿Por qué Dios habla de un nuevo pacto? ¿Por qué pactos?». Tienes que regresar aquí.
+
+## José, el hijo amado
+
+Nuestra historia hoy comienza con José, uno de los doce hijos de Jacob. ¿Quién es el chico de su casa? Yo. ¿Quién sabe que los chicos de la casa son los favoritos? Solo levantaron la mano los chicos. Los demás son como Esaú y nos quieren matar.
+
+Y literalmente eso pasa. «Israel amaba a José más que a todos sus hijos, porque era el hijo de su vejez; y le hizo una túnica de muchos colores. Y sus hermanos vieron que su padre lo amaba más que a todos ellos; por eso lo odiaban y no podían hablarle amistosamente» (Gn 37:3-4). Papás, no hay que hacer eso.
+
+Luego José tiene un sueño: estaban atando gavillas en el campo, y la suya se levantó y las de sus hermanos se inclinaron ante ella. Y otro sueño: el sol, la luna y once estrellas se postraban ante él (Gn 37:5-9). Los hermanos dicen: «Este, además de ser el favorito y de que mi papá lo viste y le regala cosas, ahora dice que Dios le dijo que nos vamos a postrar ante él». Y lo odiaron todavía más.
+
+Hacen un complot para matarlo. Si tu familia está difícil, no creo que tanto como esta. Rubén, el mayor, y los mayores a veces te protegen; a mí mi hermano mayor sí me trata de cuidar, dice: «No lo matemos; no derramen sangre. Échenlo en este pozo». Más adelante entiendes que Rubén quería regresar a rescatarlo. Pero pasa una caravana de ismaelitas, que controlaban la ruta de comercio, y dicen: «Mejor vamos a sacarle provecho; vendámoslo». Lo sacan del pozo, lo venden, y se lo llevan a Egipto, donde es vendido como esclavo.
+
+Si te preguntas cómo pasamos de las promesas increíbles de Dios, «te voy a dar esta tierra, vas a poblarla y bendecir a las naciones», a que de repente estén en Egipto como esclavos, todo inicia aquí.
+
+## El mejor esclavo
+
+La vida de José iba de mal en peor. Era el favorito, lo avientan a un pozo, lo venden, se lo llevan a Egipto. Tenía todo para hacerse la víctima: «Dios me abandonó. ¿Dónde están tus grandes promesas a Abraham, Isaac y Jacob? ¿Serán solo para mis hermanos?». Pero José no dice nada de esto.
+
+«Potifar, un oficial egipcio de Faraón, capitán de la guardia, lo compró a los ismaelitas… Y el Señor estaba con José, que llegó a ser un hombre próspero… Su amo vio que el Señor estaba con él y que el Señor hacía prosperar en su mano todo lo que él hacía» (Gn 39:1-3).
+
+¿Nunca te dijo tu mamá: «Sé lo que quieras ser, pero sé el mejor»? A mí me lo dijo mucho. Ese era José: el mejor esclavo. Podía decir «nadie me quiere, todos me odian», pero sabía que Dios estaba con él. Su identidad había echado raíces en Dios, y yo creo que la clave era el amor de su padre. Se sabía hijo amado, como cuando Jesús es bautizado y el Padre dice: «Este es mi Hijo amado». Como Juan, el discípulo amado: José, el amado.
+
+Así que en vez de preguntar dónde están las bendiciones, dice: «Dios es bueno. Le dio a Abraham un hijo en su vejez, proveyó un cordero en lugar de Isaac, le cambió el nombre a mi padre y nos apartó para ser bendición a las naciones. Hoy estoy en una nación: voy a bendecir esta casa». «Pero eres esclavo». No importa tu posición; tu trabajo es bendecir donde estés. Y Potifar le entrega todo: «Ahora tú eres el amo de esta casa».
+
+## Todo, excepto ella
+
+En medio de su prosperidad, «la mujer de su amo miró a José con deseo y le dijo: "Acuéstate conmigo". Pero él rehusó y dijo a la mujer de su amo: "Estando yo aquí, mi amo no se preocupa de nada en la casa, y ha puesto en mi mano todo lo que posee. No hay nadie más grande que yo en esta casa, y nada me ha rehusado excepto a usted, pues es su mujer. ¿Cómo entonces podría yo hacer esta gran maldad y pecar contra Dios?". Ella insistía a José día tras día, pero él no accedió» (Gn 39:7-10).
+
+Podríamos quedarnos tres días en estos versículos. ¿Ven cómo José honra a Potifar? «Me dio todo, excepto a su mujer». Puedes comer de todo árbol, excepto de ese. Y se acerca la serpiente: «¿Conque te dijo…?». Casi le dice: «Puedes ser como Potifar; si te acuestas conmigo, te daré el reino». Y él dice: «Ya me lo dio; yo lo conozco, yo lo honro». Lo que me gusta es que José equipara honrar a Potifar con honrar a Dios, y rebelarse contra Potifar con rebelarse contra Dios.
+
+José es lo que podríamos llamar un siervo fiel: un siervo del que el amo ya no tiene que preocuparse por nada. Era esclavo, sin autoridad sobre nada, y sin embargo, sabiéndose amado y haciendo lo mejor, escaló dentro de esa casa hasta que Potifar podía irse y decir: «Todo esto es tuyo». Un siervo fiel es aquel que, a medida de su honra, se ha ganado la confianza.
+
+Una y otra vez vas a leer: «Y el Señor estaba con José». Su identidad no viene de su posición ni de cómo lo tratan, sino del Padre, y desde ahí sirve fielmente, dándose por completo: una identidad segura y un carácter conforme al de aquel que un día vendría a servir fielmente. Y crece en su carácter honrando a su amo aun cuando nadie lo veía. ¿Quién se iba a enterar? Nadie. Y decide honrar a Dios.
+
+## Cuando honrar a Dios cuesta
+
+«Claro, cuando honramos a Dios, Dios nos bendice». Sí, pero no tanto. Justo después, la mujer de Potifar le cuenta mentiras a su esposo: «Esto es lo que tu esclavo me hizo». Potifar se enciende de ira y echa a José a la cárcel, donde estaban los presos del rey (Gn 39:19-20). No cedió ante la tentación, y aun así le trajo sufrimiento.
+
+Recuerden: la identidad es «soy hijo; el Señor está conmigo»; el carácter es el de un siervo fiel, que actúa con integridad y fidelidad y honra a su amo. Pero cuando actúas así en un mundo corrupto, por ejemplo, cuando tu jefe te dice: «Este cuatrimestre no llegamos; va a venir el director comercial; agrégale un cero aquí, quítale estos gastos, maquíllale un poquito, véndete tres facturas», y tú no lo haces por ser fiel a Dios, el mundo corrupto no te recompensa como quisieras.
+
+Ahora sí, dirías, José se va a romper: el pozo, la esclavitud, las mentiras, y ahora la cárcel. Y no crean que las cárceles eran como las de ahora; no están padres las de ahora, pero estaban mucho peor. «Pero el Señor estaba con José, le extendió Su misericordia y le concedió gracia ante los ojos del jefe de la cárcel… El jefe de la cárcel no supervisaba nada que estuviera bajo la responsabilidad de José, porque el Señor estaba con él; y todo lo que él emprendía, el Señor lo hacía prosperar» (Gn 39:21-23).
+
+Imagínate: el jefe de la cárcel no tenía que supervisar a los presos, porque José era íntegro y fiel, y porque el Señor estaba con él. Cuando tu identidad es «el Señor está conmigo», no tienes que hacer nada para satisfacerlo: ya está satisfecho, ya te ama, ya te escogió, ya te dio una tarea y una promesa. No le tienes que ayudar con su promesa; Él se encarga. Tu único trabajo es actuar de manera íntegra y fiel ante el Dios que es fiel contigo. Primero fue el mejor de los esclavos; ahora, el encargado de la cárcel.
+
+## Tu carácter dicta tu temporada
+
+Si actúas en una identidad correcta, con un carácter correcto, empieza a dar fruto de diferentes maneras en diferentes temporadas. A veces usamos la palabra «temporada» como excusa: «En esta temporada no puedo ir a la iglesia, estoy muy ocupado». Ah, Chihuahua, pregúntale a José. «Está difícil mi temporada; tú no sabes lo que me pasó; sí tengo que vender esta facturita». No importan las temporadas. La temporada no dicta tu carácter; tu carácter dicta tu temporada.
+
+En casi toda la Biblia, en el mensaje, Dios no le pide a nadie que cambie su posición. No le dice al esclavo: «Libérate, emprende un negocio y vas a prosperar». No le dice al que se casó con alguien no creyente: «Divórciate». Los llama a arrepentirse del pecado, no a cambiar de posición. El ejemplo más claro son los esclavos: no les dice «vine a liberarlos, así que sean libres ya», sino «vine a liberarlos, pero por un tiempo van a sufrir; alégrense, porque en su debilidad yo me fortalezco». Dice: actúen conforme al carácter de Cristo. Eso hace José en todas las temporadas.
+
+Siempre será mejor vivir una vida que honra a Dios que una vida que honra al mundo. José siempre tuvo la oportunidad de honrar al mundo: someterse a la mujer de Potifar y llevarla en paz, hablarles bonito a los presos o hasta abrirles la cárcel, al cabo nadie supervisaba. Pero decidió honrar a Dios y no al mundo, al diablo ni a su carne. Y aun en la peor temporada de su vida, Dios lo prosperó.
+
+Cuando vives en identidad, carácter y acciones, porque una cosa es tener el carácter y otra actuar conforme a él, se producen dos cosas: encuentros con Dios y bendición.
+
+## Los sueños en la cárcel
+
+En la cárcel, donde estaban los presos del rey, hay dos oficiales de Faraón: el copero y el panadero. Cada uno tiene un sueño, y Dios le da a José la interpretación: el panadero va a morir, y el copero volverá a servir a Faraón. Literalmente así sucede (Gn 40). José le pide al copero que se acuerde de él, pero el copero se olvidó de él (Gn 40:23). Y pasa el tiempo, dos años más.
+
+Entonces Faraón tiene un sueño que nadie puede interpretar. Y el copero se acuerda: «Hay un joven hebreo en la cárcel que nos interpretó los sueños, y así sucedió». Faraón lo manda llamar; «lo sacaron del calabozo, y después de afeitarse y cambiarse sus vestidos, vino a Faraón» (Gn 41:14). Yo creo que ese versículo está ahí para que nos demos cuenta de que su vida no era bonita: aunque tenía el favor de Dios, seguía en el calabozo.
+
+Si a ti y a mí nos metieran a la cárcel, ¿cuántos clamaríamos injusticia? ¿Cuántos adoraríamos ahí y diríamos: «Ok, Dios, ya me trajiste aquí, ¿ahora qué sigue?»? A mí me encantaría decir que abriría un ministerio en la cárcel, pero no sé.
+
+Faraón le dice: «He tenido un sueño y no hay quien lo interprete; y he oído decir de ti que oyes un sueño y lo puedes interpretar». Y José, ante el rey, que tenía muchos dioses, responde: «No está en mí; Dios dará a Faraón una respuesta favorable» (Gn 41:15-16). Yo creo que Daniel, más adelante, había leído la historia de José varias veces, porque responde igual: «Yo no interpreto sueños; déjame preguntarle a Dios».
+
+Faraón le cuenta: siete vacas bien gordas, rechonchas, para una carne asada bien rica, y luego siete vacas flacas que se las comían; y lo mismo con espigas. José le dice: Dios te está revelando que vienen siete años de abundancia y siete años de hambre.
+
+## Más que un siervo inútil
+
+Hay una parábola que habla del siervo inútil, y siempre decimos con humildad: «Yo tan solo soy un siervo inútil» (Lc 17:10). Pero yo creo que lo que realmente está diciendo es: no seas un siervo inútil. Un siervo fiel conoce a su amo y no solo le ofrece lo que le pide, sino que va más allá: aun cansado, le prepara la comida que le gusta.
+
+José, el siervo fiel, interpreta el sueño y además le da el plan. ¿De dónde lo saca? Del favor de Dios, obviamente, pero también de los procesos: había crecido en experiencia; sabía administrar una casa, personas y finanzas, porque fue un siervo fiel todo el tiempo. «Durante siete años guarda la comida, para sobrevivir los siguientes siete». Y Faraón dice: «No solo te voy a recompensar; te voy a poner a cargo de toda la tierra de Egipto» (Gn 41:39-41).
+
+Imagínate que estás en el pozo, aventado por tus hermanos, y alguien te dice: «No te preocupes; Dios tiene un plan, va a usar lo malo para lo bueno, un día las naciones se postrarán ante ti». Y tú dices: «Ni de chiste». Tú ya conoces la historia de José; José no la conocía. Tú no conoces tu historia, pero Dios sí. La historia de José es un espejo para preguntarte: «¿Dónde estoy? En el pozo, vendido como esclavo, en la cárcel. ¿Cuál es mi trabajo? Ser un siervo fiel». Su voluntad es buena, agradable y perfecta. Un día va a usar lo malo, aunque Él no lo causó, para lo bueno. Un día vas a ser llevado a bendecir a las naciones, a tu familia, al jefe que odias, porque el que va hilando el camino no eres tú ni ningún faraón ni presidente: es Dios.
+
+José no le dijo a Faraón: «Para cumplir esto, déjeme administrarle el reino». Solo le dijo: «Esto es, y esto vas a hacer». Y Faraón dijo: «Ten». La Biblia dice que Dios prosperaba todo lo que hacía, y podemos engañarnos pensando que solo por eso le iba bien. Es la combinación de las dos cosas: él era un siervo fiel, y Dios respondía con bendición. Tal vez estás en la cárcel, tal vez eres un esclavo, no sé tu temporada; pero eres amado por el Padre, puedes expresar el carácter de Cristo y recoger el fruto del Espíritu Santo.
+
+## Carácter, no dones
+
+Su posición nunca se la dieron sus dones y talentos. Interpretar sueños lo llevó al pozo. Administrar una casa lo llevó a la cárcel. Interpretar sueños en la cárcel lo dejó olvidado por el copero. Pero su carácter, siempre siervo fiel, íntegro, honrando a sus autoridades y a Dios, lo llevó a una posición. Los dones y talentos no dan posiciones; el carácter sí, porque el carácter otorga autoridad, que es el objetivo de una posición.
+
+Dios orquestó todo, usando la experiencia que José ganó en los procesos, para que Egipto prosperara. Guardan la comida siete años y llega la hambruna. Ahora sí José estaba viviendo su mejor vida; si quisiera escribir un libro, sería «Vive tu mejor vida hoy» o «Cómo hacerte rico en siete pasos». Imagínate que sabes que vienen siete años sin cosecha y te encargan administrar la comida de los primeros siete. Y el hambre llega no solo a Egipto, sino a toda la tierra, incluida Canaán, donde vivían sus hermanitos felices con su papá.
+
+## Los hermanos se postran
+
+Los hermanos dicen: «Vamos a Egipto, ahí tienen comida». Imagínate a José, sentado en su subtrono; el trono era de Faraón, pero él tenía como un subtrono. Y llegan sus hermanos y se postran ante él, como en el primer sueño. No lo reconocen: lo vendieron de muchacho, ya creció, ya pasó todo un proceso, y probablemente está vestido de egipcio. «Señor, venimos a comprar alimento». José los reconoce, se aparta y llora (Gn 42:24). Pero su corazón tenía todavía una pequeña raíz de amargura. Les pregunta por su padre, por su otro hermano: «Tráiganme a su hermano menor». Se queda con uno de ellos y los manda con comida. Yo creo que decían: «¿Cómo sabe? Ha de ser profeta».
+
+Regresan con Benjamín, ahora sí el favorito de su papá, y José les tiende una trampa: manda poner su copa de plata en el costal de Benjamín, los deja ir, y luego manda a su mayordomo a detenerlos. «Se robaron la copa». «No fuimos nosotros». La encuentran en el costal de Benjamín, y José dice: «El hombre en cuya mano fue hallada la copa será mi esclavo» (Gn 44:17).
+
+Y Judá se acerca: «Te ruego que quede ahora tu siervo como esclavo de mi señor, en lugar del muchacho, y que el muchacho suba con sus hermanos. Pues ¿cómo subiré a mi padre si el muchacho no está conmigo, sin que yo vea el mal que sobrevendrá a mi padre?» (Gn 44:33-34). «Ya le quitamos a su hijo amado, el de la túnica de colores; si llego sin Benjamín, se va a morir».
+
+«Entonces José no pudo contenerse delante de todos los que estaban junto a él, y exclamó: "Hagan salir a todos de mi lado"… Y lloró tan fuerte que lo oyeron los egipcios» (Gn 45:1-2). Yo creo que en ese encuentro algo hizo clic, y José interpretó su propio sueño: «No fueron ustedes; fue Dios quien me trajo». «Yo soy José. ¿Vive todavía mi padre?… Yo soy su hermano José, a quien ustedes vendieron a Egipto. Ahora pues, no se entristezcan ni les pese el haberme vendido aquí, pues para preservar vidas me envió Dios delante de ustedes. Porque en estos dos años ha habido hambre en la tierra y todavía quedan otros cinco años… Dios me envió delante de ustedes para preservarles un remanente en la tierra, y para guardarlos con vida mediante una gran liberación. Ahora pues, no fueron ustedes los que me enviaron aquí, sino Dios» (Gn 45:3-8). Y se echó sobre el cuello de su hermano Benjamín y lloró.
+
+## Antes de la gloria, el sufrimiento
+
+Como Esaú y Jacob, los hermanos se reconcilian: uno se echa sobre el otro, lo abraza, lo besa, llora. Algo bien bonito está pasando: José les quita el peso de la culpa y la vergüenza y le da la gloria a Dios: «Dios me envió delante de ustedes para preservarles la vida».
+
+Hay una clave: antes de las glorias de la resurrección siempre vienen las dificultades del sufrimiento. No hablo del sufrimiento causado por la carne, sino del proceso que vivió José, como el sufrimiento que Jesús llevó voluntariamente en la cruz para luego resucitar. Sí, su voluntad es buena; sí, las naciones serán bendecidas a través de tu familia; pero hay un proceso de sufrimiento antes de la gloria. Y Jesús lo muestra de manera mucho más increíble: antes de la resurrección pasó por la cruz, y ahí quitó la culpa y la vergüenza del pecado y la rebeldía, para que en la resurrección pudiéramos honrar a Dios.
+
+Se reconcilian los hermanos y la familia, llaman a Jacob, y Faraón les da una tierra llamada Gosén. No llegaron a Egipto como esclavos; llegaron como los hermanos de José, el que se encargó de que Egipto prosperara en los años de hambre. Y no les dio un pedacito. José sufrió años como esclavo y preso, mientras sus hermanos probablemente disfrutaban la vida en Canaán; ellos sufrieron dos añitos. Pero por mano de José llegaron a habitar una tierra donde prosperaron, bajo la potencia mundial de ese tiempo, que los iba a proteger, en un lugar donde se iban a multiplicar. Entraron setenta personas (Gn 46:27), y de ahí van a salir.
+
+## José y el Consolador
+
+En la vida de José vemos una constante integridad y fidelidad: honrando a Dios, a Potifar, al jefe de la cárcel, a Faraón y, aunque tuvo esa raíz de amargura, a su familia. Muchas veces hablamos de José como un tipo de Cristo, y sí. Pero yo creo que es más un tipo del Espíritu Santo, enviado delante de nosotros para preservar nuestra vida. Lo vamos a ver en el Éxodo: aunque el ángel de la muerte venía a quitar la vida, para Israel fue para preservarla. Y cuando José les dice «no fueron ustedes, fue Dios quien me envió», luego «los consoló y les habló cariñosamente» (Gn 50:21). El Espíritu Santo va delante de nosotros y, en los procesos de sufrimiento donde entran la culpa y la vergüenza, es el Consolador.
+
+Cuando honramos a Dios, nuestra identidad está clara: somos hijos amados del Padre, y Él está con nosotros todo el tiempo. Nuestro carácter es el de un siervo fiel, íntegro, y va a dar fruto sin importar la temporada. José dio fruto en la cárcel, como esclavo y como segundo de Faraón, y fue aumentando, no por sus dones, sino porque su carácter permaneció. Es como un árbol plantado junto a corrientes de agua: al principio ni da fruto, nomás crece y crece, hasta que se extiende, da sombra y eventualmente da fruto.
+
+## El cetro de Judá
+
+Antes de morir, Jacob bendice a todos sus hijos; eso es otra clase de quince días. Pero quiero mencionar una cosa. Cuando llega a Judá le dice: «A ti Judá, te alabarán tus hermanos; tu mano estará en el cuello de tus enemigos; se inclinarán a ti los hijos de tu padre. Cachorro de león es Judá… El cetro no se apartará de Judá, ni la vara de gobernante de entre sus pies, hasta que venga Siloh, y a él sea dada la obediencia de los pueblos» (Gn 49:8-10).
+
+¿Recuerdan que la cabeza de la serpiente va a ser aplastada? Eventualmente vendrá el León de la tribu de Judá. Por primera vez vemos que la simiente que viene de Abraham, Isaac y Jacob se promete ahora a través de Judá. Le está diciendo: el cetro, la autoridad, no se apartará de ti hasta que venga aquel a quien realmente le pertenece. «Recuerda Génesis 3:15: va a venir alguien a través de Abraham, Isaac y Jacob, y va a ser un rey que va a gobernar de manera legítima el diseño que yo diseñé». Y ese es Jesús.
+
+## «Dios lo cambió en bien»
+
+Cuando muere Jacob, los hermanos de José dicen: «Quizá José guarde rencor contra nosotros, y de cierto nos devuelva todo el mal que le hicimos» (Gn 50:15). Ante la culpa y la vergüenza, otra vez, vienen a pedirle perdón. Y José les dice: «No teman, ¿acaso estoy yo en lugar de Dios? Ustedes pensaron hacerme mal, pero Dios lo cambió en bien para que sucediera como vemos hoy, y se preservara la vida de mucha gente. Ahora pues, no teman. Yo proveeré para ustedes y para sus hijos». Y los consoló y les habló cariñosamente (Gn 50:19-21).
+
+Creo que este es nuestro rol individual: vivir los procesos honrando a Dios y dar fruto conforme a su voluntad. Y al final José les recuerda la promesa: «Dios ciertamente los visitará y los hará subir de esta tierra a la tierra que Él prometió en juramento a Abraham, a Isaac y a Jacob» (Gn 50:24), la misma que Dios le había anunciado a Abraham para después de cuatrocientos años (Gn 15:13-14). Ahí, donde inicia Éxodo, vamos a empezar la siguiente sesión.
