@@ -1,0 +1,168 @@
+# La Creación y el Pueblo de Dios: procesos y peleas
+
+> Jacob anhela la promesa, pero la busca engañando: compra la primogenitura que Esaú desprecia por un plato de lentejas y se viste como su hermano para recibir la bendición. Huye con miedo y vergüenza, y Dios lo encuentra en Betel. Engañado por Labán, aprende al Dios de procesos. En Peniel lucha con Dios hasta que Él lo quiebra, se aferra a Él y recibe el nombre de Israel. Se reconcilia con Esaú y lleva a su familia a dejar sus ídolos: así nace el pueblo por el que Dios bendice a las naciones.
+
+*Adaptado con ayuda de IA a partir de una clase grabada.*
+
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
+- Serie: Orígenes: La Creación y el Pueblo de Dios · Sesión 4 (parte 4 de 9)
+- URL: https://daniellira.com/clases/la-creacion-y-el-pueblo-de-dios-procesos-y-peleas/
+- Video: https://www.youtube.com/watch?v=wuLmHw1QHFw
+
+## Puntos clave
+
+- Nadie te puede robar la bendición de Dios, pero tú la puedes despreciar por un placer momentáneo.
+- Jacob anhela la promesa, pero la busca engañando; Dios usa aun eso: Cristo nos viste para que el Padre vea a su Hijo.
+- La condenación, el miedo y el aislamiento son señal de que no estamos honrando el gobierno de Dios.
+- El engañador engañado aprende al Dios de procesos: las promesas se cumplen a su tiempo.
+- En Peniel Dios quiebra a Jacob, que pasa de luchar a aferrarse: luchamos con la palabra para que nos transforme.
+- Los procesos de Dios terminan en reconciliación, como el abrazo de Esaú y Jacob.
+- Jacob consagra a su familia: la herencia eterna es enseñarles quién es Dios.
+
+---
+
+## El patrón, otra vez
+
+La clase de hoy se llama «Procesos y peleas» y tiene que ver con la historia de Jacob. Recordemos: Dios creó los cielos y la tierra y todo era bueno. Adán y Eva caminaban y platicaban con Dios; eso era lo que Él quería. Pero se rebelan contra su gobierno, toman el fruto queriendo autogobernarse, aunque fueron engañados por la serpiente. Caen Adán y Eva, caen Caín y Abel, y entran la condenación y el aislamiento, el miedo y la vergüenza.
+
+Lo repito porque es el patrón que vamos a ver cada vez, y luego lo puedes ver en tu vida. Cuando platicamos con personas, luego luego ves la respuesta: miedo, vergüenza, condenación, aislamiento. Sea lo que sea, esa respuesta no está honrando a Dios, y nuestro trabajo es regresar a su gobierno y honrarlo.
+
+Empiezan a gobernar con su propia sabiduría y corrompen toda la tierra. Yo creo que Dios casi le pide perdón a la tierra; no es lo que dice el texto, pero dice: «Me pesa haber hecho al hombre». Limita sus años a 120 para que no la corrompan tanto, y hace un pacto con la tierra. El hombre sigue autogobernándose y construye Babel para no llenar la tierra, pero Dios los dispersa en distintas lenguas y los llama a regresar a través de Abraham. Abraham tiene a Isaac, el hijo de la promesa, y cuando está a punto de entregarlo, Dios revela algo hermoso de su plan: Él proveerá el cordero que toma el lugar de Isaac, y el que toma la muerte que nos tocaba a ti y a mí.
+
+Hoy iniciamos ahí, sabiendo que Dios proveerá para sí un cordero a través de la familia de Abraham y la descendencia de Isaac.
+
+## Un Dios fiel en medio de los procesos
+
+La historia de Jacob revela a un Dios que sigue siendo fiel aun ante la rebeldía humana, aun cuando el ser humano se equivoca, se rebela y desprecia sus promesas. Vamos a notar sus procesos: cómo se aleja de Dios y luego se acerca, cómo llega un momento en que lucha con Él, y cómo Dios lo quiebra y entonces Jacob se aferra a Él. Peleas y procesos en los que Dios va afianzando su identidad, hasta que le dice: «Ahora tu nombre será Israel».
+
+Así que hoy la historia es la historia de Israel. Para mí es de las cosas más importantes, porque como cristianos muchas veces hemos olvidado a Israel. A veces ni entendemos qué significa y pensamos que es solo un pedazo de tierra. Sí incluye la tierra, pero la tierra para la descendencia de Abraham, Isaac y Jacob, de donde vendría la simiente que reinaría por siempre. «¿Y qué tiene que ver Jacob conmigo?». Todo, porque es la historia de Dios, y solo dentro de ella podemos entender la nuestra.
+
+## Dos naciones en un vientre
+
+«Isaac tenía cuarenta años cuando tomó por mujer a Rebeca, hija de Betuel… hermana de Labán. Isaac oró al Señor en favor de su mujer, porque ella era estéril; y lo escuchó el Señor, y Rebeca su mujer concibió» (Gn 25:20-21). El patrón se repite: Sara también era estéril. Pero Isaac sabía algo diferente: conocía la historia, había visto la mano de Dios, así que voltea a Dios y ora.
+
+Eran dos. ¿Alguien tiene gemelos? Mi hermano tiene gemelos, oren por él, es un caos. Yo tengo dos bebés que no son gemelas y es un caos. Los niños luchaban dentro de ella, y Rebeca dice: «Si es así, ¿para qué vivo?». La estaba pasando muy mal, pero el Señor le recuerda la promesa: «Dos naciones hay en tu seno, y dos pueblos se dividirán desde tus entrañas; un pueblo será más fuerte que el otro, y el mayor servirá al menor» (Gn 25:23).
+
+«El primero salió rojizo, todo cubierto de vello como una pelliza, y lo llamaron Esaú. Después salió su hermano, con su mano asida al talón de Esaú, y lo llamaron Jacob. Isaac tenía sesenta años cuando ella los dio a luz» (Gn 25:25-26). ¿Para qué describir así al pobre bebé, rojo y lleno de vello? Son pequeñas pistas que Dios nos va dejando, y más adelante esas dos cosas son relevantes. Veinte años después de casarse, «Señor, tú nos prometiste», le nacen gemelos a los sesenta. Si alguien tiene gemelos a los sesenta, que Dios lo acompañe.
+
+## La primogenitura
+
+Jacob es hijo de Isaac, pero no el primogénito, y la bendición venía a descansar sobre el primogénito. Es como un papá que hace crecer una empresa y se la tiene que dejar a alguien: en esa época, naturalmente, al primogénito. Pero el primogénito podía decir: «Yo no la quiero, dásela al que sigue». No se trata solo de haber nacido primero; es una bendición que se le daba al primogénito, por eso se llama primogenitura.
+
+Crecen. Jacob era un hombre tranquilo que habitaba en tiendas, y hacía un guisado increíble; era el favorito de su mamá. Esaú era un cazador muy hábil, siempre regresaba con una presa, y era el favorito de su papá (Gn 25:27-28).
+
+Un día Esaú llega del campo agotado, y Jacob está cocinando unas lentejas increíbles. Yo creo que Esaú pensó: «En lugar de sentarme a preparar lo que cacé, que aparte no me sale tan bien, déjame pedirle a mi hermano». El nombre de Jacob significa el suplantador, el engañador, y fue fiel a su nombre: «Mira, huélelas. Te doy un platito, pero dame tu primogenitura». Y Esaú, que ya estaba en el tercer cielo con el olor, se la vende (Gn 25:29-34).
+
+Hoy no tiene sentido: ¿por un plato de lentejas, por un placer momentáneo, desecha toda su bendición? Para él tenía todo el sentido del mundo, porque estaba en el momento. Así es como Esaú menospreció su primogenitura.
+
+## Nuestro plato de lentejas
+
+Lo vemos muy loco, pero tú y yo hacemos eso todos los días. Dios nos ha bendecido con su nombre, con su palabra, con su iglesia, y hay veces que olemos el platito de lentejas: «Hoy no me voy a levantar temprano». «En vez de leer la Biblia se me antojó esta serie que dicen que está buenísima». No tiene nada de malo una serie. Pero cuando significa intercambiar la bendición de Dios por un placer momentáneo, estamos siendo como Esaú. Dios nos eligió, nos santificó, nos redimió, nos compró con su sangre y nos dio una tarea, y a veces vivimos solo para vivir nuestra mejor vida hoy: «Dios, bendíceme». Esaú fue bendecido con un plato de lentejas, pero perdió su primogenitura.
+
+La clave no es que Jacob la haya ganado, porque lo hizo deshonrando a Dios. Lo que sucede es que Esaú la menospreció. Nadie te puede robar la bendición que Dios te ha dado, pero tú la puedes despreciar. Y mientras Esaú la desprecia, Jacob la anhela. La anhela de mala manera, en rebeldía, pero sabía que esa promesa tenía que ver con Génesis 3:15: la simiente que vendría a través de Abraham, de Isaac, y ahora la pregunta era si a través de Jacob o de Esaú. Jacob dijo: «Le voy a ayudar a Dios, porque quiero que venga a través de mí». Y Esaú dijo: «Es más importante un plato de lentejas que aquella simiente». No era una pequeña bendición; era la promesa completa.
+
+## Vestido como su hermano
+
+Jacob siente que ya tiene el derecho, pero ¿cómo se lo dice a su papá? Isaac había estado en el altar y había visto a Dios proveer; sabía honrar a Dios y sabía que eso no lo honraba. Así que Jacob, otra vez fiel a su nombre, repite el patrón de rebeldía en vez de sujetarse al gobierno de Dios.
+
+Isaac ya está viejito y le dice a Esaú: «Sal al campo, caza algo para mí, prepárame un guisado y te bendeciré antes de morir». Rebeca escucha y le dice a Jacob: «Ve al rebaño, tráeme dos buenos cabritos; yo prepararé el guisado como le gusta a tu padre, y tú se lo llevarás para que te bendiga». Jacob se pone la mejor ropa de Esaú, y Rebeca le cubre las manos y el cuello con las pieles de los cabritos (Gn 27:1-17). ¿Se acuerdan de que Esaú nació lleno de vello? Si Jacob se acercaba sin vello y su papá lo tocaba, iba a decir: «Este no es mi hijo». Tenía que encubrirse y suplantar la identidad de su hermano para recibir la bendición.
+
+Les leo los versículos porque luego no me van a creer. Isaac escuchaba y pensaba: «La voz es la voz de Jacob». Y le dice: «Acércate ahora y bésame, hijo mío». «Él se acercó y lo besó; y al notar el olor de sus vestidos, lo bendijo, diciendo: "El olor de mi hijo es como el aroma de un campo que el Señor ha bendecido. Dios te dé, pues, del rocío del cielo, y de la grosura de la tierra, y abundancia de grano y de mosto. Sírvante pueblos, y póstrense ante ti naciones; sé señor de tus hermanos… Malditos los que te maldigan, y benditos los que te bendigan"» (Gn 27:26-29). Es lo que Dios le dijo a Abraham: Isaac toma la bendición de Abraham y se la da a Jacob.
+
+Otra vez es deshonra a Dios, y deshonra a su papá, porque lo está engañando. Pero esta historia es hermosa porque deja ver que aun lo que es deshonra Dios lo va a usar para bendecir. Jacob se vistió de pieles con sus propias fuerzas para oler como el hijo amado de Isaac. Pero un día Cristo vino y nos viste con su carácter, nos cubre con su sangre, para que cuando el Padre nos ve, nos huele y nos toca, vea a su Hijo, y entonces nos da la bendición. No para engañar, sino porque Él ya proveyó el sacrificio. Cubiertos de su Hijo, como Jacob se cubrió de Esaú, el Padre ve a su Hijo amado y nos hace partícipes de la bendición.
+
+## Huyendo
+
+¿Qué causa siempre la rebeldía contra el gobierno de Dios? Condenación, expresada en miedo, vergüenza y aislamiento. Siempre preguntamos: «¿Cómo sé si es la voluntad de Dios?». ¿Estás sintiendo condenación? ¿Miedo? ¿Vergüenza al ver a alguien a la cara? ¿Te estás aislando de la iglesia, del cuerpo, de tu familia? Entonces probablemente estamos actuando en contra, aunque parezca algo bueno. Escuchen bien: Jacob quería la bendición de su padre, y tú y yo queremos la bendición del nuestro; pero cuando no lo hacemos honrando su gobierno, va a provocar condenación, aislamiento y vergüenza.
+
+Esaú llega justo a tiempo para ver que su papá acaba de darle la bendición a su hermano. Isaac se da cuenta: «¿Qué hice?». Ya le dio las escrituras de la empresa; ya no hay nada que hacer. Esaú quiere matar a Jacob, y Jacob huye lleno de miedo.
+
+«Pobrecito Esaú, si no hizo nada malo». Primero, despreció su primogenitura; segundo, se pudo haber arrepentido. Cuando Jacob se va, su papá le pide: «No tomes mujer de las hijas de Canaán» (Gn 28:1). Y Jacob hace caso. ¿Adivinen quién no? Esaú escucha, «ah, con que a mi papá no le caen bien las cananeas», y además de las mujeres que ya tenía, va y se casa con una hija de Ismael (Gn 28:8-9). Otra vez la rebeldía del corazón humano. No se trata de quién es bueno o malo, sino de cómo respondemos ante las promesas de Dios.
+
+## Betel: el primer encuentro
+
+Jacob sale lleno de culpa, miedo y vergüenza. Pero ante la vergüenza y el miedo, Dios siempre viene con sus pactos de restauración. En un sueño, «el Señor estaba de pie junto a él, y dijo: "Yo soy el Señor, el Dios de tu padre Abraham y el Dios de Isaac. La tierra en la que estás acostado te la daré a ti y a tu descendencia. También tu descendencia será como el polvo de la tierra… y en ti y en tu descendencia serán bendecidas todas las familias de la tierra. Yo estoy contigo. Te guardaré por dondequiera que vayas y te haré volver a esta tierra, porque no te dejaré hasta que haya hecho lo que te he prometido"» (Gn 28:13-15).
+
+Jacob despierta: «Ciertamente el Señor está en este lugar y yo no lo sabía… ¡Cuán imponente es este lugar! Esto no es más que la casa de Dios, y esta es la puerta del cielo» (Gn 28:16-17). Yo creo que estaba acostado en el desierto lamentándose: «Estoy solo, mi papá me corrió de la casa». Y Dios le dice: «Recuerda: a través de ti vendrá aquel que pondrá fin a todo el dolor, el aislamiento, la culpa y la vergüenza. Levántate».
+
+Dios se presenta como el Dios de Abraham y de Isaac. Y cuando se presenta a ti y a mí hoy, no lo hace como un Dios nuevo, con una nueva revelación. Se presenta como el Dios de Abraham, de Isaac y de Jacob: el creador de los cielos y la tierra, el que hizo la promesa de Génesis 3:15, el que la sostuvo con los patriarcas, el que sacó a Israel de Egipto y lo plantó en la tierra, el que se hizo carne y nació en la tierra prometida para ir por todas las naciones.
+
+Y sobre todo: «Jacob, en ti serán benditas todas las naciones. No lo hago porque seas bueno; engañaste a tu papá y a tu hermano. Lo hago por mi plan de bendecir a todas las naciones». Tres caídas, y ahora tres generaciones: un Dios de generaciones, una sola promesa, un solo Dios, apuntando otra vez a Génesis 3:15.
+
+## El engañador engañado
+
+Jacob llega con su tío Labán y ve a Raquel. «Trabaja para mí siete años y te la doy». Y Jacob dice: «Va. Dios me prometió que a través de mí vendría la simiente; siete años no es nada. Si mi papá esperó veinte años por un hijo, yo puedo». Y le parecieron como unos pocos días, por lo mucho que la amaba (Gn 29:20).
+
+Se hace la boda, y a la mañana siguiente descubre que no era Raquel: era Lea. «Suegro, ¿qué onda? Si me ibas a dar a ella». «Aquí no se acostumbra dar a la menor antes que a la mayor. Cumple la semana de esta, y te daremos también a la otra por otros siete años de trabajo» (Gn 29:25-27). El engañador terminó siendo el engañado. Se casa con Raquel y trabaja otros siete años.
+
+¿Qué pasa cuando no honramos a Dios? Viene la condenación. Esto no es parte de la clase, pero lo leí y me encantó. Lea se siente rechazada; imagínate, se casó contigo y no se quería casar contigo. Le nace un hijo, Rubén: «El Señor ha visto mi aflicción; ahora mi marido me amará». Luego Simeón: «El Señor oyó que soy aborrecida». Luego Leví: «Ahora mi marido se unirá a mí». Y luego Judá: «Esta vez alabaré al Señor» (Gn 29:31-35). En el proceso, Dios redimió el corazón de Lea: de un dolor que Dios vio, de un clamor que Dios escuchó, de una necesidad de ser amada, a entender que Dios estaba con ella y la amaba.
+
+Y Raquel, que no tiene hijos, le da a su sierva. Es un desastre. La familia de Israel, por la que todos somos bendecidos, es un desastre, y esa es la buena noticia, porque mi familia y tu familia probablemente también lo son. La promesa no descansa en lo que somos o hacemos, sino en la bondad de nuestro Dios. Tienen doce hijos de cuatro mujeres.
+
+## Un Dios de procesos
+
+Lo importante es que durante esos catorce años, y lo que sigue, Jacob no le reclama a Dios: «Tú me prometiste; alguien un día me profetizó». Empieza a entender al Dios de procesos, al Dios que es fiel, y a vivir de acuerdo con su carácter. Habiendo engañado y siendo engañado, su corazón fue quebrantado, y empieza a ver a Dios de forma diferente. Con cada hijo: «¿Será este?».
+
+En el proceso de Jacob vemos lo que significa vivir en las promesas de Dios. El cumplimiento no es de un momento a otro; es un proceso en el que podemos descansar, porque conocemos al Dios que es fiel para cumplir sus promesas. Eso es la fe: «la certeza de lo que se espera, la convicción de lo que no se ve» (Heb 11:1). ¿Dónde la encontramos? En los pactos del Señor y en su carácter fiel. La buena noticia es que tú ya sabes quién fue: se llama Cristo Jesús, y nosotros podemos presentárselo al mundo.
+
+A Jacob le empieza a ir muy bien. Es trabajador, fiel al carácter de Dios, y además bendecido por Dios. Como tú y yo: si le echas ganas al trabajo y eres fiel, te va a ir bien, no solo por echarle ganas, sino porque lo hacemos para Dios, no para reclamar una promesa. Prospera su ganado, y los hijos de Labán le empiezan a tener envidia. Mismo patrón.
+
+## «Vuelve a la tierra de tus padres»
+
+Ahí Dios le habla de nuevo: «Vuelve a la tierra de tus padres y a tus familiares, y Yo estaré contigo» (Gn 31:3). Es hora de poner en marcha las promesas. Abraham escuchó «deja tu tierra y tu parentela»; Jacob escucha «vuelve a tu tierra y a tu parentela».
+
+Y vuelve el miedo de su pasado: Esaú. «Dios me manda regresar, pero si regreso me van a matar». Ora, y es medio barbero: «Oh Dios de mi padre Abraham y Dios de mi padre Isaac, oh Señor, que me dijiste: "Vuelve a tu tierra… y Yo te haré prosperar", indigno soy de toda misericordia y de toda la fidelidad que has mostrado a Tu siervo; porque con solo mi cayado crucé este Jordán, y ahora he llegado a tener dos campamentos. Líbrame, te ruego, de la mano de mi hermano, de la mano de Esaú, porque yo le tengo miedo… Y Tú dijiste: "De cierto te haré prosperar, y haré tu descendencia como la arena del mar"» (Gn 32:9-12).
+
+Los procesos lo quebraron de tal manera que, en vez de engañar para recibir la bendición, entendió que no era digno y que era Dios quien lo había prosperado: «Yo solo crucé con una vara, y tú me diste una familia y ganado». Y se sabe la promesa: «Tú dijiste que tendría descendencia, y ellos me quieren matar; ¿cómo le vas a hacer?».
+
+¿Adivinen qué le contestó Dios? Nada. Lo dejó en visto. «Muy bonita tu oración, le echaste ganas a la redacción». Pero Jacob había aprendido a honrar a Dios, a creer en su gobierno y su fidelidad a pesar del miedo, la vergüenza y lo que veía imposible. Así que empieza a caminar hacia Canaán.
+
+## Peniel: el segundo encuentro
+
+Va quebrantado, lleno de miedo por encontrarse con Esaú, y se topa con un hombre. «Jacob se quedó solo, y un hombre luchó con él hasta rayar el alba» (Gn 32:24). Hasta este momento la Biblia no nos dice quién es. Pelean toda la noche, y cuando el hombre ve que no puede prevalecer, que este no se va a cansar nunca, que tiene la garra para seguir, le toca la coyuntura del muslo, y se le disloca mientras luchaba.
+
+Y Jacob pasa de luchar contra este hombre a aferrarse a él. «Suéltame, porque raya el alba». «No te soltaré si no me bendices» (Gn 32:26). Algo tuvo que haber entendido Jacob para pasar de luchar a sujetarse con todas sus fuerzas: sabía que este hombre podía bendecirlo. Aun herido, en medio del dolor, le decía: «No te soltaré».
+
+«¿Cómo te llamas?». «Jacob». «Ya no será tu nombre Jacob, sino Israel, porque has luchado con Dios y con los hombres, y has prevalecido» (Gn 32:27-28). Le cambia la identidad: deja de ser el suplantador, el engañador y el engañado, y comienza a ser Israel. En esa frase le está diciendo que este hombre con el que luchó era Dios mismo, el que le dislocó la cadera.
+
+Jacob le dice: «Dame a conocer tu nombre». «¿Para qué preguntas por mi nombre?». Y la Biblia dice: «Y lo bendijo allí» (Gn 32:29). Yo no sé qué pasó; no estuve ahí. Algún día se lo voy a preguntar. Pero probablemente la bendición no fue solo cambiarle el nombre, sino decirle el suyo; y tal vez ese nombre pudo haber sido Jesús. Tal vez Jacob pudo ver la simiente prometida, cara a cara, y dijo: «Por Él daré mi vida. Él es el Señor; traspasó mi corazón y he prevalecido».
+
+¿Cómo lo sabemos? «Jacob le puso a aquel lugar el nombre de Peniel, porque dijo: "He visto a Dios cara a cara, y ha sido preservada mi vida"» (Gn 32:30). Hay una canción bien bonita que dice que un día lo veremos cara a cara. Cuando ni era cristiano la escuchaba y lloraba; no sé por qué. Es un anhelo que Dios depositó en cada uno de nosotros. Jacob vio cara a cara a quien yo creo que es Jesús: el mismo Verbo que se hizo carne y caminó entre nosotros, la misma simiente de Génesis 3:15.
+
+## Luchar con la palabra
+
+Ese mismo se presenta ante ti y te dice: «Estoy listo para que luches conmigo». Dios ha provisto un lugar de encuentro: su palabra. Nuestro trabajo es luchar con la palabra de Dios, no para ganarle, porque nunca le vas a ganar, sino para que Él nos quiebre, traspase nuestro corazón y transforme nuestra identidad desde lo profundo. Cuando abres la palabra y peleas por entenderla, por buscar sus patrones; cuando peleas por tiempos de oración en una agenda llena de cosas, peleamos porque tenemos un hambre insaciable, que no se saciará hasta que Él regrese como Rey y, como Jacob, lo veamos cara a cara.
+
+Tiene que llegar el día en que abras la palabra y digas: «Estoy listo para luchar, y no me voy a ir de aquí hasta que me bendigas». Y vas a pasar de tratar de ganarle a la Biblia y hacerla a tu gusto, a que Dios te quiebre por completo y digas: «Ahora me sujeto, porque esto es lo que tiene bendición». Ahí Él abre nuestro corazón y nos muestra cara a cara a Cristo revelado en su palabra.
+
+Después de pelear, su nombre fue cambiado a Israel, y ahora va caminando, pero cojeando. Cuando Dios te traspasa el corazón, toda tu vida cambia para siempre; ya no eres igual.
+
+## Esaú y Jacob se abrazan
+
+Va cojeando con toda su familia, y de repente: Esaú. Jacob le manda siervos con regalos, se inclina, pide perdón. Pero «Esaú corrió a su encuentro y lo abrazó, se echó sobre su cuello y lo besó, y lloraron» (Gn 33:4). «Tengo bastante, hermano mío». Y Jacob: «He visto tu rostro como quien ve el rostro de Dios, y me has recibido favorablemente».
+
+Así como Caín y Abel se separaron, Esaú y Jacob se reconcilian. Los hermanos, en medio de los procesos, aprendieron a honrar a Dios y a decir: «Está bien que la promesa venga a través de él y no de mí, porque es el plan de Dios y Dios quiere bendecirnos a todos». ¿Dónde se acaba el proceso? En la reconciliación.
+
+Si mientras platicamos piensas: «Estoy peleado con mi hermano, con mi papá, con mis hijos», entra a los procesos de Dios. Abre la palabra, pelea con Él, deja que quiebre tu corazón para que un día puedas volver con esa persona, abrazarse y decir: «Perdóname, no tengo nada contra ti». Un corazón humilde: Jacob ante aquel a quien engañó, Esaú ante quien lo engañó, y aun así lo hacen a un lado y vuelven a ser hermanos.
+
+Esa reconciliación revela el corazón de Dios para las naciones. Es el plan para Isaac e Ismael, cuyas descendencias hoy ves peleadas, pero que yo creo que un día, antes del regreso de Jesús, se van a reconciliar. Será un testimonio enorme ver a musulmanes y judíos unidos en Cristo, y la gente va a decir: «El Dios de Abraham, de Isaac y de Jacob es real, y la simiente prometida está por venir».
+
+## Betel otra vez: consagrar a la familia
+
+Jacob el suplantador pasó a ser Israel el patriarca, padre de las doce tribus, y ahora no solo lleva su persona al gobierno de Dios, sino a toda su familia. Pasan una serie de eventos horribles en los que sus hijos también se descarrilan; léanlo, está horrible. Pero llega el momento en que Jacob dice: «Es momento de regresar a Dios».
+
+En el primer encuentro, Dios le confirma su promesa. En el segundo, pelea con él, le reafirma la promesa y le cambia el nombre. En el tercero, ya con sus hijos, es momento de consagrarse. «Levántate, sube a Betel y habita allí; haz allí un altar a Dios, que se te apareció cuando huías de tu hermano Esaú». Y Jacob dice a su casa: «Quiten los dioses extranjeros que hay entre ustedes, purifíquense y cámbiense los vestidos. Levantémonos y subamos a Betel; allí haré un altar a Dios, quien me respondió en el día de mi angustia y ha estado conmigo en el camino por donde he andado». Le entregaron todos los dioses extranjeros y los aretes de sus orejas, y Jacob los escondió debajo de la encina junto a Siquem (Gn 35:1-4).
+
+Jacob, sabiendo su identidad, toma la responsabilidad: «Tú me has dicho que en mí serán benditas todas las familias, pero empieza con la mía». La única bendición con valor eterno que podemos darle a nuestra familia es que se deshagan de sus dioses para que conozcan y adoren al único Dios verdadero.
+
+Les enseñó a sus hijos quién es Dios y su carácter único y celoso: el Dios de Abraham, de Isaac y de Jacob, el único Dios; no tendrás otros dioses, como Dios dirá después en el pacto con Moisés. Los purificó, quitando sus ídolos y sus cargas, y edificó un altar con ellos: un lugar de adoración y de encuentro. Ellos no tenían la palabra escrita; tú y yo sí. Tengas hijos o no, estés casado o no, tengas nietos, nuestro trabajo, más allá de cualquier herencia, es enseñarles quién es Dios, que sean purificados por el lavamiento de su palabra y el arrepentimiento, y que se encuentren con Él por su Espíritu Santo.
+
+## Tanto amó Dios a las naciones
+
+«Porque de tal manera amó Dios al mundo, que dio a Su Hijo unigénito, para que todo aquel que cree en Él no se pierda, sino que tenga vida eterna» (Jn 3:16). Y aquí podríamos decir: tanto amó Dios a las naciones que escogió a Israel. Tanto te amó a ti que, antes de que existieras, antes de que existiera México o tu familia, te eligió a través de un pueblo llamado Israel para que fueras bendecido, para que lo conocieras, para que fuera un faro a las naciones y, cuando estés naufragando, perdido y con dolor, pudieras regresar a Él. En cada una de las tres caídas Dios dio una promesa, y todas apuntan a un solo hombre, Cristo Jesús, que vendría a través de Israel.
+
+Por eso amamos al pueblo de Israel. Pablo decía que desearía él mismo ser separado de Cristo por amor a sus hermanos (Ro 9:3). No amamos a Israel porque seamos el nuevo Israel; lo amamos porque hemos sido injertados en ese Israel y por él hemos sido bendecidos. No se trata de geopolítica ni del gobierno en turno; se trata de que Israel fue elegido, plantado y diseñado por Dios para bendecirte a ti y a mí.
+
+Es como Esaú cuando ve a Jacob y lo reconoce como su hermano. Ese patrón lo ves también con Isaac e Ismael: cada vez que se topan estas descendencias, unos atacan y otros protegen. Y así con las naciones: siempre habrá naciones que se unan a la misión de Dios a través de Israel, y otras que los odien y los quieran destruir, como ves en el mundo actual. Al final, solo Cristo salva. No se trata de ser judío, sino de que a través de ellos seremos bendecidos. Nuestro trabajo es provocarles un celo santo, que digan: «Ellos conocen al Dios de Abraham, de Isaac y de Jacob; ese es mi Dios», y presentárselo por la palabra, para que, como Jacob, lo vean cara a cara y digan: «He sido bendecido, porque soy conocido y amado, y ahora lo puedo conocer y amar».
+
+Así tuvo Jacob doce hijos, las doce tribus de Israel, que eventualmente terminan en Egipto. En la siguiente sesión veremos cómo llegaron ahí.
