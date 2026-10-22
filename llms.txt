@@ -1,6 +1,6 @@
 # Daniel Lira Serhan
 
-> Maestro de la Biblia en Monterrey, Nuevo León, México. Autor de la serie Orígenes (cinco libros sobre la Torá; el primero es "Orígenes: El evangelio en Génesis", cuya edición 2 está por publicarse) y coautor de "Nacer de nuevo" con Luis Ortiz y Rodrigo Weigend. Estudiante de maestría en Talbot School of Theology (Biola University); estudió en Dallas Baptist University. Dirige Intensivo Convivencia, programa de discipulado para jóvenes, y sirve en la iglesia Convivencia Familiar Monterrey. Sitio principalmente en español (es-MX); algunos ensayos en inglés.
+> Vive en Monterrey, Nuevo León, México. Autor de la serie Orígenes (cinco libros sobre la Torá; el primero es "Orígenes: El evangelio en Génesis", cuya edición 2 está por publicarse) y coautor de "Nacer de nuevo" con Luis Ortiz y Rodrigo Weigend. Estudiante de maestría en Talbot School of Theology (Biola University); estudió en Dallas Baptist University. Dirige Intensivo Convivencia, programa de discipulado para jóvenes, y sirve en la iglesia Convivencia Familiar Monterrey. Sitio principalmente en español (es-MX); algunos ensayos en inglés.
 
 Cómo usar este sitio:
 
@@ -11,7 +11,7 @@ Cómo usar este sitio:
 
 ## Sitio
 
-- [Página principal](https://daniellira.com/): biografía, historia personal, videos, libros, ensayos, clases y contacto
+- [Página principal](https://daniellira.com/): biografía, historia personal, libros, ensayos, clases y contacto
 - [Ensayos](https://daniellira.com/ensayos/): lista de ensayos académicos (español e inglés)
 - [Clases adaptadas](https://daniellira.com/clases/): clases en vivo adaptadas a texto
 - [Predicaciones](https://daniellira.com/predicaciones/): predicaciones y conversaciones en Convivencia Familiar Monterrey, con video y texto adaptado
