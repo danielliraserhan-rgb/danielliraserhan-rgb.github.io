@@ -111,7 +111,7 @@ Yo me imagino que este entrenamiento no era tanto para Abraham. Sí tenía que v
 
 Van caminando por la montaña con los siervos; Isaac carga la leña. Abraham les dice a los siervos que esperen: «Mi hijo y yo iremos solos». Y en el camino: «Padre mío». «Aquí estoy, hijo mío», como si no pasara nada, como si fueran de campo. «Aquí están el fuego y la leña, pero ¿dónde está el cordero para el holocausto?». Y Abraham, muy inteligente, no le dice «eres tú, hijo». Le dice: «Dios proveerá para sí el cordero para el holocausto, hijo mío». «Y los dos iban juntos» (Gn 22:7-8).
 
-Isaac es un joven que voltea a ver al papá al que había aprendido a honrar, al que había visto hacer sacrificios y adorar a Dios. Y en medio de esta conversación, camino al sacrificio, vemos un vistazo del hermoso y perfecto plan de Dios.
+Isaac, un jovencito de 25 años, voltea a ver al papá al que había aprendido a honrar, al que había visto hacer sacrificios y adorar a Dios. Y en medio de esta conversación, camino al sacrificio, vemos un vistazo del hermoso y perfecto plan de Dios.
 
 Caín y Abel fueron a ofrecer un sacrificio, y solo el que agradaba a Dios fue aceptado; Caín no llevó lo primero ni lo mejor, no buscó lo que agradaba a Dios. Pero de aquí en adelante, el único sacrificio que satisface a Dios es uno que Él provee para sí mismo. Ningún sacrificio que tú y yo podamos hacer es suficiente. «Voy a ayunar como sacrificio a Dios». No es para Él; es para que tú te acuerdes de Él y te alinees con Él. Él no lo necesita, porque Él proveerá un cordero y estará satisfecho.
 
@@ -131,7 +131,7 @@ Lo único que necesitan a veces es dar un pasito y decir: «Tengo que experiment
 
 ## Un carnero, y un día el Cordero
 
-Dios no proveyó en ese momento un cordero, sino un carnero. Hay un juego de palabras: es el mismo tipo de animal, pero más grande. Dios no se equivoca con las palabras que inspira, y yo lo leo así: este sacrificio cubrió la vida de Isaac por un ratito, pero un día Dios proveería al Cordero. Por eso Juan, el que bautizaba, ve un día venir a Jesús y dice: «Ahí está el Cordero de Dios que quita el pecado del mundo» (Jn 1:29). Y los judíos de ese momento podían voltear al día en que Isaac fue sustituido y entender que un día su vida sería sustituida por la de Cristo.
+Dios no proveyó en ese momento un cordero, sino un carnero. Hay un juego de palabras: es el mismo tipo de animal, pero más grande. Dios no se equivoca con las palabras que inspira, y está diciendo: este sacrificio cubrió la vida de Isaac por un ratito, pero un día Dios proveería al Cordero. Por eso Juan, el que bautizaba, ve un día venir a Jesús y dice: «Ahí está el Cordero de Dios que quita el pecado del mundo» (Jn 1:29). Y los judíos de ese momento podían voltear al día en que Isaac fue sustituido y entender que un día su vida sería sustituida por la de Cristo.
 
 Por eso Pablo entiende que, si Cristo murió para que yo viva, ahora yo muero para que Cristo viva en mí. La vida que le tocaba a Cristo, nosotros la debemos vivir; somos sus embajadores, porque Él nos sustituyó. Es como si dijera: «A ti te toca la cruz y a mí hacer milagros, predicar el evangelio, sanar enfermos, liberar personas, cuidar al pobre, ir por el marginado, hablar esperanza. Vamos a hacer un trueque: yo muero por ti para que estés eternamente conmigo, pero ahora tú vive por mí». «Con Cristo he sido crucificado, y ya no soy yo el que vive, sino que Cristo vive en mí» (Gá 2:20). Y desde la cárcel dice: «quiero conocerlo a Él» (Fil 3:10).
 

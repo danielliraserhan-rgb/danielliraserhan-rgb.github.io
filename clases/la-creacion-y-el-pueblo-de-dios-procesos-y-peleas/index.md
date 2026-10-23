@@ -39,7 +39,7 @@ Así que hoy la historia es la historia de Israel. Para mí es de las cosas más
 
 ## Dos naciones en un vientre
 
-«Isaac tenía cuarenta años cuando tomó por mujer a Rebeca, hija de Betuel… hermana de Labán. Isaac oró al Señor en favor de su mujer, porque ella era estéril; y lo escuchó el Señor, y Rebeca su mujer concibió» (Gn 25:20-21). El patrón se repite: Sara también era estéril. Pero Isaac sabía algo diferente: conocía la historia, había visto la mano de Dios, así que voltea a Dios y ora.
+Pasaron alrededor de veinte años desde el momento en que Dios lo detiene en el monte. «Isaac tenía cuarenta años cuando tomó por mujer a Rebeca, hija de Betuel… hermana de Labán. Isaac oró al Señor en favor de su mujer, porque ella era estéril; y lo escuchó el Señor, y Rebeca su mujer concibió» (Gn 25:20-21). El patrón se repite: Sara también era estéril. Pero Isaac sabía algo diferente: conocía la historia, había visto la mano de Dios, así que voltea a Dios y ora.
 
 Eran dos. ¿Alguien tiene gemelos? Mi hermano tiene gemelos, oren por él, es un caos. Yo tengo dos bebés que no son gemelas y es un caos. Los niños luchaban dentro de ella, y Rebeca dice: «Si es así, ¿para qué vivo?». La estaba pasando muy mal, pero el Señor le recuerda la promesa: «Dos naciones hay en tu seno, y dos pueblos se dividirán desde tus entrañas; un pueblo será más fuerte que el otro, y el mayor servirá al menor» (Gn 25:23).
 
@@ -119,7 +119,7 @@ Los procesos lo quebraron de tal manera que, en vez de engañar para recibir la 
 
 ## Peniel: el segundo encuentro
 
-Va quebrantado, lleno de miedo por encontrarse con Esaú, y se topa con un hombre. «Jacob se quedó solo, y un hombre luchó con él hasta rayar el alba» (Gn 32:24). Hasta este momento la Biblia no nos dice quién es. Pelean toda la noche, y cuando el hombre ve que no puede prevalecer, que este no se va a cansar nunca, que tiene la garra para seguir, le toca la coyuntura del muslo, y se le disloca mientras luchaba.
+Va quebrantado, lleno de miedo por encontrarse con Esaú, y se topa con un hombre. «Jacob se quedó solo, y un hombre luchó con él hasta rayar el alba» (Gn 32:24). Hasta este momento la Biblia no nos dice quién es. Pelean toda la noche, y cuando el hombre ve que no puede prevalecer, que este no se va a cansar nunca, que tiene la garra para seguir, con su dedo le rompe la cadera; lo traspasa. Se le tocó la coyuntura del muslo y se le dislocó mientras luchaba.
 
 Y Jacob pasa de luchar contra este hombre a aferrarse a él. «Suéltame, porque raya el alba». «No te soltaré si no me bendices» (Gn 32:26). Algo tuvo que haber entendido Jacob para pasar de luchar a sujetarse con todas sus fuerzas: sabía que este hombre podía bendecirlo. Aun herido, en medio del dolor, le decía: «No te soltaré».
 
@@ -161,7 +161,7 @@ Les enseñó a sus hijos quién es Dios y su carácter único y celoso: el Dios 
 
 «Porque de tal manera amó Dios al mundo, que dio a Su Hijo unigénito, para que todo aquel que cree en Él no se pierda, sino que tenga vida eterna» (Jn 3:16). Y aquí podríamos decir: tanto amó Dios a las naciones que escogió a Israel. Tanto te amó a ti que, antes de que existieras, antes de que existiera México o tu familia, te eligió a través de un pueblo llamado Israel para que fueras bendecido, para que lo conocieras, para que fuera un faro a las naciones y, cuando estés naufragando, perdido y con dolor, pudieras regresar a Él. En cada una de las tres caídas Dios dio una promesa, y todas apuntan a un solo hombre, Cristo Jesús, que vendría a través de Israel.
 
-Por eso amamos al pueblo de Israel. Pablo decía que desearía él mismo ser separado de Cristo por amor a sus hermanos (Ro 9:3). No amamos a Israel porque seamos el nuevo Israel; lo amamos porque hemos sido injertados en ese Israel y por él hemos sido bendecidos. No se trata de geopolítica ni del gobierno en turno; se trata de que Israel fue elegido, plantado y diseñado por Dios para bendecirte a ti y a mí.
+Por eso amamos al pueblo de Israel. Pablo decía: «Daría mi salvación para que mi pueblo se encontrara con Él» (Ro 9:3). No amamos a Israel porque seamos el nuevo Israel; lo amamos porque hemos sido injertados en ese Israel y por él hemos sido bendecidos. No se trata de geopolítica ni del gobierno en turno; se trata de que Israel fue elegido, plantado y diseñado por Dios para bendecirte a ti y a mí.
 
 Es como Esaú cuando ve a Jacob y lo reconoce como su hermano. Ese patrón lo ves también con Isaac e Ismael: cada vez que se topan estas descendencias, unos atacan y otros protegen. Y así con las naciones: siempre habrá naciones que se unan a la misión de Dios a través de Israel, y otras que los odien y los quieran destruir, como ves en el mundo actual. Al final, solo Cristo salva. No se trata de ser judío, sino de que a través de ellos seremos bendecidos. Nuestro trabajo es provocarles un celo santo, que digan: «Ellos conocen al Dios de Abraham, de Isaac y de Jacob; ese es mi Dios», y presentárselo por la palabra, para que, como Jacob, lo vean cara a cara y digan: «He sido bendecido, porque soy conocido y amado, y ahora lo puedo conocer y amar».
 

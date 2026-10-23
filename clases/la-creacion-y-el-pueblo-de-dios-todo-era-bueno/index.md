@@ -37,7 +37,7 @@ Siempre preguntan: «¿Por qué el Dios del Antiguo Testamento siempre está eno
 
 «En el principio Dios creó los cielos y la tierra» (Gn 1:1). Es la parte más esencial de toda la Biblia. Si nos detenemos aquí y entendemos lo que está sucediendo, vemos que Él es el único origen de absolutamente todo, y que todo lo creado fue creado por Él. Los cielos y la tierra son la totalidad de la creación, nuestro marco de existencia. Siendo un Dios atemporal, que no fue creado, soberano, decidió crear los cielos y la tierra para su gloria y su alabanza.
 
-«Y Dios vio todo lo que había hecho; y era bueno en gran manera. Y fue la tarde y fue la mañana: el sexto día» (Gn 1:31). Día tras día se repite: «Dios vio que era bueno». ¿Por qué me quiero detener aquí? Primero, porque Él es el único origen. Pero también porque se han filtrado diferentes cosmovisiones y filosofías a nuestras creencias cristianas.
+«Y Dios vio todo lo que había hecho; y era bueno en gran manera. Y fue la tarde y fue la mañana: el sexto día» (Gn 1:31). Esto lo dice el sexto día, pero cada día, cada día dice: «Dios vio que era bueno». ¿Por qué me quiero detener aquí? Primero, porque Él es el único origen. Pero también porque se han filtrado diferentes cosmovisiones y filosofías a nuestras creencias cristianas.
 
 Imagina un círculo: arriba los cielos, abajo la tierra, y a los lados una palabra: bueno. Todo era bueno. «Está sencillo, ahí lo dice». Pero en nuestra vida moderna no es lo que viene a nuestra mente. Se nos ha infiltrado la cosmovisión griega, que es dualista: no todo es bueno; solo lo espiritual es bueno y todo lo material es malo. Te va a sonar: todo lo de la carne es malo, tus emociones son malas, este mundo es malo; entonces tengo que orar más, ayunar todo el tiempo, escapar de este mundo maligno para irme al mundo espiritual. El objetivo del ser humano sería morir e irse al cielo.
 
@@ -45,13 +45,13 @@ Esta no es una verdad bíblica. El mundo espiritual y el mundo material no son d
 
 ¿De dónde nace esta idea? De un intento de explicar la naturaleza corrupta del mundo. «¿Cómo es que todo lo que Dios hizo es bueno, si veo tanta maldad, tantas enfermedades? Entonces el lugar donde estoy es malo y el lugar a donde voy es bueno». Esta idea se ha permeado en la iglesia, y por eso es importante entender desde el primer capítulo: todo lo diseñado por Dios es bueno.
 
-Por lo tanto, no es necesario que el mundo sea destruido. La idea apocalíptica de las películas, de un fin del mundo, no es bíblica. Lo bíblico es el fin de esta era maligna y corrupta: el fin del dolor, de las lágrimas, de las enfermedades, de lo que el hombre corrompió cuando decidió alejarse de Dios. El diseño original de Dios es bueno. Intrínsecamente, el ser humano fue hecho bueno, pero se corrompió, y de ahí en adelante todo lo que piensa es malo. Lo que Dios quiere decirnos desde el versículo 1 es que algún día todo será restaurado a su estado original.
+Por lo tanto, no es necesario que el mundo sea destruido. La idea apocalíptica de las películas, de un fin del mundo, no es bíblica. Lo bíblico es el fin de esta era maligna y corrupta: el fin del dolor, de las lágrimas, de las enfermedades, de lo que el hombre corrompió cuando decidió alejarse de Dios. El diseño original de Dios es bueno. Intrínsecamente, el ser humano es bueno. Pero se corrompió, y de ahí en adelante todo lo que piensa es malo. Lo que Dios quiere decirnos desde el versículo 1 es que algún día todo será restaurado a su estado original.
 
 No nos vamos a quedar eternamente en un estado caído y corrupto, pero tampoco vamos a vivir como fantasmitas, como espíritus extraños que no saben sentir. Vamos a comer, a trabajar, a caminar; vamos a tener una vida como Dios la diseñó en el jardín del Edén, terrenal y espiritual al mismo tiempo.
 
 ## Barro y aliento
 
-El ejemplo perfecto es la creación del hombre. Dios toma de la tierra y empieza a formarlo, como cuando juegas con plastilina y haces un monito, y lo crea a su imagen y semejanza. Pero al final era tierra; algo le faltaba. Entonces Dios se acerca a este hombre hecho de barro y sopla aliento de vida (Gn 2:7). Su corazón empieza a palpitar, la sangre corre por todos lados y el hombre respira por primera vez. Ese soplo de Dios evoca la palabra que después se usa para el Espíritu: *ruaj*. Dios no crea al hombre solo de materia, sino de carne y espíritu.
+El ejemplo perfecto es la creación del hombre. Dios toma de la tierra y empieza a formarlo, como cuando juegas con plastilina y haces un monito, y lo crea a su imagen y semejanza. Pero al final era tierra; algo le faltaba. Entonces Dios se acerca a este hombre hecho de barro y sopla aliento de vida (Gn 2:7). Su corazón empieza a palpitar, la sangre corre por todos lados y el hombre respira por primera vez. La palabra que usa ahí, aliento de vida, el soplo de Dios, es la misma palabra que utiliza después para el Espíritu Santo: es exactamente la misma palabra, *ruaj*. Dios no crea al hombre solo de materia, sino de carne y espíritu.
 
 ¿Cuál es la imagen de este varón perfecto, de la restauración a la que un día llegaremos? Es Cristo mismo: verdaderamente Dios, verdaderamente hombre. Se nos dificulta entenderlo porque tenemos una cosmovisión dualista, pero Dios nunca lo creó separado. Su carne era pura, sin mancha, y el Espíritu de Dios moraba en Él a la perfección. Cristo es la imagen visible de la restauración de todas las cosas, nuestra esperanza viva: hacia allá vamos, hacia este Cristo ya no crucificado, sino resucitado, en su trono y en toda su gloria.
 
@@ -81,7 +81,7 @@ A esto le podemos llamar rebeldía. La caída es un término cristiano para deci
 
 De Génesis 3 en adelante vamos a ver la historia del hombre intentando una y otra vez gobernarse a sí mismo y produciendo algo malo: maldad, falta de identidad, falta de propósito, vacío; se matan unos a otros. La caída, en esta y en todas las veces que estudiemos, nace y se reproduce a través de la rebeldía, y lo que engendra siempre es corrupción. Cuando decimos «yo sé más que Dios y quiero autogobernarme», eso es rebeldía.
 
-«Bueno, eso fue Adán y Eva». Yo creo que casi diario abandonas el gobierno de Dios un ratito. Se te olvida, andas en tu vida, y luego te acuerdas y regresas. Por eso oramos y ayunamos: no por el mundo espiritual, sino para recordar que lo espiritual y lo terrenal están unidos y diseñados para ser buenos bajo el gobierno de Dios.
+«Bueno, eso fue Adán y Eva»; se fueron a Danieva. Meh, yo creo que casi diario abandonas el gobierno de Dios un ratito. Se te olvida, andas en tu vida, y luego te acuerdas y regresas. Por eso oramos y ayunamos: no por el mundo espiritual, sino para recordar que lo espiritual y lo terrenal están unidos y diseñados para ser buenos bajo el gobierno de Dios.
 
 ## Dos respuestas: condenación y gracia
 
@@ -109,7 +109,7 @@ Dios creó los cielos y la tierra y todo era bueno; Adán y Eva caen y entran en
 
 ## Fe y el primer sacrificio
 
-¿Qué hace el hombre? Responde con fe. Dios le acaba de decir algo bien feo: vas a trabajar, te va a doler, tus hijos van a sufrir. Y Adán, en lugar de reclamar, le pone un nuevo nombre a su esposa: «El hombre le puso por nombre Eva a su mujer, porque ella era la madre de todos los vivientes» (Gn 3:20). Dadora de vida: «De ti vendrá aquel que pondrá fin a la corrupción y a la muerte».
+¿Qué hace el hombre? Responde con fe. Dios le acaba de decir algo bien feo: vas a trabajar, te va a doler, tus hijos van a sufrir. Y la respuesta principal de Adán es: «Gracias, Dios». Adán le cree a Dios, y le pone un nuevo nombre a su esposa: «El hombre le puso por nombre Eva a su mujer, porque ella era la madre de todos los vivientes» (Gn 3:20). Dadora de vida: «De ti vendrá aquel que pondrá fin a la corrupción y a la muerte».
 
 Y Dios los cubre con el primer sacrificio: «El Señor Dios hizo vestiduras de piel para Adán y su mujer, y los vistió» (Gn 3:21). Ellos intentaron cubrirse con unas hojitas; Dios toma un animal. Nunca antes se había sacrificado un animal. Mi mente a veces alegoriza y romantiza estas cosas, y me imagino que el animal fue un pequeño corderito sin mancha, y que Dios les dijo: «No tienen que encubrir su pecado, ni aislarse, ni vivir en vergüenza. Yo los cubriré con el cordero perfecto». Y de ahí en adelante Adán y Eva viven buscando quién será ese hijo.
 
@@ -117,7 +117,7 @@ Esta temática se repite en toda la Biblia; es la temática principal: la rebeld
 
 ## Caín, Abel y Set
 
-Lo vemos en Caín y Abel. Por fin, después de la promesa, nace un varón, y Eva dice: «He adquirido varón con la ayuda del Señor» (Gn 4:1). «Tú eres ese hijo». Caín labra la tierra. Nace también Abel, pastor de ovejas. Un día van a presentarle a Dios una ofrenda. Abel ofrece de los primogénitos de sus ovejas, y Dios se agrada. Caín le lleva del fruto de la tierra, como una ensalada, y Dios no la acepta: «Tráeme otra cosa».
+Lo vemos en Caín y Abel. Por fin, después de la promesa, nace un varón, y Eva dice: «He adquirido varón con la ayuda del Señor» (Gn 4:1). «Tú eres ese hijo». Caín labra la tierra. Nace también Abel, pastor de ovejas. Un día van a presentarle a Dios una ofrenda. Abel ofrece de los primogénitos de sus ovejas, y Dios se agrada: «Wow, hijo mío, me encanta el cabrito; o sea, el cordero es mi favorito». Caín le lleva del fruto de la tierra, como una ensalada, y Dios no la acepta: «Tráeme otra cosa».
 
 Caín se enoja, y otra vez: condenación y aislamiento. Pero Dios lo busca para darle una oportunidad de arrepentimiento: «¿Por qué estás enojado, y por qué se ha demudado tu semblante? Si haces bien, ¿no serás aceptado? Pero si no haces bien, el pecado yace a la puerta y te codicia, pero tú debes dominarlo» (Gn 4:6-7). Si tan solo hubiera ido con su hermano: «Yo no tengo ovejas, tú no tienes verduras; te hago un trueque». No lo hizo.
 
@@ -133,7 +133,7 @@ En ese momento la gente se da cuenta de que algo se había roto. Adán y Eva se 
 
 Luego Caín y Abel rompen por primera vez la relación entre hermanos. Ya se había roto la relación con Dios, y ahora se rompe la relación entre personas: el primer asesinato, la primera venganza. Y se dan cuenta de que fuera del gobierno de Dios, el gobierno del hombre no sirve. Así que, terminando Génesis 4, por primera vez «comenzaron los hombres a invocar el nombre del Señor» (Gn 4:26).
 
-En esencia dicen: «Ven, Dios, te necesitamos, sé nuestro Señor. Sin tu gobierno la vida es corrupta, nuestra identidad no funciona, nos matamos unos a otros». Esta primera oración es también nuestra esperanza viva. Desde ese momento hasta la venida de Jesús, ese fue el clamor del pueblo. Con cada hijo que nacía: «¿Será este?». Nace Noé, y su nombre significa «este nos dará descanso» (Gn 5:29); y no fue. Luego nace David, conquista, y dicen: «Este va a ser». Dios le promete que su hijo construirá el templo, y su hijo, Salomón, lo construye, pero se vuelve codicioso y su corazón se aparta. Otra vez y otra vez.
+En esencia dicen: «Ven, Dios, te necesitamos, sé nuestro Señor. Sin tu gobierno la vida es corrupta, nuestra identidad no funciona, nos matamos unos a otros». Esta primera oración es también nuestra esperanza viva. Desde ese momento hasta la venida de Jesús, ese fue el clamor del pueblo. Con cada hijo que nacía: «¿Será este?». Nace Noé, y su nombre significa «este nos dará descanso» (Gn 5:29); y no fue. Luego nace David, conquista, y dicen: «Este va a ser». Dios le promete que su hijo construirá el templo, y luego su hijo se vuelve codicioso y se hace un templo para sí mismo. Otra vez y otra vez.
 
 Hasta el día en que Dios contesta la oración y viene. Pero no viene para gobernar, sino para darnos una oportunidad de arrepentimiento, para que dejemos el mundo corrupto y volvamos a Él. Se para en un madero con los brazos abiertos: «Vengan a mí, todos los que están cansados y cargados. Todos los que dejaron su diseño original y todo lo que era bueno, regresen a mí, y yo les daré descanso».
 

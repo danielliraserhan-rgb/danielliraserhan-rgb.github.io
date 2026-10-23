@@ -63,7 +63,7 @@ Y en nuestra propia vida: «No me saludaron en la iglesia», «esa canción no m
 
 Si no, vas a saber tanto que cuando el pastor predique vas a decir: «No fue ese rey, fue otro; no fue en ese año». Ese no es el punto de la predicación. El punto es tomar la palabra de Dios, con el Espíritu Santo, para atravesar corazones y que las personas lleguen a salvación. Eso hizo Salomón: buscó su mejor vida, la sabiduría, los logros, y todo eso lo llevó al camino de la muerte.
 
-Poco a poco te desvías: empiezas a tolerar lo que no debes, y lo que toleras se convierte en lo que adoras. Ser paciente no es lo mismo que tolerar; tolerar es hacerlo partícipe. Puedes ser amigo de alguien y no estar de acuerdo, como mi hermano y yo, que no estamos de acuerdo en todo y seguimos siendo hermanos. Pero esa es otra prédica.
+Poco a poco te desvías: empiezas a tolerar lo que no debes, y lo que toleras se convierte en lo que adoras. Lo puedes ver en el mundo completo: poco a poco, «bueno, ya no vamos a discriminar», y luego «ya se valen baños mixtos», y luego ya no le puedes decir nada a tu hijo. ¿En qué momento pasamos de una cosa a la otra? Porque empezamos a tolerar cosas que no debimos tolerar nunca. Ser paciente no es lo mismo que tolerar; tolerar es hacerlo partícipe. Puedes ser amigo de alguien y no estar de acuerdo, como mi hermano y yo, que no estamos de acuerdo en todo y seguimos siendo hermanos. Pero esa es otra prédica.
 
 ## ¿Quién reinará por siempre?
 
@@ -75,7 +75,7 @@ Primero cae el norte. «Cuando Él arrancó a Israel de la casa de David, hicier
 
 ¿Y por qué lo hizo? «Jeroboam se dijo en su corazón: “Ahora el reino volverá a la casa de David. Si este pueblo continúa subiendo a ofrecer sacrificios en la casa del Señor en Jerusalén, el corazón de este pueblo se volverá a su señor, a Roboam rey de Judá; y me matarán”» (1 R 12:26-27).
 
-¿Cuál es la motivación detrás de quienes escogen el camino de la muerte? El temor al hombre, que se ve en la vergüenza y el miedo. Esos dos ingredientes aparecen en Génesis 3, y de ahí en adelante son la razón por la que el ser humano sigue escogiendo el camino de la muerte. Cuando algo te avergüenza, te tapas; cuando algo te da miedo, actúas. Jeroboam, con miedo de que lo mataran, puso dos altares: uno en Dan, en el norte, y otro en Betel, más al sur, cerca de Jerusalén, para que nadie tuviera excusa. ¿Y qué puso ahí? Unos becerros de oro. Esa idolatría produjo el exilio: el norte fue el primero en caer en ese adulterio tan grotesco, todos sus reyes hicieron lo mismo, y vino Asiria y se los llevó.
+¿Cuál es la motivación detrás de quienes escogen el camino de la muerte? El temor al hombre, que se ve en la vergüenza y el miedo. Esos dos ingredientes aparecen en Génesis 3, y de ahí en adelante son la razón por la que el ser humano sigue escogiendo el camino de la muerte. Cuando algo te avergüenza, te tapas; cuando algo te da miedo, actúas. Jeroboam, con miedo de que lo mataran, puso dos altares: uno en Dan, en el norte, y otro en Betel, más al sur, cerca de Jerusalén, para que nadie tuviera excusa. Esos son los montes de los que la samaritana decía «mis antepasados». ¿Cuáles antepasados? De Jeroboam en adelante. ¿Y qué puso ahí? Unos becerros de oro. Esa idolatría produjo el exilio: el norte fue el primero en caer en ese adulterio tan grotesco, todos sus reyes hicieron lo mismo, y vino Asiria y se los llevó.
 
 ## Manasés y el fin de la paciencia
 

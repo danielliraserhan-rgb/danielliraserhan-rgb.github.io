@@ -27,7 +27,7 @@ En esta sesión empezamos con los profetas. La clase se llama *Entre reyes y pro
 
 Si yo llego y digo: «Hola, me llamo Daniel y soy profeta», ¿qué esperarías? Lo que el mundo imagina es alguien que ve el futuro o que habla en señales misteriosas, en clave: «Veo un árbol frondoso en tu vida». Me da gusto ver caras diciendo que no, porque eso no es.
 
-Se suele decir que solo una pequeña parte de la profecía bíblica habla del futuro. De esa parte, buena parte es profecía mesiánica, que habla del futuro como Génesis 3:15 hablaba del que vendría a aplastar la cabeza de la serpiente: los pactos, la vara, que nacería en Belén Efrata. Otra parte habla de juicios cercanos, como «Babilonia los va a conquistar». Y un porcentaje mínimo habla de eventos de los últimos tiempos. Todo lo demás no tiene que ver con lo que va a pasar.
+En toda la Biblia, solo el 8% de la profecía habla del futuro. Solo el 8%; el otro 92% no tiene nada que ver con lo que va a pasar. Dentro de ese 8%, como el 5% es profecía mesiánica, que habla del futuro como Génesis 3:15 hablaba del que vendría a aplastar la cabeza de la serpiente: los pactos, la vara, que nacería en Belén Efrata. Otras hablan de juicios cercanos, como «Babilonia los va a conquistar». Y creo que el 1 o 2% habla de eventos futuros apocalípticos o de los últimos tiempos. Todo lo demás… existe Mastercard. No, ese es muy mal chiste. Todo lo demás, el otro 92%, no tiene nada que ver con eso.
 
 ## Qué es la profecía y qué es el profeta
 
@@ -55,7 +55,7 @@ A partir de Moisés, los profetas no traen algo nuevo: vienen a recordar lo que 
 
 Se distinguen los profetas preclásicos y los clásicos. Los preclásicos —Moisés, Débora, Samuel, Natán, Elías y Eliseo— no dejaron libros proféticos; son parte de la narración. (Recuerden que antes de Cristo los años van disminuyendo: era como «feliz menos un año». Era un chiste; nomás mi esposa se rió.)
 
-- **Antes de la monarquía.** Moisés, portavoz ante Faraón. Débora, a quien Jueces llama profetisa en medio de una crisis en Canaán. Samuel, en la transición de Jueces a Reyes, cuando se pierde el arca.
+- **Antes de la monarquía.** Moisés, portavoz ante Faraón. Débora, la única profeta que vemos en el libro de Jueces, a quien la Biblia menciona como profeta, en medio de una crisis en Canaán. Samuel, en la transición de Jueces a Reyes, cuando se pierde el arca.
 - **En la monarquía.** Natán, consejero de David, que lo confronta y le anuncia que su hijo construiría la casa. Después no vemos un profeta que camine con el rey; una idea es que el arca había regresado y la presencia de Dios estaba ahí. Pero cuando el reino se divide y llega la crisis, aparecen Elías, con su famoso «o Baal es Dios o el Señor es Dios» frente a Jezabel y el fuego que cae del cielo, y Eliseo, por medio de quien Dios libra al pueblo de los arameos.
 
 Los clásicos se agrupan alrededor de tres crisis:
@@ -72,7 +72,7 @@ A los de la crisis de Asiria el mensaje fue juicio, a menos que se arrepintieran
 
 **Oseas** también advierte, pero da una promesa de redención. Es de los más visuales: Dios llama prostituta a Israel, y aun así dice «yo seré su esposo». Dios le pide a Oseas que se case con una prostituta para mostrarle al pueblo quiénes son, y eventualmente ella regresa y es redimida.
 
-**Jonás** es el profeta que no quería serlo. Nínive era una gran ciudad de Asiria, el pueblo que conquistaría y aplastaría a Israel. «Ve y diles un mensaje». Y Jonás: «No; yo te conozco. Si se arrepienten, tú eres bueno y los vas a perdonar». Se lo traga un gran pez, y en su oración dice que clamó desde el seno del Seol y Dios lo sacó (Jon 2:2-6). Es una tipología de Cristo, que fue al Seol, se levantó y trajo a las naciones un mensaje de salvación. Al final Jonás obedece y le reclama: «Te dije que eras bueno». El punto: la misericordia de Dios no viene porque tú quieras o no quieras, sino por su gracia, extendida a todos, y el que se arrepiente es perdonado.
+**Jonás** es el profeta que no quería serlo. Nínive era lo último de Asiria, el pueblo que conquistaría y aplastaría a Israel. «Ve y diles un mensaje». Y Jonás: «No; yo te conozco. Si se arrepienten, tú eres bueno y los vas a perdonar». Se lo come una ballena, y en su oración dice que clamó desde el seno del Seol y Dios lo sacó (Jon 2:2-6). Es una tipología de Cristo, que fue al Seol, se levantó y trajo a las naciones un mensaje de salvación. Al final Jonás obedece y le reclama: «Te dije que eras bueno». El punto: la misericordia de Dios no viene porque tú quieras o no quieras, sino por su gracia, extendida a todos, y el que se arrepiente es perdonado.
 
 ## Profetizar hoy
 
@@ -92,9 +92,9 @@ Cuando se acerca Babilonia, Dios levanta otra serie de profetas. **Habacuc** es 
 
 **Nahúm** anuncia el juicio contra Nínive, como Jonás, solo que este sí quiso. Ya empieza a aparecer el nombre de Babilonia.
 
-**Jeremías** proclama el mensaje durante más tiempo: desde los días de Josías hasta la caída de Jerusalén. Le tocó todo: ver las reformas, ver morir al rey, rogarle al pueblo que no hiciera lo malo sin que le hicieran caso, y por eso llora y se lamenta. Y cuando se llevan al pueblo, a él no; el remanente que no quería ir a Babilonia se lo lleva a la fuerza a Egipto (Jer 43). **Ezequiel**, en cambio, fue llevado en la primera oleada del exilio, y profetizaba a los exiliados con esperanza, y también a los que seguían en la tierra.
+**Jeremías** proclama el mensaje durante más tiempo: desde los días de Josías hasta la caída de Jerusalén. Le tocó todo: ver las reformas, ver morir al rey, rogarle al pueblo que no hiciera lo malo sin que le hicieran caso, y por eso llora y se lamenta. Y cuando se llevan al pueblo, a él no; el remanente que no quería ir a Babilonia se lo lleva a la fuerza a Egipto (Jer 43), donde se muere. Pobrecito. **Ezequiel**, en cambio, fue llevado en la primera oleada del exilio, y profetizaba a los exiliados con esperanza, y también a los que seguían en la tierra.
 
-**Daniel** vive el paso de Babilonia a Persia, con posiciones privilegiadas bajo varios reyes. Era el que, si ponías una regla malvada, hacía lo contrario. Llega a Babilonia y no quiere comer la comida del rey: «Yo como legumbres». De ahí sacamos el ayuno de Daniel. El punto era mantenerse santo, separado, para que la gente supiera que si prosperaba no era por la comida, sino porque Dios estaba con él. Más tarde lo mandan adorar al rey, se niega, y lo echan al foso de los leones aunque el rey lo amaba; sale vivo, y el rey reconoce al Dios de Daniel.
+**Daniel** vive el paso de Babilonia a Persia, con posiciones privilegiadas bajo varios reyes. Era el que, si ponías una regla malvada, hacía lo contrario. Llega a Babilonia y no quiere comer la comida del rey: «Yo como legumbres». De ahí sacamos el ayuno de Daniel. El punto era mantenerse santo, separado, para que la gente supiera que si prosperaba no era por la comida, sino porque Dios estaba con él. Más tarde lo mandan adorar al rey, se niega, y lo echan al foso de los leones aunque el rey, Darío (Dn 6), lo amaba; sale vivo, y el rey reconoce al Dios de Daniel.
 
 Por último, **Ageo, Zacarías y Malaquías** hablan a los que regresaron. Malaquías es la última voz profética hasta Juan el Bautista.
 
