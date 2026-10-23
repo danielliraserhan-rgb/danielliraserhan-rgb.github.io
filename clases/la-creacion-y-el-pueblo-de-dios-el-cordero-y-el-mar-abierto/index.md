@@ -1,0 +1,138 @@
+# La Creación y el Pueblo de Dios: El Cordero y el mar abierto
+
+> La última plaga trae distinción: así como un cordero redimió a Isaac, ahora un cordero redime a cada familia, y la sangre en la puerta anuncia la cruz. Pésaj significa pasar de largo. Dios saca a Israel, lo guía con la columna de fuego y de nube, abre el mar y derrota a Faraón; el pueblo teme al Señor y cree. En la última cena Jesús toma las cuatro copas de la Pascua, ligadas a Éxodo 6: santificación, libertad, redención y esperanza, la copa que beberá en las bodas del Cordero.
+
+*Adaptado con ayuda de IA a partir de una clase grabada.*
+
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
+- Serie: Orígenes: La Creación y el Pueblo de Dios · Sesión 7 (parte 7 de 9)
+- URL: https://daniellira.com/clases/la-creacion-y-el-pueblo-de-dios-el-cordero-y-el-mar-abierto/
+- Video: https://www.youtube.com/watch?v=pQRc_yStxoA
+
+## Puntos clave
+
+- Así como un cordero redimió a Isaac, un cordero redime a toda una familia.
+- El endurecimiento de Faraón combina la soberanía de Dios y la responsabilidad humana.
+- Pésaj: cuando Dios ve la sangre, pasa de largo.
+- Dios nos lleva por el desierto para enamorarnos antes de la batalla.
+- En la adversidad nos cegamos a su presencia, pero Él responde a nuestro clamor.
+- Las cuatro copas: santificación, libertad, redención y esperanza.
+- Sacar a Israel de Egipto y sacar a Egipto de Israel: Dios también sana nuestras heridas.
+
+---
+
+## El novio que conquista
+
+Estamos viendo el Éxodo, y vimos que toda su historia está escrita como la de un hombre que se presenta a una mujer para conquistarla, cortejarla y eventualmente pedirle matrimonio. No es literal; más bien, la manera en que vivimos el matrimonio irradia la gloria de Dios, sus atributos y la relación que Él tiene con nosotros. Por eso es tan importante el pacto matrimonial: es la relación más íntima entre un hombre y una mujer, y expresa la relación que podemos tener con Dios. Dios no solamente nos ve de lejos; quiere relacionarse verdaderamente contigo.
+
+Lo primero que hace este hombre es presentarse: «Yo soy el Señor, y me voy a casar contigo: te sacaré, te liberaré, te redimiré y te tomaré como mi pueblo». Luego le hace guerra a todos los dioses y uno por uno los va venciendo. Una plaga, otra, otra. Egipto empieza a captar algo, pero sobre todo Israel comienza a enamorarse, a ver a este Dios como el Shaddai, el Todopoderoso. «Tal vez vale la pena aceptarle la cita; si es mejor que todos los demás dioses, le creo». Pero detrás de su mente está esa vocecita del diablo: «Todos los hombres son iguales; todos los dioses son iguales». Dios está a punto de presentarse como completamente diferente.
+
+## La última señal
+
+Entramos a la undécima señal, la décima plaga. Es lo que celebramos en la Pascua, la celebración anual más antigua de la historia que nunca se ha interrumpido. La Pascua no es la última cena; es lo que sucede en el Éxodo, y miles de años después Jesús se sienta y toma las imágenes y el significado de esa Pascua para dar su mensaje.
+
+Dios envía a Moisés con Faraón por última vez, con una señal que va a hacer distinción entre Israel y Egipto. «El Señor dijo a Moisés: "Una plaga más traeré sobre Faraón y sobre Egipto, después de la cual los dejará ir de aquí"… "Como a medianoche Yo pasaré por toda la tierra de Egipto, y morirá todo primogénito en la tierra de Egipto, desde el primogénito de Faraón que se sienta en su trono hasta el primogénito de la sierva que está detrás del molino; también todo primogénito del ganado"» (Éx 11:1, 4-5).
+
+Para Egipto era una plaga más. Faraón pudo haber dicho: «No quiero que se muera mi hijo; ya me comprobaste con diez señales; te dejo ir». Pero no lo hace; endurece su corazón. Para Israel, en cambio, la historia era familiar. Reconocían el cordero que Dios prometió proveer en la vida de Isaac. Dios no inventó una nueva señal; la toma de la vida de Isaac. Por Isaac entendimos que un cordero podía redimir a un hijo; ahora, en esta última plaga, un cordero redimiría a toda una familia. Es una historia donde Dios suple, donde Él provee.
+
+Todo primogénito le pertenecía al Señor, y lo estaba reclamando; el pago iba a ser la muerte. La última señal trae distinción: el pueblo aceptaría el sacrificio que Dios proveía, y Egipto rechazaría a Dios. Dice la Palabra que contra los israelitas «ni un perro ladrará» (Éx 11:7). Pero el corazón de Faraón el Señor lo endureció.
+
+## ¿Quién endureció el corazón?
+
+En el Éxodo vas a ver que a veces Faraón endurece su corazón, a veces Dios lo endurece, y a veces el corazón simplemente se endureció. No es que Dios diga: «Lo voy a endurecer para que no puedas». Es como cuando alguien te hace enojar: ¿te hizo enojar él o tú te enojaste? Una de las dos; pero no te enojarías si tu corazón fuera manso y humilde. Es una combinación increíble de la soberanía de Dios y la responsabilidad humana, de una manera que los autores, aun inspirados por el Espíritu Santo, no nos ayudan a terminar de entender. No sabemos todo lo que está pasando, pero Dios es soberano y nosotros tenemos una responsabilidad.
+
+## Un cordero sin defecto
+
+Ahora no sería un carnero el que supliría, sino un cordero con características muy específicas: macho, sin defecto, apartado, guardado por un tiempo para un día ser sacrificado. Todos estos elementos apuntan a algo. «El cordero será un macho sin defecto, de un año; lo apartarán de entre las ovejas o de entre las cabras» (Éx 12:5).
+
+Todos los primogénitos me pertenecen. La paga del pecado es la muerte, y Dios ejecutaría su justo juicio a través de la muerte, del primogénito o de un cordero sin mancha. La señal de que habías aceptado este sacrificio para cubrir tu casa era la sangre del cordero en la puerta. Habiendo sacrificado el cordero, tomaban un hisopo y lo metían en la sangre. Nada de esto es bonito; es una imagen grotesca, horrible, que se les imprimía en la cabeza para que nunca se les olvidara. Es como ver a Jesús en la cruz. Lo representamos tapadito, pero no; está ensangrentado, roto, azotado. Es una imagen que se mete en tu cabeza.
+
+Tenían que manchar primero los postes y luego el dintel. Ellos no tenían idea, obviamente, pero hoy podemos ver que la sangre, de arriba abajo y de un lado al otro, forma una cruz. Desde ese día Dios estaba anunciando que la sangre de Cristo nos cubriría para que el ángel de la muerte pasara de largo.
+
+El justo juicio de Dios tiene que ser pagado con muerte; lo sabemos desde el inicio: «si comen, morirán». Pero Dios es bueno y siempre ha suplido. Llega con Abraham y le dice: «Tu hijo es mío; es más, tú eres mío». Y cuando Abraham va a darle a su hijo, Dios le da la señal: un cordero puede suplir el pago. En el Éxodo le dice a todos: «Los primogénitos son míos, pero puedes cambiar el pago matando un cordero», ya no solo por tu hijo, sino por toda una familia. Es más, si la familia es pequeña para comérselo, un solo cordero alcanza para varias (Éx 12:4). Es un mensaje que se va aclarando poco a poco. Así como rescató a Isaac de la muerte, ahora rescataría al pueblo a través de un cordero.
+
+## Pésaj: pasar de largo
+
+¿Por qué se llama Pascua? Porque Dios le puso el nombre. «De esta manera lo comerán: ceñidos sus lomos, las sandalias en sus pies y el cayado en su mano; lo comerán apresuradamente. Es la Pascua del Señor» (Éx 12:11). En hebreo es *pésaj*, que significa pasar sobre, pasar de largo, por la idea de que el ángel de la muerte pasaría sobre el pueblo. «La sangre les será a ustedes por señal en las casas donde estén; cuando Yo vea la sangre pasaré sobre ustedes, y ninguna plaga vendrá sobre ustedes para destruirlos… Este día les será memorable y lo celebrarán como fiesta al Señor; lo celebrarán por todas sus generaciones como ordenanza perpetua» (Éx 12:13-14).
+
+Se celebraría por dos razones. Recordar el día en que Dios los sacó de Egipto, que la muerte de un cordero los sacó de la esclavitud. Y al mismo tiempo, era una marca profética del día en que vendría la simiente prometida a Abraham, un Cordero que supliría por el pecado de todo el mundo. Cada vez que lo celebraban crecía esa esperanza: «No solo nos sacó, sino que nos va a sacar». Nada ni nadie puede ofrecer la salvación que Dios ha provisto: ni ritos, ni obras, nada. Nadie puede proveer el justo pago por el pecado más que Él mismo.
+
+Y así sucede. El día diez del primer mes el pueblo aparta un cordero sin defecto, de las ovejas o de las cabras; el día catorce lo sacrifican (Éx 12:3, 6), y con un hisopo cubren su casa con sangre. El ángel de la muerte pasa por toda la tierra de Egipto, y todo primogénito que no estuviera dentro de una casa cubierta con la sangre del cordero, desde la casa de Faraón hasta la de los siervos, muere.
+
+La Pascua nos recuerda el carácter de Dios: fiel con los suyos, pero también celoso; que rescata y libera, pero que ejecuta sus justos juicios. Ha provisto la paga, pero para quien no cubre su casa con la sangre del cordero, el juicio es igual para todos: en unos lo propicia el cordero, en otros lo pagan ellos mismos.
+
+## La salida y el desierto
+
+Faraón llora a su hijo primogénito y a todo su pueblo, y esa misma noche llama a Moisés y a Aarón: «Levántense, salgan de en medio de mi pueblo… vayan, adoren al Señor, como han dicho… y bendíganme también a mí» (Éx 12:31-32). Dios ha derrotado a todos los dioses, saca a Israel de la tierra, y van caminando en victoria; adoran y se postran. Es la primera vez que empiezan a ver a Dios con esos ojitos brillosos de una mujer que se está enamorando: «Este hombre… puede ser». Lo empiezan a admirar, a seguir y a confiar en Él.
+
+Pero esto es solo el comienzo. De Egipto a la tierra prometida el camino era cortito, pero Dios dice: «No los puedo pasar por aquí, porque van a encontrar guerra» (Éx 13:17). El pueblo no estaba tan enamorado de Dios como para soportar una guerra, para transitar las dificultades del matrimonio o de los hijos. Así que lo lleva a rodear por el desierto. A veces nos pasa: Dios nos da una promesa, hay algo hacia donde vamos, pero ahí vamos por el desierto, y sin entenderlo, Él tiene un plan. Estaba a punto de mostrarse y enamorarlos aún más. Sin el gobierno de Dios, como hemos visto desde la primera clase, el pueblo se hubiera descarriado: se hubieran topado con los filisteos y los habrían matado, o se habrían regresado a Egipto.
+
+Desde que los sacó hasta que los llevó a la tierra, Dios los acompañó como columna de fuego de noche y columna de nube de día. Si no se movía, ellos no se movían. Era el ángel del Señor, Jesús preencarnado, caminando con ellos. De noche, la columna daba luz y calor en el frío del desierto; de día, la nube daba sombra en el calor.
+
+## El mar abierto
+
+Pero a Faraón algo le pasa en la cabeza. Yo creo que su pueblo le empieza a reclamar: «Por tu culpa mataron a nuestros hijos». Y sale con todos sus carros a perseguirlos. Israel ve a Egipto acampando y dice: «Ya valió, nos van a matar». Y claman, pero no con un clamor de amor, sino de queja: «¿Acaso no había sepulcros en Egipto, que nos has sacado para morir en el desierto?» (Éx 14:11). En la adversidad olvidaron la realidad de Dios, los milagros, las plagas. ¡Tenían una columna de fuego enfrente! Pero en medio de la adversidad nos cegamos a la presencia de Dios, porque nuestros problemas parecen mayores que Él.
+
+Dios no teme a nuestro clamor, ni siquiera al insensato, al que le hace decir: «¿Qué no acabas de ver?». Y ahí estamos, queja tras queja. Pero Él responde con instrucciones claras, con una promesa segura y con la certeza de que será glorificado una vez más.
+
+La columna se mueve del frente del campamento y se pone detrás, como barrera entre Egipto e Israel (Éx 14:19-20). Y Dios le dice a Moisés: «Levanta tu vara y extiende tu mano sobre el mar». Toda la noche sopla un viento fuerte y el mar se abre. Dice la Biblia que las aguas eran como un muro a su derecha y a su izquierda (Éx 14:22). Imagínate ver cómo se va abriendo, y volteas y hay un tiburón por allá, unos peces gigantes por acá. Es un milagro increíble. Todo el pueblo pasa en seco.
+
+Faraón agarra sus carros y corre detrás, en medio de las dos murallas de agua. Yo no sé por qué se metieron; no conocían a Dios ni lo que les acababa de hacer. Y Dios los confunde; ahí sí nos dice que los confundió (Éx 14:24-25). Y en medio de la confusión el mar se cierra, y ahí queda todo el ejército de Faraón. Moisés y el pueblo cantan, y María, la hermana de Moisés, toma el pandero y canta un canto de victoria (Éx 15:20-21): «Tú nos sacaste de Egipto; por fin estamos a salvo». Es la victoria completa de Dios sobre sus enemigos y los de Israel.
+
+Si estás aquí, creo que es casi obvio que Dios un día te liberó a ti. Volteamos a ver al Cordero, Él nos cubrió, abrió el mar y nos bautizó. La Biblia habla de este momento como el bautismo de Israel (1 Co 10:1-2), porque pasaron de una muerte segura a una vida certera en Dios.
+
+## Temieron al Señor y creyeron
+
+La respuesta que debemos tener es maravillarnos de la grandeza de Dios y decir: «Sí es el Shaddai, el Todopoderoso; es mayor que cualquier otro dios, mayor que toda dificultad». «Cuando Israel vio el gran poder que el Señor había usado contra los egipcios, el pueblo temió al Señor, y creyeron en el Señor y en Moisés, Su siervo» (Éx 14:31). Ya creían en Él en un sentido; lo habían visto. Pero creer no solo implica aceptar que existe, sino vivir una vida de fe creciente, rendida solamente a Él.
+
+Dios saca a Israel de Egipto como un romance, y el pueblo por fin está listo para decir: «Sí, quiero salir contigo; le voy a decir al mundo que estamos en una relación exclusiva». Es un ejemplo, pero es ese momento. Todo lo que sigue es Dios enamorando a su novia una y otra vez. En cada queja insensata va a proveer, a mostrarse amoroso, cuidador, proveedor y protector, hasta que el pueblo se enamore y diga que sí.
+
+¿Cuál es la belleza? Hasta este momento Israel no ha hecho nada. Es un pueblo insensato, malagradecido, pecador, que ante cualquier dificultad se queja y olvida a Dios. Pero Dios es el hombre amoroso que no lo deja en ningún momento. Y en un sentido, nosotros somos ese pueblo: lo conocemos, nos han predicado, hemos visto la cruz, venimos a la iglesia, y nos quejamos de la vida. La buena noticia es que Él no nos va a dejar. Él está a cargo de la historia, no tú. Él es quien te va a enamorar; no eres tú tratando de amarlo con todas tus fuerzas. Solo permanece; quéjate con Dios, háblale, y ve cómo responde con cuidado amoroso.
+
+## Las cuatro copas de la última cena
+
+Quiero hacer algo diferente: saltarme toda la Biblia hasta el día en que Jesús se sienta en la última cena, para profundizar en la conexión entre el Éxodo y esa cena. En el Evangelio de Juan, Jesús celebra la Pascua tres veces; nos vamos a centrar en la última, la que llamamos la última cena, donde toma la copa y dice: «Esta es mi sangre… hagan esto en memoria de mí».
+
+Lo que probablemente no sabemos es que no era una sola copa. Para la época de Jesús, el pueblo judío ya había desarrollado toda una manera de celebrar la Pascua con cuatro copas, cada una ligada a lo que Dios hizo en el Éxodo: «te sacaré» es la primera; «te liberaré», la segunda; «te redimiré», la tercera; «te tomaré», la cuarta. El pan también significa algo, pero nos centraremos en las copas. Esta historia que Dios había tatuado en el alma de Israel, Jesús la usaría para dar el evangelio. Cada promesa puede darnos una identidad segura, sanar nuestra alma, darnos un propósito eterno y hacernos dar fruto hoy y para siempre.
+
+«Por tanto, di a los israelitas: "Yo soy el Señor, y los sacaré de debajo de las cargas de los egipcios. Los libraré de su esclavitud y los redimiré con brazo extendido y con grandes juicios. Y los tomaré a ustedes por pueblo Mío, y Yo seré su Dios"… De esta manera habló Moisés a los israelitas, pero ellos no escucharon a Moisés a causa del desaliento y de la dura servidumbre» (Éx 6:6-9).
+
+Ese último versículo es la razón por la que metimos esta parte. Por un espíritu quebrantado, por desalientos y decepciones, dejamos de escuchar a Dios. Tal vez te lastimaron en la iglesia o te lastimó la vida; tal vez la carga de tu pasado, la vergüenza y la condenación es tan pesada que, cuando Dios habla, ya no escuchas. Ahí estaba el Todopoderoso anunciando buenas noticias, y el pueblo no podía escucharlo. Por eso Dios lo enamora. Que el Espíritu Santo tome lo que sucede en la última cena, sane nuestra alma y nos traiga libertad para proclamar a Jesús como Rey.
+
+## Primera copa: santificación, «te sacaré»
+
+Jesús comienza la ceremonia recordando el Éxodo y toma la primera copa: «Yo te sacaré». Tradicionalmente se le llama la copa de la santificación. Es el momento en que vemos a Jesús y descubrimos quién es, para encontrar en Él una identidad llena de esperanza.
+
+¿Por qué santificación? Porque santo es ser separado, apartado; definido de manera elemental en hebreo, es «completamente otro», completamente diferente. Cuando Dios saca a Israel de Egipto, lo hace completamente otro, lo separa de las naciones y dice: «Estos son míos». Es el patrón de Dios. El día de descanso es completamente otro: en la creación, en el séptimo día, Dios descansó, y en el Éxodo lo instituye: «el séptimo día descansarás». La nación de Israel la crea a partir de Abraham, separada de todas las naciones. A los sacerdotes los separa de entre Israel, diferentes de las otras once tribus. Cristo es completamente otro: verdaderamente hombre y verdaderamente Dios, santo, justo, que vino a la tierra y no pecó. Y ahora la iglesia es santificada, separada del mundo para ser completamente diferente.
+
+Jesús toma la copa y nos define de otra manera: «Discípulos, el reino de Dios se acerca; los voy a separar». Es lo primero que pasa cuando crees en el Señor: te pasa de muerte a vida, te limpia del pecado, te saca, te santifica, te da una nueva identidad. Ya no eres un pecador; eres un hijo de Dios, redimido por la sangre de Cristo, sellado por el Espíritu Santo. Y Dios no santifica solo porque sí. Santificó el día de descanso para declarar su gloria; a Israel, para ser luz a las naciones; a los sacerdotes, para ministrar a Dios; envió a Cristo a morir por nosotros y lo levantó al tercer día para su gloria y alabanza. Cuando bebemos la primera copa decimos: «Hemos sido separados para un solo propósito, darle gloria a Él». Algunos de nosotros debemos beber esta copa, mirar a Cristo a los ojos y creer en nuestra nueva identidad. Tú no lo elegiste a Él; Él te eligió a ti, y no va a descansar hasta enamorarte profundamente.
+
+## Segunda copa: libertad, «te liberaré»
+
+La segunda copa es la copa de la libertad: «Los libraré de su esclavitud». Cuando leía esto pensaba: «Dios repitió lo mismo dos veces; en español es casi un sinónimo». Pero lo que está diciendo es: una cosa es sacarte de Egipto, y otra sacar Egipto de ti. Después de cuatrocientos años como esclavos, Israel se creía esclavo.
+
+Cuando Dios te pasa de muerte a vida, eres completamente nuevo. Naciste de nuevo. No eres una mejor versioncita de ti, como un Daniel 2.0 que ahora tiene que llegar al 3.0 para ser el iluminado. Eres una nueva criatura con una nueva naturaleza. Pero tu carne y tu alma, que vivieron bajo las cargas del pecado, la condenación y la vergüenza, necesitan ser liberadas.
+
+Una vez casi me ahogo en el mar. Estaba nadando con mi primo y las olas venían una tras otra; me estaba revolcando, tragando agua. A lo lejos veía tierra firme, pero no había manera de alcanzarla. Hasta que alguien, creo que mi papá o mi hermano, se metió al mar donde todavía hacía pie, alzó la mano, me tomó y me sacó. Eso es lo primero: nos saca de la muerte. Pero si alguna vez te has revolcado, sabes que no solo tragas agua: te golpeas y te cortas con las piedras, estás ensangrentado, todo te duele, estás en shock, como un bebé recién nacido que no sabe qué está pasando. Mientras te revuelcas no sabes que estás herido; solo quieres sobrevivir. Pero una vez que te saca y te santifica, puedes voltear y decir: «¡Auch! Ya no estoy muerto, gloria a Dios, pero mira todo lo que duele». Y como un buen padre, Dios no solo nos saca; atiende nuestras heridas.
+
+Muchos debemos tomar esta copa y mirar al Cristo resucitado, que nos acompaña en el proceso de sanar. Ya no eres las mentiras que te dijeron, ni la adicción que tuviste, ni el pecado que practicaste, ni la identidad que alguien insertó en ti. Eres hijo de Dios, coheredero del reino, redimido por la sangre del Cordero, sellado por el Espíritu Santo. «Por tanto, no hay ahora condenación para los que están en Cristo Jesús, porque la ley del Espíritu de vida en Cristo Jesús te ha libertado de la ley del pecado y de la muerte» (Ro 8:1-2). La segunda copa es la promesa de que estará con nosotros en el proceso de vivir como suyos: es momento de ver nuestras heridas y saber que necesitamos sanarlas, y eso sucede en la Palabra de Dios y a través del cuerpo de Cristo.
+
+## Tercera copa: redención, «te redimiré»
+
+La tercera es la más famosa; si quisieras hacer una copa, harías esa. Es cuando Jesús dice: «Esta copa es mi sangre». Sabemos que es la tercera por lo que sucede en la historia y por los salmos de alabanza que se cantaban. Es la copa de la redención. Redención significa compra o recompra por el justo pago. «Mi sangre es el pago por tu pecado, con la que hoy te compro». No es vino ni juguito; es su sangre, que iba a ser completamente derramada para comprarte.
+
+Cuando pagas algo esperas algo a cambio. Vas a la tienda y pagas unas papitas, bueno, seamos saludables, una ensalada, y esperas tu ensalada porque diste el justo pago. Cristo dio el justo pago por ti y ahora espera algo a cambio: tu vida ya no es tuya, le pertenece a Él. Murió la muerte que nos tocaba para que vivamos la vida que le tocaba a Él. «Ya no soy yo el que vive, sino que Cristo vive en mí» (Gá 2:20).
+
+Jesús alza la copa: «Esta es mi sangre», y dice: «No beberé más del fruto de la vid hasta el día en que lo beba nuevo con ustedes en el reino de Mi Padre» (Mt 26:29). Yo creo que no la bebió y que deja la copa y se va a la cruz, para dejar en claro que no se trata de un simbolismo, sino de la verdad. El pago ha sido recibido por la sangre de Jesús, y Él ahora nos recibe a cambio.
+
+Jesús habla de esa copa varias veces. «Esta copa es el nuevo pacto en Mi sangre, que es derramada por ustedes» (Lc 22:20). En Getsemaní ora: «Padre Mío, si es posible, que pase de Mí esta copa; pero no sea como Yo quiero, sino como Tú quieras». Y por segunda vez: «Padre Mío, si esta copa no puede pasar sin que Yo la beba, hágase Tu voluntad» (Mt 26:39, 42). ¿Cuál copa? La que apuntaba a la sangre del cordero que tenía que ser derramada por completo para cubrir las casas. Y antes, cuando habla de su muerte, pregunta: «¿Pueden beber la copa que Yo voy a beber?», y Jacobo y Juan, bien aguerridos, responden: «Podemos» (Mt 20:22). ¡Claro que no podían! Nada satisface a Dios más que lo que Él provee, el Cordero sin mancha que vino a pagar por nosotros.
+
+Así que cuando Jesús fue a la cruz quedaron copas sin beber, porque su muerte fue el momento en que bebió la copa. Bebió la copa que nos correspondía, pagó el precio que nos correspondía, y nos compró para que podamos decir: «Ya no vivo yo, Cristo vive en mí». Toda su sangre fue derramada; traspasado con una lanza, salió sangre y agua (Jn 19:34). La copa se había bebido y Él estaba satisfecho.
+
+## Cuarta copa: esperanza, «te tomaré»
+
+Pero quedó una copa llena, la que apuntaba a la palabra que hemos usado: «Los tomaré como mi pueblo». Y Él dijo: «No la beberé hasta que estemos en el reino». La cuarta copa llena representa que el Cordero de Dios, el varón de dolores, el Rey de reyes, un día regresará y beberá del fruto de la vid. Ese será el día en que la Pascua se cumpla en su reino, rodeado de sus invitados frente a su novia, en las bodas del Cordero, donde hay un asiento reservado para cada uno de nosotros.
+
+Yo la llamo la copa de la esperanza: la esperanza viva de que algún día todo esto pasará, que no habrá más lágrimas ni dolor, que seremos completamente otros, con cuerpos glorificados, libres del pecado, redimidos como posesión suya para su gloria por toda la eternidad. Así termina Apocalipsis: «Oí como la voz de una gran multitud, como el estruendo de muchas aguas y como el sonido de fuertes truenos, que decía: "¡Aleluya! Porque el Señor nuestro Dios Todopoderoso reina. Regocijémonos y alegrémonos, y démosle a Él la gloria, porque las bodas del Cordero han llegado y Su esposa se ha preparado"» (Ap 19:6-7).
+
+La cuarta copa es el momento en que Jesús viene a consumar el matrimonio con su novia, un día de celebración. Es nuestra esperanza viva, la razón por la que existimos y seguimos vivos, y la razón por la que Jesús dice: «Tomen su cruz y síganme». Sufran la aflicción de este mundo, que es pasajera, porque vendrá la gloria de la resurrección. Cristo es las primicias, y tú y yo un día resucitaremos en cuerpos glorificados y viviremos eternamente con Él.
