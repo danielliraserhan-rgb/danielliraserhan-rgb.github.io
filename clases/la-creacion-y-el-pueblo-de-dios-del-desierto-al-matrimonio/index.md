@@ -1,0 +1,162 @@
+# La Creación y el Pueblo de Dios: Del desierto al matrimonio
+
+> En el desierto Israel se queja y Dios provee maná, codornices y agua de la roca. Amalec y Jetro muestran la misión: bendeciré a los que te bendigan. En el Sinaí Dios propone: serán mi especial tesoro, segulá. El pacto se celebra como una boda: el mikve, la jupá de la gloria en el monte, los votos de la ley, la señal visible del día de reposo, la cena de bodas con los setenta ancianos y una casa, el tabernáculo. El pueblo rompe el pacto con el becerro de oro, y Dios promete un nuevo pacto escrito en el corazón.
+
+*Adaptado con ayuda de IA a partir de una clase grabada.*
+
+- Autor: Daniel Lira Serhan (https://daniellira.com/)
+- Serie: Orígenes: La Creación y el Pueblo de Dios · Sesión 8 (parte 8 de 9)
+- URL: https://daniellira.com/clases/la-creacion-y-el-pueblo-de-dios-del-desierto-al-matrimonio/
+- Video: https://www.youtube.com/watch?v=jKMC2uFw5Wc
+
+## Puntos clave
+
+- Los procesos del desierto son procesos en los que nos enamoramos de Dios.
+- Cuando olvidamos quién es Dios, volvemos a nuestra antigua identidad.
+- Dios se prueba superior, protector y proveedor.
+- El matrimonio es una invitación a una misión: bendecir a otros e invitarlos a la mesa.
+- La ley son votos de amor, no un legalismo de mínimo cumplimiento.
+- El día de reposo es la señal visible del pacto, como un anillo.
+- Israel rompió el pacto, pero el Esposo fiel pagó con su vida y prometió un nuevo pacto.
+
+---
+
+## Después de la primera cita
+
+Lo último que vimos fue la Pascua: la última señal con la que Dios saca al pueblo de la esclavitud, abre el mar y lo hace pasar. Hicimos una pausa con las cuatro copas, y vimos que el mensaje de Jesús era mucho más profundo que tomar un poquito de vino: era un mensaje que se entendía desde el Éxodo.
+
+Decíamos que esta confianza que Israel empieza a poner en Dios es como cuando la mujer acepta salir a una cita: «Está bien, te acepto el cafecito». Se empiezan a conocer, a caminar, ven cosas que les gustan y otras que no, y generalmente empieza a haber fallas. ¿Alguien ha tenido la relación perfecta? Siempre hay fallas. Lo mismo con Israel. Dios ha hecho milagros, los sacó, va como columna de fuego delante de ellos, vieron a sus enemigos destruidos. Pero ahora los va a pasar por un proceso en el desierto donde aprenderán a enamorarse de Él: lo verán protegerlos, proveerles, guiarlos, hasta que se entreguen por completo. Los procesos del desierto son procesos en los que nos enamoramos de Dios. Si aprovechamos bien ese tiempo, lo conocemos verdaderamente, y eso nos ayuda a soportar lo que sigue y, aun en la comodidad, a recordar quién es Él.
+
+## Hambre: «estábamos mejor en Egipto»
+
+Salen cantando: «El Señor es mi fortaleza y mi canción… El Señor es fuerte guerrero» (Éx 15:2-3), «hasta que pase el pueblo que Tú has comprado. Tú los traerás y los plantarás en el monte de Tu heredad» (Éx 15:16-17). La verdadera alabanza inicia cuando por fin comprendemos la grandeza de Dios y vemos lo que ha hecho en nuestras vidas, pero se tiene que sostener.
+
+Van caminando, están felices, y de repente se dan cuenta de que tienen mucha hambre. Se acuerdan de la carne de Egipto. Yo no sé qué carne comían si eran esclavos, pero había carne. Y le dicen a Moisés: «Ojalá hubiéramos muerto por mano del Señor en la tierra de Egipto, cuando nos sentábamos junto a las ollas de carne, cuando comíamos pan hasta saciarnos; pues ustedes nos han traído a este desierto para matar de hambre a toda esta multitud» (Éx 16:3). No lo entiendo, pero así somos tú y yo.
+
+Cuando olvidamos quién es Dios, nuestra perspectiva se nubla y recurrimos a nuestra antigua identidad. ¿No te ha pasado? «Si soy cristiano, ¿por qué…?». Porque lo perdemos de vista a Él, lo grandioso y lo bueno que es, que sigue enfrente como columna de fuego queriendo guiarte. Y empiezas a decir: «Estaba mejor cuando…», y ahí inserta lo tuyo: cuando tenía esos amigos, cuando podía hacer lo que fuera. Pero en medio de eso Dios se prueba fiel otra vez, se muestra capaz de proveer y le da a Israel la certeza de que nada le faltará, porque Él es su proveedor.
+
+Un hombre que conquista a una mujer se presenta superior a los demás y protector; pero una vez que ella sabe que está segura, es hora de presentarse como proveedor: «Conmigo no te va a faltar nada». Aun ante las quejas, en su infinita misericordia, Dios provee el maná, y también codornices para que tuvieran carne.
+
+## El maná de cada día
+
+Hay una instrucción que a veces se nos pasa: cada día recogerían el maná de ese día y no guardarían para el siguiente. Y unos cuantos rebeldes empiezan a juntar. ¿Por qué? Porque no creían que Dios fuera a proveer. En términos humanos no pasa nada, pero aquí estaban tratando con Dios. Lo guardado se llena de gusanos y se pudre (Éx 16:19-20). Lo que Dios les decía era: «Yo tengo cuidado de ti, y todos los días vas a ver mis maravillas». Si los pajaritos comen sin preocuparse, tú tampoco tienes por qué hacerlo. Dios es fiel y provee sin importar reproches ni murmuraciones.
+
+## Sed: agua de la roca
+
+Israel está feliz otra vez, hasta que tiene sed. Llegan a un lugar donde el agua era amarga (Éx 15:23), y más adelante a otro sin agua, y vuelven a decir: «Estábamos mejor en Egipto». «Pero el pueblo tuvo allí sed, y murmuró el pueblo contra Moisés, y dijo: "¿Por qué nos has hecho subir de Egipto para matarnos de sed a nosotros, a nuestros hijos y a nuestros ganados?"» (Éx 17:3). Y Dios le dice a Moisés que golpee la roca, y saldrá agua.
+
+Para entonces eran muchísimos: salieron como seiscientos mil hombres, sin contar a los niños (Éx 12:37), así que un millón de personas o más caminando en el desierto. Es imposible darle agua a tanta gente. La mujer se sigue quejando, pero Dios sigue siendo fiel. La Biblia solo dice «la roca», y en un desierto con montañas hay muchas piedras. Pero hay una roca gigante, partida, con la base erosionada como si hubiera pasado un río, rodeada de espacio donde podían estar los israelitas tomando agua. No me imagino un arroyito que se juntó en un lado; era algo gigante. Yo me imagino que Moisés la golpeó y tuvo que salir corriendo por el chorro de agua; probablemente bajó surfeando.
+
+El punto es que Dios primero se prueba superior a todos los dioses; segundo, protector: «A ti nadie te va a hacer daño»; y ahora proveedor. En el camino, la mujer se está enamorando: «¿Me quejo y aun así me trata así? Nadie me había tratado así». Los dioses de Egipto pedían un sacrificio y luego otro, y se enojaban. Este Dios da y da con sobreabundancia, y se entrega una y otra vez.
+
+## Una misión: Amalec y Jetro
+
+Justo antes de invitarlos al matrimonio, hay dos eventos que parecen no tener sentido en la narrativa: una batalla contra Amalec y la visita de Jetro, el suegro de Moisés. El punto es que cuando un hombre invita a una mujer al matrimonio, la invita a una misión de vida, a una aventura. No es «vamos a casarnos porque está chido». El hombre está hecho para una misión, para liderar, para guiar, para caminar, y por eso la mujer lo sigue. Si se queda sentado, no tiene a qué invitarla. Tiene que haber una misión que dirija la vida y la razón de ser del matrimonio.
+
+Y esta es la misión: «En ti serán benditas todas las familias de la tierra. Bendeciré a los que te bendigan, y al que te maldiga, maldeciré» (Gn 12:3). Estas dos historias muestran cómo se cumple, para que la mujer pueda decidir si quiere participar.
+
+Amalec ataca a Israel para destruirlo, pero el Señor gana. «Entonces el Señor dijo a Moisés: "Escribe esto en un libro para que sirva de memorial, y haz saber a Josué que Yo borraré por completo la memoria de Amalec de debajo del cielo". Y edificó Moisés un altar, y le puso por nombre: El Señor es Mi Estandarte; y dijo: "El Señor lo ha jurado; el Señor hará guerra contra Amalec de generación en generación"» (Éx 17:14-16). Amalec maldice a Israel, y el Señor cumple: maldeciré al que te maldiga.
+
+Y Jetro llega y bendice a Moisés. ¿Cómo? Le lleva a su esposa y a sus dos hijos (Éx 18:2-5). Moisés llevaba mucho tiempo sin su familia, enfocado en el reino de Dios. Y Jetro ve que la misión es tan grande que le aconseja: «Si tú juzgas a tanta gente, te vas a morir de cansancio. Pon jueces». Por eso se establece el sistema de jueces del Antiguo Testamento. Y ojo, esto era honrar el gobierno de Dios, porque el rey de Israel era Dios. Jetro no le dijo: «Establece un sistema de reyes», sino: «Pon jueces que juzguen conforme a la ley del Rey. Él es tu rey; necesitas gente que pueda leer la ley, interpretarla y aplicarla».
+
+Jetro bendice al Señor, y termina en la mesa: «Y Jetro, suegro de Moisés, tomó un holocausto y sacrificios para Dios, y Aarón vino con todos los ancianos de Israel a comer con el suegro de Moisés delante de Dios» (Éx 18:12). Ese es el objetivo de la familia de Israel: «Te voy a bendecir con mi presencia para que tú bendigas a otros y los invites a la mesa». Quienes te maldigan serán malditos, pero quienes te bendigan tendrán un lugar en la mesa.
+
+Y la mujer ya entiende: este Dios es sobre todos, me protege, me provee, y tiene una misión, una aventura que va mucho más allá de lo que puedo imaginar.
+
+## La propuesta en el Sinaí
+
+Es el momento de la propuesta matrimonial. Los lleva a un monte que Moisés ya conocía. A lo lejos se ve una montaña cuya cumbre está negra, como quemada; no lo afirmo al cien por ciento, pero esa parte de arriba está quemada, y ahorita verán por qué. Dios ya enamoró a la mujer, ya está seguro de que le va a decir que sí, y el Dios que creó el universo está a punto de proponerle algo.
+
+«Y Moisés subió hacia Dios, y el Señor lo llamó desde el monte y le dijo: "Así dirás a la casa de Jacob y anunciarás a los israelitas: 'Ustedes han visto lo que he hecho a los egipcios, y cómo los he tomado sobre alas de águilas y los he traído a Mí. Ahora pues, si en verdad escuchan Mi voz y guardan Mi pacto, serán Mi especial tesoro entre todos los pueblos, porque Mía es toda la tierra; y ustedes serán para Mí un reino de sacerdotes y una nación santa'"» (Éx 19:3-6).
+
+«Han visto lo que hice a los egipcios»: soy superior. «Los tomé sobre alas de águilas»: te protejo, te proveo, te guío. Es el momento en que el hombre se hinca: «Mi amor, eres el amor de mi vida. Hemos caminado hasta aquí» (yo le hubiera dicho: «Fuimos mejores amigos más de un año»). «Nos conocemos; sé quién eres y sabes quién soy. Quiero que seas mi especial tesoro».
+
+La palabra es *segulá*, que se usa para las joyas del rey, las de la corona, las que guarda para una ocasión especial: su posesión más valiosa, la que usa para declarar al mundo que él es rey. Y además serían una nación santa, con un rol completamente especial, separado. Como cuando un esposo le dice a su mujer: «Eres mi especial tesoro, única para mí; tú y yo vamos juntos».
+
+Moisés baja, les dice todas las palabras, y el pueblo responde: «Haremos todo lo que el Señor ha dicho» (Éx 19:8). Sí, acepto. «Claro que quiero ser tu especial tesoro. Nos sacaste, nos proveíste, nos invitas a algo increíble». Dios prácticamente se hincó, hizo su propuesta, y el pueblo dijo que sí.
+
+Veremos que este compromiso no fue perfecto; la parte de Israel se rompió. Pero un día ese mismo Dios regresará y se «hincará» en una cruz, declarando su amor eterno, renovando su pacto y dándonos un corazón nuevo, de carne, lleno de su Espíritu Santo, para responder a su amor fielmente. Así conquista una vez más a su novia, Israel, y a cada uno de nosotros, que hemos sido injertados. Aun ante nuestras murmuraciones, quejas e infidelidades, Él es fiel.
+
+## La ceremonia: un desposorio
+
+Lo que sigue se parece a lo que hoy conocemos como la ceremonia civil: un matrimonio con peso legal, combinado con la celebración del compromiso. Todo al mismo tiempo, formal y legal. Aún no se consuma el matrimonio, pero desde ese momento están desposados. Eso es lo que pasa con José y María: legalmente esposos, pero sin haber consumado el matrimonio, y por eso ella era virgen; si no, el relato no tiene sentido.
+
+Esta ceremonia tiene elementos, y cada uno significa algo. De nuevo: no es que Dios haya tomado los elementos del matrimonio para hacer su pacto, sino que nosotros tomamos de su pacto los elementos para reflejar su gloria en el matrimonio. No es un matrimonio literal; no se hincó literalmente, y no nos podemos casar literalmente con Dios. No es: «Tengo mis citas con Dios; que ningún hombre me hable». Es reflejar su gloria, que luego el pueblo judío y nosotros tomamos para irradiarla en el pacto matrimonial. Son como seis elementos.
+
+## 1. El mikve: purificación
+
+El primero es el *mikve*: las aguas de purificación, lo que nosotros conoceríamos como algo parecido al bautismo. Es el lavamiento que la novia tiene antes del matrimonio. ¿Por qué? Porque la presencia santa de Dios va a estar ahí. «El Señor dijo también a Moisés: "Ve al pueblo y conságralos hoy y mañana, y que laven sus vestidos; y que estén preparados para el tercer día, porque al tercer día el Señor descenderá a la vista de todo el pueblo sobre el monte Sinaí"» (Éx 19:10-11).
+
+La novia debe estar lista, pura, sin mancha y sin arruga, porque viene la santidad del Señor. La novia judía, días antes de su boda, pasa por el mikve para purificarse. Para nosotros, es el vestido blanco de la novia, que dice que está pura y preparada para entregarse a su novio.
+
+En las piedras alrededor de la montaña hay tallados unos personajes con arcos, como marcando: «Este es el límite; quien pase de aquí, ciertamente morirá». No había Instagram para avisar «nadie pase de la línea»; hacían grabados en las piedras. Les menciono estos elementos, aunque no son centrales, para que vean que esto es real, que sí sucedió, y que Dios lo ha preservado hasta hoy.
+
+## 2. La jupá: llega el novio
+
+El segundo es la *jupá*, que tiene que ver con la llegada del novio y la entrada de la novia. «Al tercer día, cuando llegó la mañana, hubo truenos y relámpagos y una densa nube sobre el monte y un sonido tan fuerte de trompeta, que hizo temblar a todo el pueblo que estaba en el campamento. Entonces Moisés sacó al pueblo del campamento para ir al encuentro de Dios, y ellos se quedaron al pie del monte. Todo el monte Sinaí humeaba, porque el Señor había descendido sobre él en fuego. El humo subía como el humo de un horno, y todo el monte se estremecía con violencia. El sonido de la trompeta aumentaba más y más; Moisés hablaba, y Dios le respondía con el trueno. El Señor descendió al monte Sinaí, a la cumbre del monte; y llamó el Señor a Moisés a la cumbre del monte, y Moisés subió» (Éx 19:16-20).
+
+El monte fue vestido por la gloria de Dios. El novio había llegado, vestido de gala, esperando a la novia. La jupá es como una casita en la que entran los novios judíos para hacer el pacto, y representa que la presencia de Dios está ahí avalándolo. Dios mismo fue la jupá, la cobertura y la validez del pacto.
+
+Estas escenas nos tienen que hacer pensar en Jesús, el único Dios que viene en las nubes, ya no vestido en sangre sino de gala y en toda su gloria: «Entonces verán al Hijo del Hombre que viene en una nube con poder y gran gloria. Cuando estas cosas empiecen a suceder, enderécense y levanten la cabeza, porque se acerca su redención» (Lc 21:27-28). Es como si dijera: «Levanten la cabeza, porque la ceremonia está por iniciar». «Él viene con las nubes, y todo ojo lo verá» (Ap 1:7). Es el momento que el novio ha esperado tanto: está parado, a punto de que suene la marcha nupcial, volteando para ver entrar a su novia. En nuestras bodas ya no ponemos jupá, pero ponemos un arco de flores; siempre hay algo que representa que la relación divina está sobre la pareja.
+
+## 3. Los votos: redimir la ley
+
+El tercer elemento son los votos, el pacto. En una boda judía eran las cláusulas legales del matrimonio: qué te comprometes a cumplir tú y qué yo. En nuestras bodas, cada elemento, el lazo, las arras, la Biblia como fundamento, los anillos, es como una de esas cláusulas, y los votos le dan a cada relación su esencia y su corazón.
+
+Aquí está el momento más importante para redimir la ley, porque los votos son la ley. Cuando escuchamos «ley» pensamos en un látigo, en legalismo, en «tengo que cumplir o Dios me mata». Pero son votos matrimoniales. Cuando te casas, no anotas tus votos para cuando el otro falle. Mi esposa prometió que se iba a reír de mis chistes malos; sí lo dijo, lo anoté. Y si no se ríe, ¿se cancela el matrimonio? Si fuera algo puramente legal, tendría todo el derecho. Pero el corazón de los votos nunca ha sido ese; es expresar lo que significa uno para el otro.
+
+Y los votos empiezan como esperarías: «Mi amor, el día que te conocí…». Recuerdan la historia. «Yo soy el Señor tu Dios, que te saqué de la tierra de Egipto, de la casa de servidumbre. No tendrás otros dioses delante de Mí» (Éx 20:2-3). ¿Quién no ha dicho eso en su matrimonio? Por eso te casas: no voy a andar con otras. ¿Legalismo? No: votos de amor profundo que expresan la santidad de la relación. La primera parte de los diez mandamientos trata de esa relación; la segunda, del fundamento de esta nueva familia: en esta familia no matamos, no robamos, no hablamos mal del otro; vamos a construir una familia con estos valores, y va a ser hermosa.
+
+¿Por qué es tan problemática la ley? Porque nuestro corazón la toma y dice: «Voy a anotarla toda y voy a hacer el mínimo». Si me tengo que reír de los chistes malos, «ja, ja, ja»; y eso duele, porque es hipócrita. Por eso Jesús les dice a los fariseos, a los líderes: «Hipócritas, que ponen cargas sobre otros», que hacen lo mínimo, pero su corazón está podrido.
+
+Los votos de Dios son la revelación de su santidad y fidelidad en los diez mandamientos y las leyes que siguen. Cuando entendemos la ley como sus intenciones buenas y perfectas para nuestra vida, dejamos de vivir un legalismo de simple cumplimiento y comenzamos a deleitarnos en sus atributos y a honrar su gobierno sin la carga de «tengo que cumplir». Cuando amas a tu esposa, los votos se cumplen. Y sirven para cuando se están peleando y algo se está desarraigando: corres y dices «¿por qué me casé con ella?», y los vuelves a leer: «En las buenas y en las malas». Estamos en las malas, pero lo prometí; es un pacto santo en la presencia de Dios. Y para los valientes que prometieron «amarte como Cristo amó a su iglesia e ir a la cruz por ti», lo lees y dices: «Pues voy a la cruz». Esa es la ley: el lugar al que regresamos para confirmar que sí me ama, que sí me escogió, y para volver a Él y dejar mis propios caminos.
+
+Moisés baja con los votos: «Moisés vino y contó al pueblo todas las palabras del Señor y todas las ordenanzas; y todo el pueblo respondió a una voz, y dijo: "Haremos todas las palabras que el Señor ha dicho"… Luego tomó el libro del pacto y lo leyó a oídos del pueblo, y ellos dijeron: "Todo lo que el Señor ha dicho haremos y obedeceremos". Entonces Moisés tomó la sangre y la roció sobre el pueblo, y dijo: "Esta es la sangre del pacto que el Señor ha hecho con ustedes, según todas estas palabras"» (Éx 24:3, 7-8).
+
+Sí, acepto. Ya no hay un compromiso solo de parte del novio; la novia dijo: «Obedeceremos hasta que la muerte nos separe». La sangre rociada representa el pago por el incumplimiento. Es un pacto construido sobre el de Abraham, Isaac y Jacob, cuando Dios pasó entre los animales partidos diciendo: «Este pacto lo sostengo yo, aun hasta la muerte».
+
+Por eso Dios después anuncia un nuevo pacto. ¿Diferente a cuál antiguo pacto? A este, específicamente. Porque en este, la novia tenía una parte, y dijo «hasta la muerte», e incumplió todo. Lo legal es que alguien muera, porque el pago del incumplimiento es la muerte. Pero el buen esposo dice: «Yo seré el que muera». Es Cristo yendo a la cruz y pagando con su sangre el pacto que nosotros rompimos, para redimir el pacto matrimonial: «No te voy a abandonar; soy fiel hasta el final, incluso hasta la muerte». Y esa muerte no nos separó; nos unió.
+
+## 4. La señal visible: el día de reposo
+
+Todo pacto tiene una señal visible. Pasan los votos, y ¿qué haces? Pones un anillo en el dedo de tu esposa. Y si hay hombres que no usan anillo, perdónenme, pero deberían. Le declaras al mundo: «Ya no vivo solo; estoy en un pacto, soy uno con mi esposa. No estoy libre, no voy a andar con otras, no voy a buscar en otro lado». Es visible, brilla, para que la gente lo vea; alguien voltea a tu mano, ve el anillo, y da un paso atrás. Y tú tienes un recordatorio: «Hice un pacto, y la presencia santa de Dios estaba ahí». Lo que debes pensar es en la presencia santa con truenos y fuego en el Sinaí, donde si cruzabas el límite morías. Cuando te quitas el anillo para romper tus votos, estás cruzando esa línea y te vas a morir.
+
+Para la relación de Dios con Israel, la señal no era solo la circuncisión, que era algo muy interno y privado. Ahora habría una señal visible a todo el mundo: el día de reposo (Éx 31:13), escondido en medio de los diez mandamientos. Es interesante: la primera mitad trata de amar a Dios, la segunda de amar al prójimo, y en medio, el día de reposo.
+
+Imagínate cuatrocientos años de esclavitud: ¿cuántos días de reposo tuviste? Ninguno. No era algo común como para nosotros, que trabajamos seis días y descansamos uno; o en Monterrey cinco y descansas dos; y si vienes de la Ciudad de México, cuatro y medio. Pero no era un concepto que la gente entendiera: tenían que conquistar, hacer guerra, sobrevivir. Y Dios dice: «Así te identificarán las naciones: el séptimo día vas a descansar».
+
+¿Qué significa descansar? Reposar en su presencia. El día de reposo es como un día de cita: todo se detiene, pase lo que pase. Si no tienes un día de cita con tu esposa, deberías tenerlo. Y las naciones dirían: «¿Y estos locos van a dejar de trabajar? ¿Cómo van a comer?». En el desierto, seis días caía el maná, pero el sexto día les dice: «Recojan doble, porque el séptimo no van a trabajar» (Éx 16:22-26). ¿Se acuerdan de cómo se pudría cuando lo guardaban? Aquello mostraba que la desobediencia pudre el corazón; esto, que cuando obedeces a Dios en el día de descanso, Él provee. No se trata de la provisión, sino de Él. Cada día de reposo era un día de cita que declaraba al mundo que Él era el Señor: todo se detenía para recordar su bondad, lo que hizo en el Éxodo y lo que estaba haciendo.
+
+Representa que Dios trabajó y al séptimo día descansó, para disfrutar su creación y que su creación lo disfrute. Nosotros no guardamos el Shabbat; estamos hablando de Israel. Pero todos los que lo guardan declaran, aunque no lo sepan, el carácter fiel de Dios, que va a regresar para reconciliar a su novia consigo mismo.
+
+¿Se acuerdan de que el pacto se selló con sangre? Al pie del monte hay piedras acomodadas con un pasillo en medio, por donde habrían pasado los animales que Moisés sacrificó, y doce columnas de piedra que representaban a las doce tribus (Éx 24:4). Imagínate rociar sangre a un millón de personas; se hizo de manera simbólica sobre las doce tribus: «Este pacto es con las doce tribus de Israel».
+
+## 5. La cena de bodas
+
+Se acaba la boda, se ponen los anillos, los declaran marido y mujer. ¿Qué sigue? La cena, la fiesta. El quinto elemento es la cena de bodas, y para mí es el más impactante, porque causa un conflicto muy grande en mi cabeza: «Subieron Moisés y Aarón, Nadab y Abiú, y setenta de los ancianos de Israel, y vieron al Dios de Israel. Debajo de Sus pies había como un embaldosado de zafiro, tan claro como el mismo cielo. Pero Él no extendió Su mano contra los príncipes de los israelitas; ellos vieron a Dios, y comieron y bebieron» (Éx 24:9-11).
+
+No solo Moisés y Aarón, sino setenta ancianos vieron a Dios. Pero nadie ha visto a Dios… «El que me ha visto a mí, ha visto al Padre»; eso lo dice Jesús. Para mí es uno de los versículos más impactantes porque representa a un Jesús preencarnado. ¿Cómo se veía? No tengo idea. Todavía no era el Jesús que conocemos en carne, pero era el Hijo, el que era antes de Abraham, el Verbo que era con Dios y que se hizo carne. Ahí estaba celebrando la boda, apuntando al día en que ese Jesús que sí conocemos regresará, después de renovar el pacto, a una cena de bodas.
+
+## 6. Una casa para habitar juntos
+
+Se acaba la celebración, y Dios revela una vez más por qué hace todo lo que hace. Todo matrimonio, terminada la fiesta, tiene que ir a una casa, a habitar. «Que me hagan un santuario, para que Yo habite entre ellos. Conforme a todo lo que te voy a mostrar, conforme al diseño del tabernáculo y al diseño de todo su mobiliario, así ustedes lo harán» (Éx 25:8-9). Dios sabía cómo quería su casa, dónde y cómo amueblarla: «Construyan una casa para que habitemos juntos». En esta última instrucción Dios revela su intención original desde la creación: habitar con ellos.
+
+Lo dice Isaías: «Él es el que está sentado sobre la redondez de la tierra, cuyos habitantes son como langostas. Él es el que extiende los cielos como una cortina y los despliega como una tienda para morar» (Is 40:22). Dios no creó los cielos y la tierra para jugar desde lejos, sino para vivir con su creación. Después de todo el pacto dice: «Quiero habitar con ustedes. Háganme una casa, y ahí voy a descansar».
+
+## El becerro de oro
+
+Desafortunadamente conoces el corazón humano: somos malos. El pacto se rompe mientras está sucediendo. Mientras Moisés está en la nube, en la presencia de Dios, el pueblo se hace un dios falso y le atribuye su libertad: «Este es tu dios, Israel, que te sacó de la tierra de Egipto» (Éx 32:4), sabiendo que era mentira. Y celebran con un banquete que los distrae de la paciencia, de la espera: «Moisés está tardando mucho; mejor háganos un dios, para ya empezar a celebrar, a recibir la bendición, a gozarnos».
+
+Lo más doloroso es que fue Aarón quien lo hizo, el mismo que vio a Dios y comió y bebió con Él. Fundió oro e hizo un becerro de oro. Ese becerro les recordaba su antigua identidad, porque probablemente lo sacaron de uno de los dioses de Egipto, un toro que representaba la fertilidad; hay representaciones con jeroglíficos de un toro con un hombre debajo. Deciden romper el pacto y alejarse de Dios.
+
+Nos pasa igual. Cambiamos a Dios; olvidamos lo que ha hecho en nosotros. Seguirlo siempre involucra una parte de incertidumbre, y en medio del desierto nos cuesta arraigarnos en su fidelidad y provisión. Pero debemos mantener la vista en las promesas de Dios, y no en nuestros sentimientos ni en nuestras percepciones: «Dijo que vendría y no ha llegado; ¿dónde está mi bendición? Si soy cristiano, ¿por qué sigo batallando con esto?». Porque estás en un proceso en el desierto en el que Dios quiere conquistarte y atraerte hasta que le digas: «Sí, acepto». Y aunque seas infiel, como este pueblo, Dios es fiel.
+
+Dios los quería destruir, Moisés intercede por ellos (Éx 32:9-14), bajan y destruyen el ídolo. Frente a la montaña donde Dios hizo este pacto aún hay ruinas de lo que sería el altar de ese ídolo.
+
+## Un nuevo pacto
+
+Por eso Dios dice: «Pero yo soy fiel; voy a redimir». Y lo anuncia por los profetas: «"Vienen días", declara el Señor, "en que haré con la casa de Israel y con la casa de Judá un nuevo pacto, no como el pacto que hice con sus padres el día que los tomé de la mano para sacarlos de la tierra de Egipto, Mi pacto que ellos rompieron, aunque fui un esposo para ellos", declara el Señor. "Porque este es el pacto que haré con la casa de Israel después de aquellos días", declara el Señor. "Pondré Mi ley dentro de ellos, y sobre sus corazones la escribiré. Entonces Yo seré su Dios y ellos serán Mi pueblo. Y no tendrán que enseñar más cada uno a su prójimo y cada cual a su hermano, diciendo: 'Conoce al Señor', porque todos me conocerán, desde el más pequeño de ellos hasta el más grande", declara el Señor, "pues perdonaré su maldad, y no recordaré más su pecado"» (Jer 31:31-34).
+
+Pondré mis votos, mi amor y mi corazón, no en piedras, sino en sus corazones. El pacto matrimonial se va a restaurar, y la novia se va a embellecer y estará lista para su regreso. Por la sangre de nuestro Señor la novia es limpiada y purificada. Él es quien un día regresará en las nubes por su novia, quien restaura la casa de Israel y de Judá, y quien nos ha injertado a ti y a mí en ese mismo pueblo para disfrutar la eternidad a su lado. «Y así, todo Israel será salvo; tal como está escrito: "El Libertador vendrá de Sion; apartará la impiedad de Jacob. Y este es Mi pacto con ellos, cuando Yo quite sus pecados"» (Ro 11:26-27). Y al final todo esto sucede para que «el tabernáculo de Dios esté entre los hombres, y Él habitará entre ellos y ellos serán Su pueblo, y Dios mismo estará entre ellos» (Ap 21:3).
+
+El pacto de Moisés y el Éxodo son tan importantes porque envuelven todo el mensaje de Dios: su fidelidad, por qué tuvo que venir a morir y a sangrar, y que Él sostiene su pacto. Y si nos sostiene a nosotros, también sostiene a Israel. Llegará el día en que regrese. El objetivo no son los eventos, ni las cosas, ni la bendición de hoy; el objetivo es que su presencia habite entre nosotros, como lo diseñó desde siempre. La historia del Éxodo continúa y la habitación se construiría: un tabernáculo apuntando a ese día perfecto en que el tabernáculo de Dios estará entre nosotros. Ese es el pacto matrimonial, el mensaje de Dios sobre la relación que tiene con nosotros y el objetivo final que va a redimir antes de su regreso.
