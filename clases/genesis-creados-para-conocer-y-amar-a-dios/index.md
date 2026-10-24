@@ -23,7 +23,7 @@
 
 ## La mayor aventura de todas
 
-Bienvenido a Orígenes. En esta serie estudiamos el Pentateuco, los primeros cinco libros de la Biblia, La serie consta de cinco clases, y cada una trata de uno de ellos. El objetivo, como lo dice su nombre, es descubrir los orígenes: ir a la palabra de Dios y ver cuál es el origen de todas las cosas, qué creó Dios, para qué lo creó, por qué existimos y para qué existimos. Y, sobre todo, ir echando los fundamentos correctos para entender los patrones y las temáticas que se van hilando a lo largo de toda la Biblia.
+Bienvenido a Orígenes. En esta serie estudiamos el Pentateuco, los primeros cinco libros de la Biblia, La serie consta de cinco partes, y cada una trata de uno de ellos. El objetivo, como lo dice su nombre, es descubrir los orígenes: ir a la palabra de Dios y ver cuál es el origen de todas las cosas, qué creó Dios, para qué lo creó, por qué existimos y para qué existimos. Y, sobre todo, ir echando los fundamentos correctos para entender los patrones y las temáticas que se van hilando a lo largo de toda la Biblia.
 
 Toma tu Biblia. Yo estaré leyendo de la NBLA, pero puedes usar la versión de tu preferencia. No vamos a ver cada detalle; la intención es tomar la temática que se va a ir desenvolviendo a través de la Biblia. Partimos de aquí: la palabra de Dios contiene la verdad. Y sabiendo que es la verdad, así es como la leemos y como nos acercamos a ella.
 

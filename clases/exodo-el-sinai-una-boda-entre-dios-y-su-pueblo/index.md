@@ -110,7 +110,7 @@ Sí, acepto. Y Moisés completa el pacto. Si te acuerdas de la clase de Génesis
 
 Cuando la Biblia habla del antiguo pacto, el pacto que tiene que ser redimido y mejorado porque no lo pudieron sostener aun cuando Dios los tomó como esposa, lo puedes ver en Jeremías 31, en Isaías, en Ezequiel, en el Nuevo Testamento, está haciendo referencia a este pacto. No al pacto de Abraham ni a los pactos que veremos en otras clases, sino a este pacto, porque es un pacto bilateral. Los votos en un matrimonio son de dos partes. Dios cumpliría su parte y el pueblo no cumpliría la suya.
 
-Por lo tanto, Dios un día haría un nuevo pacto, el cual viene nombrado en Deuteronomio, y del que hablaremos al terminar las cinco clases de la serie Orígenes.
+Por lo tanto, Dios un día haría un nuevo pacto, el cual viene nombrado en Deuteronomio, y del que hablaremos al terminar las cinco partes de la serie Orígenes.
 
 ## La cena de bodas
 

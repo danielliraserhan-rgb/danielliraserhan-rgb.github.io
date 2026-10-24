@@ -24,7 +24,7 @@
 
 ## Levítico revela el carácter de Dios
 
-Muchas personas creen que el libro de Levítico es muy complicado, pero quiero decirte que un niño judío comienza su instrucción bíblica a los cinco años con el libro de Levítico. En esta clase quiero que podamos descubrir qué es lo esencial de este libro y por qué es tan importante, porque creo que revela el carácter de Dios, revela su gracia, revela un mensaje mucho más profundo que solo instrucciones de cómo hacer sacrificios, fiestas y purificaciones. Y todo tiene que ver con la gran historia que hemos estado contando en esta serie de cinco clases llamada Orígenes. Llegamos a la tercera, en donde estaremos abordando el libro de Levítico y cómo la gracia de Dios es revelada a través de él. Quiero recordarte rápidamente la gran historia hasta este momento.
+Muchas personas creen que el libro de Levítico es muy complicado, pero quiero decirte que un niño judío comienza su instrucción bíblica a los cinco años con el libro de Levítico. En esta clase quiero que podamos descubrir qué es lo esencial de este libro y por qué es tan importante, porque creo que revela el carácter de Dios, revela su gracia, revela un mensaje mucho más profundo que solo instrucciones de cómo hacer sacrificios, fiestas y purificaciones. Y todo tiene que ver con la gran historia que hemos estado contando en esta serie de cinco partes llamada Orígenes. Llegamos a la tercera, en donde estaremos abordando el libro de Levítico y cómo la gracia de Dios es revelada a través de él. Quiero recordarte rápidamente la gran historia hasta este momento.
 
 ## La gran historia hasta aquí
 
