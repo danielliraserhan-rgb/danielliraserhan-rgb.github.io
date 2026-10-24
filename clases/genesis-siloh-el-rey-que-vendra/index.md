@@ -22,7 +22,7 @@
 
 ---
 
-## El evangelio en Génesis, de principio a fin
+## El evangelio desde Génesis, de principio a fin
 
 Bienvenido a la última sesión de Génesis, la primera clase de Orígenes. Hemos recorrido el evangelio desde Génesis. ¿Cuál es el evangelio? Que Dios creó todas las cosas y que todo era bueno, pero el hombre lo corrompe al alejarse de Dios una y otra vez. Y Dios siempre pone dos opciones: seguir nuestro propio camino, alejándonos de Él, o la buena noticia: aunque todo está corrupto, Él tiene un plan en marcha para restaurar todas las cosas.
 
