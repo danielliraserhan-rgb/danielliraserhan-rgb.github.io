@@ -6,7 +6,7 @@
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: 17 de enero de 2023, Convivencia Familiar Monterrey · Vértice
+- Fecha: enero de 2023, Convivencia Familiar Monterrey · Vértice
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/la-gran-historia-vivir-para-el-regreso-de-jesus/
 - Idioma: es-MX
