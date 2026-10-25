@@ -89,7 +89,7 @@ Por ese tiempo comenzaron los hombres a invocar el nombre del Señor.
 - Desde entonces Dios ha revelado Su Plan para regresar a casa.
 - Por miles de años nos ha apuntado a los tiempos venideros
 - A los tiempos de hoy.
-- Marcos 1:5
+- Marcos 1:15
 
 > «El tiempo se ha cumplido», decía, «y el reino de Dios se ha acercado; arrepiéntanse y crean en el evangelio».
 
@@ -118,8 +118,8 @@ Es el aumento del antisemitismo que nos indica que quien está obrando no es sol
 
 El Apocalipsis nos revela que este sistema ha operado siempre a través de reinos, específicamente 7.
 
-- Apocalipsis 13:3,5
-- 3 El dragón se paró sobre la arena del mar.
+- Apocalipsis 13:1,5
+- 1 El dragón se paró sobre la arena del mar.
 
 Y vi que subía del mar una bestia que tenía diez cuernos y siete cabezas.
 
@@ -144,7 +144,7 @@ Mateo 24:14
 
 Y este evangelio del reino se predicará en todo el mundo como testimonio a todas las naciones, y entonces vendrá el fin.
 
-Mateo 24:5
+Mateo 24:15
 
 > Por tanto, cuando ustedes vean la abominación de la desolación, de que se habló por medio del profeta Daniel, colocada en el lugar santo, y el que lea que entienda, 16 entonces los que estén en Judea, huyan a los montes.
 
@@ -220,7 +220,7 @@ Juan 16:1-4
 
 > Estas cosas les he dicho para que no tengan tropiezo. 2 Los expulsarán de las sinagogas; pero viene la hora cuando cualquiera que los mate pensará que así rinde un servicio a Dios. 3 Y harán estas cosas porque no han conocido ni al Padre ni a Mí. Pero les he dicho estas cosas para que cuando llegue la hora, se acuerden de que ya les había hablado de ellas. Y no les dije estas cosas al principio, porque Yo estaba con ustedes.
 
-Juan 15:20-21
+Juan 16:20-21
 
 20 En verdad les digo, que llorarán y se lamentarán, pero el mundo se alegrará; ustedes estarán tristes, pero su tristeza se convertirá en alegría. 21 Cuando la mujer está para dar a luz, tiene aflicción, porque ha llegado su hora; pero cuando da a luz al niño, ya no se acuerda de la angustia, por la alegría de que un niño haya nacido en el mundo.
 

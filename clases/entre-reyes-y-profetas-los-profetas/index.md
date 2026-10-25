@@ -5,7 +5,7 @@
 *Adaptado con ayuda de IA a partir de una clase grabada.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Serie: Entre reyes y profetas · Sesión 8 (parte 8 de 10)
+- Serie: Entre reyes y profetas · Sesión 7 (parte 7 de 9)
 - URL: https://daniellira.com/clases/entre-reyes-y-profetas-los-profetas/
 - Video: https://www.youtube.com/watch?v=W3gFj5WwH-E
 

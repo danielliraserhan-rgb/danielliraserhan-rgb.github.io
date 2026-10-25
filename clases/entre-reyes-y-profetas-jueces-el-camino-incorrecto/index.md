@@ -5,7 +5,7 @@
 *Adaptado con ayuda de IA a partir de una clase grabada.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Serie: Entre reyes y profetas · Sesión 3 (parte 3 de 10)
+- Serie: Entre reyes y profetas · Sesión 3 (parte 3 de 9)
 - URL: https://daniellira.com/clases/entre-reyes-y-profetas-jueces-el-camino-incorrecto/
 - Video: https://www.youtube.com/watch?v=uqD-nZu1BWA
 

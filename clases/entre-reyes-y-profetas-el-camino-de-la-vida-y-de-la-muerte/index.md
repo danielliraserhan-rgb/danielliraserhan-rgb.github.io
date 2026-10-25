@@ -5,7 +5,7 @@
 *Adaptado con ayuda de IA a partir de una clase grabada.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Serie: Entre reyes y profetas · Sesión 2 (parte 2 de 10)
+- Serie: Entre reyes y profetas · Sesión 2 (parte 2 de 9)
 - URL: https://daniellira.com/clases/entre-reyes-y-profetas-el-camino-de-la-vida-y-de-la-muerte/
 - Video: https://www.youtube.com/watch?v=A2lOze32Zh0
 

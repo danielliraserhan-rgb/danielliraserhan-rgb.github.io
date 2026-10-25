@@ -5,7 +5,7 @@
 *Adaptado con ayuda de IA a partir de una clase grabada.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Serie: Entre reyes y profetas · Sesión 1 (parte 1 de 10)
+- Serie: Entre reyes y profetas · Sesión 1 (parte 1 de 9)
 - URL: https://daniellira.com/clases/entre-reyes-y-profetas-la-ley-es-el-fundamento/
 - Video: https://www.youtube.com/watch?v=rMTjnyPIwUs
 

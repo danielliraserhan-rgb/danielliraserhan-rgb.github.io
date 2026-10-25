@@ -127,7 +127,7 @@ Así fue el momento en el que yo llegué a Cristo. Durante cuatro años estudié
 
 Yo sabía que era real su crucifixión. Yo lo sabía. Igual que los discípulos. Pero no fue hasta que me senté con la Palabra de Dios. Solo en mi cuarto. Y que empecé a decirle a Dios, háblame. Porque por cuatro años no me atreví a abrirla. Lo estudié. Vi todos los videos de YouTube. Leí todos los libros que te puedes imaginar. Pero nunca su Palabra. Y yo abrí su Palabra. Y fue solo en la intimidad de mi cuarto cuando lo invité a cenar conmigo porque era de noche.
 
-Estaba yo con Él y mientras leía su Palabra, Jesús abrió mis ojos. Y yo vi como Él era el que me venía acompañando en el camino. Era Él quien en todo momento estuvo ahí, que tuvo momentos conmigo en los que me presentó y me dijo, yo seré tu Dios. Él que me dijo, yo seré tu familia. Y eso fue cuando llegué a convivencia familiar, aunque no creía. Inclusive me presentó hasta a mi esposa. Empecé a tener estos flashbacks en los que empecé a ver que era Jesús todo el tiempo. El que era el camino, el que me mostraba la verdad y el que me daría vida.
+Estaba yo con Él y mientras leía su Palabra, Jesús abrió mis ojos. Y yo vi como Él era el que me venía acompañando en el camino. Era Él quien en todo momento estuvo ahí, que tuvo momentos conmigo en los que me presentó y me dijo, yo seré tu Dios. Él que me dijo, yo seré tu familia. Y eso fue cuando llegué a Convivencia Familiar, aunque no creía. Inclusive me presentó hasta a mi esposa. Empecé a tener estos flashbacks en los que empecé a ver que era Jesús todo el tiempo. El que era el camino, el que me mostraba la verdad y el que me daría vida.
 
 ## Un fuego que no se puede contener
 

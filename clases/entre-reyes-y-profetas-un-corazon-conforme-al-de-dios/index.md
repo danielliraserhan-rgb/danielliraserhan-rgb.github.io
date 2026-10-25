@@ -5,7 +5,7 @@
 *Adaptado con ayuda de IA a partir de una clase grabada.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Serie: Entre reyes y profetas · Sesión 5 (parte 5 de 10)
+- Serie: Entre reyes y profetas · Sesión 4 (parte 4 de 9)
 - URL: https://daniellira.com/clases/entre-reyes-y-profetas-un-corazon-conforme-al-de-dios/
 - Video: https://www.youtube.com/watch?v=KfxDqGszkng
 

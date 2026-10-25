@@ -76,7 +76,7 @@ Inicia su carta diciendo Hijo amado. Así como lo hizo en su primera carta afirm
 - Vayamos a las Escrituras, Aprendamos juntos
 - Avivemos el fuego de la fe, fortalezcámonos en la gracia.
 - Y Continuemos la misión, terminemos la misión.
-- 1 Timoteo 1:2
+- 2 Timoteo 1:9
 - Él nos ha salvado y llamado con un llamamiento santo.
 - No según nuestras obras, sino según Su Propósito.
 - Según la gracia que nos fue dada en Cristo Jesús.

@@ -137,7 +137,7 @@ Dará su vida en sustitución (Isaac) Génesis 22:13
 
 13 Entonces Abraham alzó los ojos y miró, y vio un carnero detrás de él trabado por los cuernos en un matorral. Abraham fue, tomó el carnero y lo ofreció en holocausto en lugar de su hijo.
 
-Pelear junto a Israel (Dime tu nombre) Génesis 31:26-30
+Pelear junto a Israel (Dime tu nombre) Génesis 32:26-30
 
 26 Entonces el hombre dijo: «Suéltame porque raya el alba». «No te soltaré si no me bendices», le respondió Jacob.
 
@@ -247,7 +247,7 @@ Génesis 4:26
 
 26 A Set le nació también un hijo y le puso por nombre Enós. Por ese tiempo comenzaron los hombres a invocar el nombre del Señor.
 
-Éxodo 24
+Éxodo 2:24
 
 24 Dios oyó su gemido y se acordó de su pacto con Abraham, Isaac y Jacob.
 

@@ -5,7 +5,7 @@
 *Adaptado con ayuda de IA a partir de una clase grabada.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Serie: Entre reyes y profetas · Sesión 10 (parte 10 de 10)
+- Serie: Entre reyes y profetas · Sesión 9 (parte 9 de 9)
 - URL: https://daniellira.com/clases/entre-reyes-y-profetas-traidos-de-vuelta/
 - Video: https://www.youtube.com/watch?v=F5yF7ZtR6kQ
 

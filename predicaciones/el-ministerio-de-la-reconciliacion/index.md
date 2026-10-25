@@ -46,7 +46,7 @@ Génesis 4:8
 
 > Cierto día Caín dijo a su hermano: «Salgamos al campo». Mientras estaban en el campo, Caín atacó a su hermano Abel y lo mató.
 
-Génesis 4:11
+Génesis 4:10-11
 
 > —¿Qué has hecho? ¡Escucha! ¡La sangre de tu hermano clama a mí desde la tierra! 11 Ahora eres maldito y serás expulsado de la tierra que se ha tragado la sangre de tu hermano.
 
