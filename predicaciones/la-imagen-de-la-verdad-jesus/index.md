@@ -1,10 +1,9 @@
 # La imagen de la verdad: Jesús
 
-*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: Fecha por confirmar, ICF Ensenada (según el nombre del archivo; por confirmar)
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/la-imagen-de-la-verdad-jesus/
 - Idioma: es-MX

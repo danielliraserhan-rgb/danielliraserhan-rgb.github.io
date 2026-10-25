@@ -133,7 +133,7 @@ Pero en ese momento sabrá. Y si sí estoy, yo le voy a hablar y le voy a decir,
 
 Para eso están los dos testigos. Estos dos testigos, si tú no estás, no importa. Cristo se encarga. Dios se encarga. Y va a levantar a dos testigos. Este interludio dice, hey, desde el inicio de este tiempo va a haber un templo y desde el inicio de este tiempo va a haber dos testigos ungidos por el Señor. Con el poder del Espíritu Santo para hablar fuego, literalmente. Para que quien lo quiera atacar sea destruido. Para quien lo quiera matar sea muerto. Lo vamos a leer para que me crean.
 
-Dice, estos son los dos olivos y los dos candelabros. Y tú dices, ¿de qué hablas? Bueno, en Zacarías, cuando se van al exilio, la primera vez que regresan, ahí en Zacarías 4, hay una visión que tiene. Y le pregunta, pero explícame quiénes son. Y específicamente habla de el olivo y los candelabros. Dice, son las dos personas ungidas por el Señor para hacer la obra. Y son los encargados de construir el templo, literalmente. En Zacarías, literalmente, es Zorobabel y es, empieza con Jota el otro, pero él. Jonás, creo que se llama Jonás, pero a lo mejor me estoy confundiendo con el otro Jonás. No importa.
+Dice, estos son los dos olivos y los dos candelabros. Y tú dices, ¿de qué hablas? Bueno, en Zacarías, cuando se van al exilio, la primera vez que regresan, ahí en Zacarías 4, hay una visión que tiene. Y le pregunta, pero explícame quiénes son. Y específicamente habla de el olivo y los candelabros. Dice, son las dos personas ungidas por el Señor para hacer la obra. Y son los encargados de construir el templo, literalmente. En Zacarías, literalmente, es Zorobabel y es, empieza con Jota el otro: Josué.
 
 ## Los dos testigos
 

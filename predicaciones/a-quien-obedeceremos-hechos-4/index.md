@@ -1,10 +1,9 @@
 # ¿A quién obedeceremos, a Dios o a los hombres?
 
-*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: Fecha por confirmar, Lugar por confirmar
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/a-quien-obedeceremos-hechos-4/
 - Idioma: es-MX

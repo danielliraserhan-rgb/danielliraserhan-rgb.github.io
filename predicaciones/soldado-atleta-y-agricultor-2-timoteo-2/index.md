@@ -1,10 +1,10 @@
 # Soldado, atleta y agricultor
 
-*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha por confirmar; lugar: Convivencia Familiar Monterrey · Miércoles Crecer.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Lugar: Convivencia Familiar Monterrey · Miércoles Crecer.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: Fecha por confirmar, Convivencia Familiar Monterrey · Miércoles Crecer
+- Lugar: Convivencia Familiar Monterrey · Miércoles Crecer
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/soldado-atleta-y-agricultor-2-timoteo-2/
 - Idioma: es-MX
