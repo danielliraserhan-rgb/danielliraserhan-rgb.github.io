@@ -77,7 +77,7 @@ Que sigue en un cuerpo humano. Glorificado. Eterno. Pero sigue en un cuerpo huma
 
 Pero ahora nos ha llamado a vida eterna.
 
-> “Y esta es la vida eterna: que te conozcan a ti, el único Dios verdadero y a Jesucristo a quien has enviado.” (Juan 17:3 NBLA)
+> “Y esta es la vida eterna: que te conozcan a ti, el único Dios verdadero y a Jesucristo a quien has enviado.” (Juan 17:3)
 
 ## Basta de juegos
 
@@ -115,11 +115,11 @@ Pero aquel que no da fruto es cortado y es echado al fuego. ¿Tú qué crees que
 
 Si guardan mis mandamientos, ¿cómo permanezco?
 
-> “Si guardan mis mandamientos, permanecerán en mi amor. Así como yo he guardado los mandamientos de mi Padre y permanezco en su amor.” (Juan 15:10 NBLA)
+> “Si guardan mis mandamientos, permanecerán en mi amor. Así como yo he guardado los mandamientos de mi Padre y permanezco en su amor.” (Juan 15:10)
 
 Y se trata de un enfoque único en tu vida. Que todo lo que no esté dirigido a este enfoque, no exista.
 
-> “Ustedes no me escogieron a mí, sino que yo los escogí a ustedes. Los designé para que vayan y den fruto. Y su fruto permanezca para que todo lo que le pidan al Padre, en mi nombre, se les concedan.” (Juan 15:16 NBLA)
+> “Ustedes no me escogieron a mí, sino que yo los escogí a ustedes. Los designé para que vayan y den fruto. Y su fruto permanezca para que todo lo que le pidan al Padre, en mi nombre, se les concedan.” (Juan 15:16)
 
 Y esta es la vida eterna, que te conozcan a ti y al Hijo que ha dado su vida por ustedes. Esta nueva temporada de Vértice va a cambiar un poco la intensidad.
 
@@ -127,7 +127,7 @@ Porque si estamos llamados a obedecer a Cristo, tenemos que obedecer a Cristo. �
 
 Y cuando te lo pida a ti, más te vale que obedezcas, porque si no, te vas a secar. Hemos sido llamados a permanecer en la vid, y permaneciendo en la vid, dar fruto. Es activo, tiene una connotación eterna, es relacional, porque es con Cristo y con nosotros. La vid es como una vid de uvas, no solamente es una uva, somos muchas uvas, somos un racimo de uvas, y todos necesitamos de todos. Y nos lleva a un enfoque único. Santifícalos en la verdad. Juan 17. Permanecer habla de santificación.
 
-> “Santifícalos en la verdad. Tu Palabra es verdad. Y como tú me enviaste al mundo, yo ahora los he enviado al mundo. Y por ellos me santifico, para que también sean santificados en la verdad.” (Juan 17:17-19 NBLA)
+> “Santifícalos en la verdad. Tu Palabra es verdad. Y como tú me enviaste al mundo, yo ahora los he enviado al mundo. Y por ellos me santifico, para que también sean santificados en la verdad.” (Juan 17:17-19)
 
 Oro por un hambre insaciable de su Palabra. Que no puedas dormir sin comer. Que no puedas dormir sin beber del agua viva. Que no puedas vivir un día de tu vida sin hablar de Cristo a alguien que no lo conoce.
 

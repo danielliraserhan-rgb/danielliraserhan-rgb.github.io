@@ -45,13 +45,13 @@ Entonces, cada una de estas copas se relaciona a una promesa que Dios hace a Isr
 
 ¿Dónde inician estas promesas? En Éxodo. Así que, acompáñenme a Éxodo 6, en donde vamos a descubrir de qué se trata esto. El contexto lo conocen: llevan 400 años de esclavitud. El pueblo de Israel lleva 400 años siendo esclavos de los egipcios. Y de repente, como así de la nada, se le aparece Dios a Moisés y le dice,
 
-> “Dile a los israelitas, yo soy el Señor y los sacaré debajo de las cargas de los egipcios. Los libraré de su esclavitud, los redimiré con brazo extendido y” (Éxodo 6:6 NBLA)
+> “Dile a los israelitas, yo soy el Señor y los sacaré debajo de las cargas de los egipcios. Los libraré de su esclavitud, los redimiré con brazo extendido y” (Éxodo 6:6)
 
 Los tomaré a ustedes por pueblo. Cada una de estas copas se ata a una de estas frases. Los sacaré, los libraré, los redimiré y los tomaré. Eso es lo que literalmente, cuando Jesús estaba haciendo la última cena. Cuando Jesús estaba ahí, literalmente eso es lo que estaba haciendo.
 
 Esto no lo estoy inventando, literalmente Jesús tenía cuatro copas. Ahí había mucho más cosas, pero nosotros no tenemos tiempo de todo. Había un pan que se partía, no hay un tema, pero bueno. Había cuatro copas. Y literalmente estaban servidas las cuatro copas. Y cada una se ata a una de estas promesas. Pero voy a seguir leyendo estos versículos, porque dice:
 
-> “los tomaré a ustedes por pueblo mío, yo seré su Dios y sabrán que yo soy el Señor, su Dios, que los sacó debajo de las cargas de los egipcios. Los traeré a la tierra que juré dar a Abraham, Isaac, a Jacob y se las daré a ustedes como herencia. Yo soy el Señor. De esta manera, Moisés habló a los israelitas, pero ellos no escucharon a Moisés, a causa del desaliento y de la dura servidumbre.” (Éxodo 6:7-9 NBLA)
+> “los tomaré a ustedes por pueblo mío, yo seré su Dios y sabrán que yo soy el Señor, su Dios, que los sacó debajo de las cargas de los egipcios. Los traeré a la tierra que juré dar a Abraham, Isaac, a Jacob y se las daré a ustedes como herencia. Yo soy el Señor. De esta manera, Moisés habló a los israelitas, pero ellos no escucharon a Moisés, a causa del desaliento y de la dura servidumbre.” (Éxodo 6:7-9)
 
 ## Un espíritu quebrantado
 
