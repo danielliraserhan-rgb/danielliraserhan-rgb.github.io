@@ -5,7 +5,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: febrero de 2026, Estudio 12:2
-- Video: https://www.youtube.com/watch?v=uwPu6M9fsZQ
+- Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/efesios-6-la-armadura-de-dios-y-las-vestiduras-del-sacerdote/
 - Idioma: es-MX
 

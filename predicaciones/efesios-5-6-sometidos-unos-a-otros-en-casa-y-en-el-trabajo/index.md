@@ -5,7 +5,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: febrero de 2026, Estudio 12:2
-- Video: https://www.youtube.com/watch?v=6Pw2Nq9cfgw
+- Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/efesios-5-6-sometidos-unos-a-otros-en-casa-y-en-el-trabajo/
 - Idioma: es-MX
 

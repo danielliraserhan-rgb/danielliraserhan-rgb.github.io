@@ -5,7 +5,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: febrero de 2026, Estudio 12:2
-- Video: https://www.youtube.com/watch?v=6U0zFYzbedE
+- Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/efesios-2-pero-dios-somos-su-obra-maestra/
 - Idioma: es-MX
 
