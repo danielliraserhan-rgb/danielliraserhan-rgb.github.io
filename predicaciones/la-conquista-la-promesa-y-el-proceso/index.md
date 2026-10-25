@@ -1,7 +1,5 @@
 # La Conquista: la promesa y el proceso
 
-> Antes de llegar a Josué, Daniel Lira vuelve al origen de la promesa. En Babel la humanidad se negó a llenar la tierra y quiso hacerse un nombre; Dios responde haciendo famoso a Abraham para que bendiga a todas las familias. Toda promesa de Dios anuncia un proceso, como el fuego que purifica el oro: no es un examen, sino un entrenamiento. Los cuatrocientos años en Egipto muestran la misericordia de Dios, su protección, su provisión y, sobre todo, que Dios nos conquista antes de enviarnos a la conquista. El Éxodo se lee como un novio que enamora a su novia hasta el pacto del Sinaí, y el amor desemboca en la misión.
-
 *Transcripción completa de una predicación, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en marzo de 2024 en Convivencia Familiar Monterrey · Campus San Agustín.*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=zR9K6C9Hih4
 - URL: https://daniellira.com/predicaciones/la-conquista-la-promesa-y-el-proceso/
 - Idioma: es-MX
-
-## Puntos clave
-
-- En Babel la humanidad se negó a llenar la tierra y quiso hacerse un nombre; hoy también construimos torres para basar en ellas nuestra identidad.
-- Dios hace famoso a Abraham para revertir Babel: para que otros vean a su Dios y sean bendecidos.
-- Toda promesa de Dios anuncia un proceso: el fuego purifica el oro, que ya es oro, y luego el orfebre lo moldea para un propósito.
-- Los cuatrocientos años en Egipto muestran misericordia hacia los amorreos, protección, multiplicación y provisión para Israel.
-- Dios nos conquista antes de enviarnos a la conquista: el Éxodo se lee como un novio que enamora a su novia hasta el pacto del Sinaí.
-- El amor por Dios debe desembocar en obediencia: las naciones ya vinieron a nosotros, en el trabajo, la universidad y el camino.
 
 ---
 
@@ -68,7 +57,7 @@ Pero luego te moldea para un propósito y te envía a la conquista. Pero necesit
 
 Llega el momento en el que él nos va a pedir algo, pero no es para que tú la persigas, es para descansar en ella. ¿Para qué? A fin de capacitar a los santos para la obra del ministerio. Para la edificación del cuerpo de Cristo Dios te toma, te purifica, te moldea y te da como un regalo a la iglesia para que mutuamente podamos edificarnos para llegar a la estatura de Cristo. Así que Dios le dice a Abraham, Abraham haré de ti una gran nación, haré un pueblo, tendrás una descendencia gigante y yo seré tu Dios. Pero antes, no leí, aquí está arriba. Pero antes serán extranjeros en una tierra que no es suya, donde serán esclavizados y oprimidos durante cuatrocientos años.
 
-Pero no te preocupes, Abraham, saldrán de ahí con grandes riquezas. En esa cuarta generación es cuando saldrán del pueblo de Egipto. Ellos no sabían que era Egipto, eventualmente se enteran que es Egipto. Yo siempre me había preguntado, ¿Por qué cuatrocientos años? O sea, ¿Cuál es el objetivo de esa espera de Dios? Y tenemos que entender que Dios es un ser que no vive dentro de nuestro tiempo, aunque actúa dentro de nuestro tiempo. Y Él sabe cosas y entiende cosas que tú y yo no entendemos. Así que cuando les da la promesa, hay, creo yo, cinco cosas que está haciendo Dios en la espera. La primera la dice el versículo 16.
+Pero no te preocupes, Abraham, saldrán de ahí con grandes riquezas. En esa cuarta generación es cuando saldrán del pueblo de Egipto. Ellos no sabían que era Egipto, eventualmente se enteran que es Egipto. Yo siempre me había preguntado, ¿Por qué cuatrocientos años? ¿Cuál es el objetivo de esa espera de Dios? Y tenemos que entender que Dios es un ser que no vive dentro de nuestro tiempo, aunque actúa dentro de nuestro tiempo. Y Él sabe cosas y entiende cosas que tú y yo no entendemos. Así que cuando les da la promesa, hay, creo yo, cinco cosas que está haciendo Dios en la espera. La primera la dice el versículo 16.
 
 Dicen, la cuarta generación, ellos regresarán acá, porque hasta entonces no habrá llegado a su colmo la iniquidad de los amorreos. Los amorreos eran quienes ocupaban la tierra de la conquista. Y el colmo de su maldad no había llevado a su tope. Entonces Dios espera cuatrocientos años por misericordia. En este caso no era misericordia a Israel, era misericordia a los amorreos, que un día serían expulsados de su tierra o morirían en su tierra. Así que Dios espera en misericordia. Pero la otra cosa que sucede es que Dios quiere fortalecer al pueblo. Cuando les da la promesa y cuando llega Jacob y tiene a sus doce hijos, son tan solo doce familias, setenta personas más o menos, que habitaban esa tierra.
 

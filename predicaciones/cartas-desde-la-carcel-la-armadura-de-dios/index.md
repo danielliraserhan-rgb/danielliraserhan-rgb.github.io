@@ -1,7 +1,5 @@
 # La armadura de Dios: una nación de sacerdotes
 
-> En la duodécima sesión, Daniel Lira pasa del amor en sumisión a la batalla espiritual. Al final de Efesios, Pablo nos da una manera de estar firmes contra realidades invisibles, tan reales como la carne y la sangre. Más allá de la comparación con la armadura romana, propone que Pablo decía: no son como los romanos, sino como sacerdotes, una nación de sacerdotes. La coraza de justicia y el casco de salvación vienen de Isaías 59:17, donde es Dios quien se viste de ellos. Los soldados usaban calzado con puntas para anclarse, pero los sacerdotes servían descalzos en tierra santa, y «qué hermosos son los pies del que anuncia la paz» (Isaías 52:7). El casco recuerda la inscripción «Santidad al Señor», y la espada del Espíritu es la Palabra, que el Espíritu usa para dar vida, no para juzgar.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -11,22 +9,13 @@
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-la-armadura-de-dios/
 - Idioma: es-MX
 
-## Puntos clave
-
-- Pablo nos da una manera de estar firmes contra realidades invisibles pero reales.
-- No peleamos como romanos: somos una nación de sacerdotes.
-- La coraza de justicia y el casco de salvación vienen de Isaías 59, donde Dios mismo se viste.
-- El calzado del evangelio recuerda a los sacerdotes descalzos en tierra santa.
-- El casco de la salvación recuerda la inscripción «Santidad al Señor».
-- La espada del Espíritu es la Palabra: la conocemos para que el Espíritu la use para dar vida.
-
 ---
 
 ## Del amor en sumisión a la batalla espiritual
 
 Tomamos este último punto práctico como la manera en la que podemos vivir y practicar el amor de Dios en el sometimiento de unos a otros. Y ahora vamos a pasar a algo que es un poco más espiritual en un sentido de guerra espiritual. Ya lo vimos en cómo vivirlo en carne y hueso con las relaciones personales, pero Pablo también al terminar Efesios termina dando algo en lo que está hablando de una guerra espiritual dado que si se acuerdan hablábamos de dentro de este plan que es poner a Cristo sobre todas las cosas y que todas rodillas se doble a él. La iglesia cumple su propósito siendo testimonio no sólo en la tierra, sino también a las autoridades invisibles, a las potestades, a los ángeles y a los demonios y al diablo y a todo lo que existe, a toda la creación realmente.
 
-Y por lo tanto al final nos deja, Pablo, al final de Efesios nos deja una manera de estar firmes espiritualmente, firmes contra estos temas invisibles en los que tú y yo no entendemos tanto cómo relacionarnos porque no lo vemos, sino que, pero que son reales, Igual de reales que carne y hueso, es exactamente la misma realidad. Les decía que una de las filosofías que más nos ha invadido es la filosofía griega. La filosofía griega separa lo espiritual y lo terrenal como si fueran dos cosas completamente distintas, pero la filosofía o la comisión hebrea y bíblica lo habla como una misma creación, una misma creación que interactúa.
+Y por lo tanto al final nos deja, Pablo, al final de Efesios nos deja una manera de estar firmes espiritualmente, firmes contra estos temas invisibles en los que tú y yo no entendemos tanto cómo relacionarnos porque no lo vemos, sino que, pero que son reales, Igual de reales que carne y hueso, es exactamente la misma realidad. Les decía que una de las filosofías que más nos ha invadido es la filosofía griega. La filosofía griega separa lo espiritual y lo terrenal como si fueran dos cosas completamente distintas, pero la filosofía o la cosmovisión hebrea y bíblica lo habla como una misma creación, una misma creación que interactúa.
 
 Y de esta misma manera que cómo interactúa, Pablo nos deja una armadura para que podamos estar firmes en el Señor. Dice, por lo demás, fortalézcanse en el Señor y en el poder de su fuerza. Revístanse con toda la armadura de Dios para que puedan estar firmes contra las insidias del diablo. Porque nuestra lucha no es contra sangre y carne, sino contra principados, potestades, contra los poderes de este mundo de tinieblas, contra las fuerzas espirituales de maldad en las regiones celestiales. Por tanto, tomen toda la armadura de Dios para que puedan resistir en el día malo y habiéndolo hecho todo, estar firmes. Pablo nos habla de esta armadura de Dios y específicamente nos está hablando de la armadura de Dios para estar firme en contra de las artimañas del diablo y de los poderes del aire, de las potestades y de las tinieblas.
 

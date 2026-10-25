@@ -1,7 +1,5 @@
 # Obra maestra: la belleza de ser hechura de Dios
 
-> En este mensaje, preparado a partir de su manuscrito, Daniel Lira parte de Efesios 2:10 —«somos hechura Suya»— para hablar de la belleza. Lo verdaderamente bello produce deleite, atraviesa el corazón y saca a la luz lo bueno y lo verdadero: primero te atrapa, luego te transforma y después te envía. La belleza es la expresión de la gloria de Dios, y su máxima expresión en la creación es el ser humano, hecho a su imagen y semejanza. Cuando te entregas a las manos del Alfarero, Él recupera lo perdido, restaura lo dañado y embellece lo corrupto. Dios te ha visto, te ve y te verá: adoptado, redimido y sellado, eres su obra maestra para irradiar su gloria.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en febrero de 2026 en Convivencia Familiar Monterrey (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/obra-maestra-hechura-de-dios/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La verdadera belleza te atrapa, te transforma y te envía.
-- La belleza es la expresión de la gloria de Dios, y su máxima expresión en la creación es el ser humano.
-- En las manos del Alfarero, Dios recupera lo perdido, restaura lo dañado y embellece lo corrupto.
-- Dios te ha visto, te ve y siempre te verá.
-- La obra que más lo deleita es hacerte, adoptarte, redimirte y habitar en ti.
-- Vive en una identidad firme: adoptado, redimido, sellado, obra maestra.
 
 ---
 

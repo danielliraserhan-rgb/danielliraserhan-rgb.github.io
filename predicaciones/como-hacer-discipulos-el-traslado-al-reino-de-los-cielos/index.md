@@ -1,7 +1,5 @@
 # El traslado al Reino: un precio ya pagado
 
-> En esta sesión breve, Daniel Lira responde a qué llamamos a las personas: a la obra de Cristo en su muerte y resurrección, al arrepentimiento —cambiar de camino— y a la entrada al reino de los cielos. Hacemos el llamado cuando las personas preguntan, sin presión. El precio de entrar al Reino es enorme, pero ya fue pagado por Cristo Jesús.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,14 +8,6 @@
 - Video: https://www.youtube.com/watch?v=bXfLhtk3MkE
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-el-traslado-al-reino-de-los-cielos/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Llamamos a las personas a la obra de Cristo: su muerte y su resurrección.
-- Arrepentirse es cambiar de camino.
-- El llamado se hace cuando la persona pregunta, sin presionar.
-- Entrar al Reino tiene un precio enorme.
-- Ese precio ya fue pagado por Cristo Jesús.
 
 ---
 

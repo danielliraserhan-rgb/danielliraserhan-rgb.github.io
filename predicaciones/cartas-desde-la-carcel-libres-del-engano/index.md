@@ -1,7 +1,5 @@
 # Libres del engaño, con la mirada fija en Cristo
 
-> En la décima sesión empieza la vida práctica. Una vida alineada a las cartas de Pablo no se desanima por el sufrimiento, es libre del engaño y mantiene la mirada en Cristo. Colosenses 2:8 advierte contra las filosofías y vanas sutilezas que alejan de Cristo; la defensa es construir un marco de referencia desde la Biblia y su cultura hebrea. Efesios 5:10 llama a examinar lo que agrada al Señor, y Daniel Lira lo ilustra con el matrimonio: no basta un manual genérico, hay que conocer íntimamente a la persona. Pablo aprendió a contentarse en toda situación y nos llama a buscar las cosas de arriba, guiados, consolados y defendidos por el Espíritu.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -11,15 +9,6 @@
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-libres-del-engano/
 - Idioma: es-MX
 
-## Puntos clave
-
-- La vida práctica: no desanimarse en el sufrimiento, ser libres del engaño y mirar a Cristo.
-- Las filosofías y vanas sutilezas del mundo pueden hacernos cautivos.
-- Conocer la gran historia bíblica nos da un marco para distinguir verdad y mentira.
-- «Examinen qué es lo que agrada al Señor»: no por manual, sino por relación íntima.
-- Pablo aprendió a vivir con todo y con nada.
-- El Espíritu Santo nos guía, consuela y defiende mientras buscamos las cosas de arriba.
-
 ---
 
 ## De la misión a la vida práctica
@@ -28,11 +17,11 @@ Transicionando en la sesión pasada de la misión a la vida práctica de un crey
 
 Así que hoy vamos a seguir viendo estos temas prácticos, sabiendo que el primero es no desanimarnos por el sufrimiento, el segundo siendo librémonos del engaño, seamos libres del engaño. Una vida práctica como un creyente que está alineada a todo lo que ha hablado Pablo en sus cartas es no desanimado por el sufrimiento, libre del engaño y manteniendo la mirada fija en Cristo. Estos son tres temas que vamos a hablar y vamos a terminar hablando de cómo en las relaciones esto se ve a través de el someternos unos a los otros por amor. Entonces, el sufrimiento no nos desanima porque es por amor, es por causa del otro, apuntándolos a Cristo para edificar al cuerpo y edificar a las personas acercándolos a él.
 
-Y entonces, en la manera práctica de vivir libres del engaño, aunque ya lo hemos mencionado varias veces sobre este ministerio en el que la unidad, la diversidad nos lleva a la madurez, de manera práctica, vivimos libres del engaño de otras filosofías. Y me voy a meter un poco a estos temas de filosofías de manera bien rápida, pero es que tu cosmovisión, o la manera en la que ves el mundo, o la filosofía detrás de lo que entiendes del mundo, va a informar. Tu estilo de vida y principalmente, nuestras vidas han sido influenciadas por una filosofía griega helenista que no vemos en la. Biblia. Y al leer la Biblia, cada vez más somos inmersos en la cultura bíblica, principalmente en la cultura hebrea, en la que fue hablada y transmitida la palabra y nos habla de lo que es los cielos y la tierra, de lo que es el inicio,
+Y entonces, en la manera práctica de vivir libres del engaño, aunque ya lo hemos mencionado varias veces sobre este ministerio en el que la unidad, la diversidad nos lleva a la madurez, de manera práctica, vivimos libres del engaño de otras filosofías. Y me voy a meter un poco a estos temas de filosofías de manera bien rápida, pero es que tu cosmovisión, o la manera en la que ves el mundo, o la filosofía detrás de lo que entiendes del mundo, va a informar. Tu estilo de vida y principalmente, nuestras vidas han sido influenciadas por una filosofía griega helenista que no vemos en la Biblia. Y al leer la Biblia, cada vez más somos inmersos en la cultura bíblica, principalmente en la cultura hebrea, en la que fue hablada y transmitida la palabra y nos habla de lo que es los cielos y la tierra, de lo que es el inicio, de lo que es el fin.
 
 ## Filosofías del mundo
 
-De lo que es el fin. Y hay filosofías como la griega que se han ido extendiendo, pero cada vez más estas filosofías crecen y crecen. Y hay más, y hay distintas, y hay unas que parecen similares. Y lo que sucede es que muchas de ellas contienen una parte de verdad, una pequeña porción de verdad mezclada con mucha mentira. Así que cuando conocemos o vemos esa pequeña parte de verdad, podemos caer en ese engaño. Sin embargo, nosotros hemos sido llamados a librarnos del engaño y no ver las pequeñas partes de verdad, sino la verdad completa y esa verdad se llama Jesús. Él es la verdad, Él es el camino, Él es la vida.
+Y hay filosofías como la griega que se han ido extendiendo, pero cada vez más estas filosofías crecen y crecen. Y hay más, y hay distintas, y hay unas que parecen similares. Y lo que sucede es que muchas de ellas contienen una parte de verdad, una pequeña porción de verdad mezclada con mucha mentira. Así que cuando conocemos o vemos esa pequeña parte de verdad, podemos caer en ese engaño. Sin embargo, nosotros hemos sido llamados a librarnos del engaño y no ver las pequeñas partes de verdad, sino la verdad completa y esa verdad se llama Jesús. Él es la verdad, Él es el camino, Él es la vida.
 
 Todo fuera de Jesús, todo fuera de su palabra viva y eficaz, de lo que Dios ha hablado aquí a través de sus profetas, a través de los apóstoles, a través de los escritos y de la sabiduría que está aquí. Todo lo demás puede llevarnos a caer en el engaño. Dice fácilmente Efesios 5:6. Dice que nadie los engañe con palabras vanas, pues por causa de estas cosas la ira de Dios viene sobre los hijos de desobediencia. Por tanto, no sea partícipes en ellos, porque antes eran de tinieblas, pero ahora son luz en el Señor. Por lo tanto, anden como hijos de luz, porque el fruto de la luz consiste en toda bondad, justicia y verdad.
 

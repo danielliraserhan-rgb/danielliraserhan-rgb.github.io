@@ -1,7 +1,5 @@
 # El plan de Dios: esta era y la era venidera
 
-> En la quinta sesión, Daniel Lira explica que el «misterio de su voluntad» de Efesios 1:9 no es algo oculto, sino revelado: Cristo es el Mesías. Era misterioso porque en su primera venida no estableció el reino, sino que lo abrió para que entráramos a su debido tiempo. La cosmovisión bíblica, expresada en los términos hebreos Olam Hazé y Olam Habá, divide la historia en dos: esta era y la venidera, separadas por el cumplimiento de los tiempos. Por eso la maldad todavía crece y se corrompe el diseño de Dios para la familia. Aun así, Cristo ya está sentado por encima de todo (Efesios 1:20–21; Filipenses 2:9), y desde donde estemos podemos vivir hoy bajo su autoridad.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=-nUbO7E02fk
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-el-plan-de-dios-las-dos-eras/
 - Idioma: es-MX
-
-## Puntos clave
-
-- El misterio de la voluntad de Dios no está oculto: está revelado en Cristo.
-- En su primera venida Cristo no estableció el reino: lo abrió para que entráramos.
-- La Biblia divide la historia en dos eras: Olam Hazé (esta era) y Olam Habá (la venidera).
-- Lo que las separa es el cumplimiento de los tiempos, el debido tiempo de Dios.
-- Por eso la maldad todavía crece; pero Cristo ya está sobre todo nombre.
-- No necesitas cambiar de trabajo para vivir el plan: vívelo bajo la autoridad de Cristo donde estás.
 
 ---
 

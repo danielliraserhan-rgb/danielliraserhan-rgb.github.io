@@ -1,7 +1,5 @@
 # Permanece hasta el día de su regreso
 
-> En agosto de 2023, al abrir una nueva temporada de Vértice, Daniel Lira hace un llamado a rendir la vida a Cristo como nunca antes. Empieza con Salomón, el hombre más sabio y rico, que concluye que todo el afán bajo el sol es vanidad si Dios no está en el centro. No fuimos comprados con oro ni plata para casarnos, trabajar o tener una vida cómoda: fuimos comprados por la sangre del Cordero. Conocer el comienzo, nacer de nuevo, no basta; hay que conocer el fin: se acerca el día del Señor, cuando unos despertarán para vida eterna y otros para desprecio eterno (Daniel 12:2). Esa verdad nos llama a una generación de «Danieles» que tomen su cruz, a permanecer en la vid obedeciendo a Cristo (Juan 15) y a dar fruto que permanezca, derramando la vida para que otros lleguen a Él.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en agosto de 2023 en Convivencia Familiar Monterrey · Vértice.*
 
 - Autor: Daniel Lira
@@ -10,16 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/permanece-hasta-el-dia-de-su-regreso/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Salomón, el más sabio y rico, concluyó que todo el afán bajo el sol es vanidad sin Dios (Eclesiastés 2).
-- No naciste de nuevo para casarte o generar dinero: fuiste comprado por la sangre del Cordero.
-- No basta conocer el comienzo (nacer de nuevo); hay que conocer el fin para saber cómo participar.
-- Se acerca el día del Señor: unos despertarán para vida eterna y otros para desprecio eterno (Daniel 12:2).
-- Tomar la cruz es entregarlo todo; los primeros creyentes veían el martirio como favor de Dios.
-- Permanecer en la vid es obedecer a Cristo, y el que permanece da fruto que permanece (Juan 15).
-- Nuestra vida es una ofrenda: si alguien va a perderse, que por lo menos tenga que pasar por nosotros.
 
 ---
 
@@ -151,7 +139,7 @@ Pero si alguien se quiere ir, díganme y lo mandamos. No es ese el objetivo. El 
 
 ## Nuestra vida es una ofrenda
 
-Nuestra vida es una ofrenda para Dios. Si el equipo de alabanza se puede ir subiendo. Nuestra vida es de Cristo y para Cristo. Se acerca el día de su regreso. Si el viñador viniera por su cosecha, en cinco años estarías listo. ¿Estás preparado? ¿Has preparado todo tu entendimiento para la acción? ¿Has accionado? ¿Le has predicado la verdad? Aunque les duela a aquellos que van directo al infierno, como tú y yo alguna vez lo estábamos. Pero alguien intervino. Alguien se puso en medio. Alguien dijo, eme aquí, úsame a mí. Yo estoy parado en la brecha. No importa si me corren. Yo voy a luchar por tu salvación. Tu vida no sirve de nada si no sirve para esto. Porque un día, todo lo que has hecho, todo lo que has logrado, va a ser hecho nuevo.
+Nuestra vida es una ofrenda para Dios. Nuestra vida es de Cristo y para Cristo. Se acerca el día de su regreso. Si el viñador viniera por su cosecha, en cinco años estarías listo. ¿Estás preparado? ¿Has preparado todo tu entendimiento para la acción? ¿Has accionado? ¿Le has predicado la verdad? Aunque les duela a aquellos que van directo al infierno, como tú y yo alguna vez lo estábamos. Pero alguien intervino. Alguien se puso en medio. Alguien dijo, eme aquí, úsame a mí. Yo estoy parado en la brecha. No importa si me corren. Yo voy a luchar por tu salvación. Tu vida no sirve de nada si no sirve para esto. Porque un día, todo lo que has hecho, todo lo que has logrado, va a ser hecho nuevo.
 
 ¿Y de qué sirve todo el afán del trabajo bajo el sol? Cuando Cristo venga y pase todas nuestras obras por fuego y diga, apenas pasaste de panzazo. Y cuando tú voltes a ver a un Pedro, a un Pablo, a un Juan, y los veas puestos en los lugares de honor. O tal vez veas al que vive abajo del puente. Tal vez veas al autista. Tal vez veas al enfermo. Tal vez veas a el que entregó su vida a Cristo el último instante antes de su muerte. Tal vez veas a aquel ladrón en la otra cruz. Y sean ellos los que estén puestos en el lugar de honor. Y tú te preguntas, pero yo oré, yo sané, yo fui. Pero el que estuvo abajo del puente, mientras moría, en una helada y se estaba tapando, y estaba muriendo de hipotermia, pero él sabía que conocía a Cristo, pero no estaba seguro de su compañero de al lado, le entrega su mantita.
 

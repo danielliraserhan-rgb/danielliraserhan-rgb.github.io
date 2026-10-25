@@ -1,7 +1,5 @@
 # La brecha: trasladados de muerte a vida
 
-> En la sexta sesión, Daniel Lira llama «la brecha» al proceso de santificación: convertirnos en lo que ya somos, vistiéndonos de la nueva naturaleza que Dios nos dio. Colosenses 1:13 resume el cambio: Dios nos libró del dominio de las tinieblas y nos trasladó al reino de su Hijo. En la cruz canceló el documento de deuda y exhibió públicamente a los poderes, y al tercer día resucitó victorioso. Efesios 2 muestra de dónde venimos: bajo la autoridad del mundo, la carne y el diablo. «Pero Dios», por gracia y no por obras, nos dio vida, y somos su obra maestra. Nuestra ciudadanía está en los cielos; por eso buscamos las cosas de arriba.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=JlBtk8HMjoA
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-la-brecha-de-muerte-a-vida/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La brecha es la santificación: convertirnos en lo que ya somos en Cristo.
-- Dios nos trasladó del dominio de las tinieblas al reino de su Hijo.
-- En la cruz canceló nuestra deuda y exhibió a los poderes.
-- Antes vivíamos bajo el mundo, la carne y el diablo; reconocerlo es la oportunidad de salir.
-- La nueva identidad es por gracia, no por obras: somos su obra maestra.
-- Nuestra ciudadanía está en los cielos: buscamos las cosas de arriba.
 
 ---
 

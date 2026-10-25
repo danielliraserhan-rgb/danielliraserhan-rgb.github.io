@@ -1,7 +1,5 @@
 # ¿Dónde empiezo? Recorrer la gran historia como en Emaús
 
-> En la última sesión, Daniel Lira responde por dónde empezar a ayudar a alguien a descubrir la Biblia: como Jesús en el camino a Emaús, recorriendo la gran historia desde Moisés y los profetas. Desde Génesis vemos cómo nos separamos de Dios y cómo en Génesis 3:15 prometió restaurar lo perdido; en Éxodo, la Pascua y el cordero; en los evangelios y las cartas, el Dios que siempre quiso habitar con su creación y que volverá. La clave es asumir que la persona no conoce nada, resistir la tentación de contarle el final y esperar a que ella misma pregunte: «¿esto será como Jesús?».
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=JakjptIl5z4
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-donde-empiezo/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Empieza como Jesús en Emaús: desde Moisés y los profetas.
-- Génesis muestra cómo nos separamos de Dios y su promesa en Génesis 3:15.
-- En Éxodo, la Pascua y el cordero apuntan a Jesús.
-- Dios siempre ha querido habitar con su creación, y volverá.
-- Asume que la persona no conoce nada y no le cuentes el final.
-- Espera a que pregunte: «¿esto será como Jesús?».
 
 ---
 

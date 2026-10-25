@@ -1,7 +1,5 @@
 # El ministerio de la reconciliación
 
-> Daniel Lira muestra que a lo largo de toda la Biblia corre un mensaje central: fuimos separados de Dios y de nuestros hermanos, y Cristo vino, murió y resucitó para reconciliarnos con ambos. La caída no solo rompió la relación de Adán y Eva con Dios; con Caín y Abel también rompió la relación del hombre con su hermano. Pero Dios, en la sangre de su Hijo, creó en sí mismo un nuevo hombre, uniendo a judíos y gentiles en un solo cuerpo. Esa unidad, como oró Jesús en Juan 17, es el testimonio de que el Padre lo envió, y es el ministerio que nos ha confiado mientras esperamos su regreso.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
@@ -10,14 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/el-ministerio-de-la-reconciliacion/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Dios nos reconcilió consigo y nos dio el ministerio de la reconciliación.
-- La caída rompió la relación con Dios y también con el hermano.
-- Fuimos creados por y para el amor de Dios y de nuestros hermanos.
-- En la cruz, Cristo derribó la pared de separación y creó un nuevo hombre.
-- La unidad de la iglesia testifica al mundo que el Padre envió al Hijo.
 
 ---
 

@@ -1,7 +1,5 @@
 # Soldado, atleta y agricultor
 
-> En un Miércoles Crecer, Daniel Lira, director del programa de discipulado Intensivo, estudia la última carta de Pablo. Antes de instruir, Pablo afirma la identidad de Timoteo: «amado hijo», de fe sincera. Salvados por gracia, podemos quedarnos tranquilos con la eternidad asegurada o entregar la vida como soldados a Aquel que la dio primero. El soldado se prepara, conoce el plan y obedece de inmediato a su comandante, como Daniel vio en Israel con el ejercicio de equipo rojo y equipo azul. El atleta vive para el premio y compite conforme a las reglas: de nada sirve ganar un juego que inventamos. El agricultor siembra cada palabra, perdón y obediencia sabiendo que dará fruto. Al final queremos poder decir: «He peleado la buena batalla, he terminado la carrera, he guardado la fe».
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha por confirmar; lugar: Convivencia Familiar Monterrey · Miércoles Crecer.*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/soldado-atleta-y-agricultor-2-timoteo-2/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Pablo afirma la identidad de Timoteo antes de darle instrucciones: «amado hijo».
-- Ante la gracia podemos quedarnos cómodos o entregar la vida como soldados.
-- El soldado se prepara, conoce el plan y obedece de inmediato a su comandante.
-- El atleta compite conforme a las reglas: de nada sirve ganar un juego que inventamos.
-- El agricultor siembra cada palabra, perdón y obediencia para una cosecha eterna.
-- Enfocados en la Escritura, queremos terminar diciendo: «He peleado la buena batalla».
 
 ---
 

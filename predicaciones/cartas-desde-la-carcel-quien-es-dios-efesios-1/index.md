@@ -1,7 +1,5 @@
 # ¿Quién es Dios? Adoptados, redimidos y sellados
 
-> En la cuarta sesión empieza la parte de teología. Daniel Lira invita a leer Efesios 1 buscando patrones que se repiten. El Padre nos escogió y nos adoptó como hijos por medio de Jesucristo; la relación Padre e Hijo se lleva a cabo por la adopción. El plan es reunir todas las cosas en Cristo en el cumplimiento de los tiempos, y en Él hemos recibido una herencia. El Espíritu Santo es el sello: como un pago por adelantado, o como el sello de un rey que avala una carta con su autoridad. Todo tiene un propósito principal: la alabanza de su gloria. Fuimos creados por amor y para amor.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=8k6fVPHGOZk
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-quien-es-dios-efesios-1/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Lee Efesios 1 con libreta: anota los patrones que se repiten y pregunta por qué.
-- El Padre nos escogió y nos adoptó como hijos por medio de Jesucristo.
-- El plan es reunir todas las cosas en Cristo, en el cielo y en la tierra.
-- En Cristo hemos recibido una herencia.
-- El Espíritu es el sello y la garantía, como el anticipo de lo que viene.
-- Todo es para la alabanza de su gloria: fuimos creados por amor y para amor.
 
 ---
 

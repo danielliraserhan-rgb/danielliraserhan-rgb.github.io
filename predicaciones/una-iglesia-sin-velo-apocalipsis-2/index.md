@@ -1,7 +1,5 @@
 # Una iglesia sin velo
 
-> Al regresar con un grupo que se ha consolidado como comunidad, Daniel Lira explica por qué Dios los ha reunido. En Apocalipsis 1, lo primero que Juan ve son candelabros alrededor del Hijo del Hombre glorificado: su único propósito es mantener viva la llama para alumbrar a Jesús, y esos candelabros son las iglesias, no individuos aislados. A Éfeso, excelente y perseverante, Jesús le dice que ha dejado su primer amor. Como en Esdras y Nehemías, la respuesta es una comunidad reunida como un solo hombre alrededor de la Palabra: adorar y leer para estar con Él, aplicar y enseñar para exaltarlo. Ni multitudes que buscan experiencias ni fariseos legalistas, sino un alabastro derramado.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/una-iglesia-sin-velo-apocalipsis-2/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La iglesia es una comunidad con una Persona al centro.
-- Los candelabros existen para mantener la llama y alumbrar a Jesús.
-- El primer amor no es una experiencia, sino una Persona.
-- Esdras y Nehemías: un pueblo reunido como un solo hombre alrededor de la Palabra.
-- Adoramos y leemos para estar con Él; aplicamos y enseñamos para exaltarlo ante todos.
-- Ni la experiencia sin obediencia ni el legalismo: derrama tu alabastro.
 
 ---
 

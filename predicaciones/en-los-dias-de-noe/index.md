@@ -1,7 +1,5 @@
 # En los días de Noé
 
-> El mensaje de Jesús fue «El tiempo se ha cumplido, y el reino de Dios se ha acercado; arrepentíos y creed en el evangelio». Daniel Lira explica que, a los ojos de Dios, solo hay dos eras: la de la corrupción, desde Génesis 3, y la de la restauración. Noé construyó el arca a la vista de todos y anunció el diluvio, como Abraham intercedió por Sodoma. Jesús dijo que su regreso sería como en los días de Noé y de Lot: comían, bebían, compraban y construían, viviendo como si nada viniera. La iglesia tiene la revelación completa, y cada creyente ha sido escogido para llevar el evangelio al lugar donde ya está.
-
 *Transcripción completa de una predicación, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en agosto de 2023 en Convivencia Familiar Monterrey · Campus Cumbres.*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=ctBuW9GCg14
 - URL: https://daniellira.com/predicaciones/en-los-dias-de-noe/
 - Idioma: es-MX
-
-## Puntos clave
-
-- El mensaje de Jesús fue que el tiempo se cumplió y el reino de Dios se ha acercado: arrepiéntanse y crean en el evangelio.
-- A los ojos de Dios solo hay dos eras: la de la corrupción y la de la restauración; nuestra vida solo tiene sentido dentro de esa realidad.
-- Noé construyó el arca a la vista de todos y anunció el diluvio; como Abraham por Sodoma, intercedía para que nadie se perdiera.
-- Jesús no describe los días de Noé por su inmoralidad, sino porque vivían como si nada viniera: comían, bebían, compraban y construían.
-- Tenemos la revelación completa, pero la hemos reducido a un devocional y a oraciones de cajero automático.
-- No todos están llamados al pastorado, pero todos han sido escogidos para predicar el evangelio donde ya están, con esperanza, santidad y temor.
 
 ---
 
@@ -104,7 +93,7 @@ Dios te ha escogido a ti. Se acerca el día del diluvio. Se acerca el día del S
 
 Pero se acerca este día. Y Dios nos ha escogido. Dios nos ha comprado. Ahora este mensaje está hecho para ser radical. Pero no les estoy diciendo que dejen sus trabajos. No les estoy diciendo que abandones a tu familia. Y te vayas de misionero. No les estoy diciendo que renuncies a tu empresa. Y la dejes ahí. No estoy diciendo eso. Este no es el mensaje para los días de la iglesia. Creo que el 1 % de aquí. Tal vez 1, 2, 3, 5 personas de todo este lugar. Estén llamadas a dejarlo todo y entrar al pastorado. Y ser misioneros.
 
-Y dedicarse a la iglesia y al ministerio. Pero quiero decirte que el 100% el 100 % de los que están sentados en este lugar. Han sido escogidos por Dios para llevar el mensaje del evangelio. Al lugar en donde ya estás la diferencia es que cuando tú ves la venida del Señor. Cuando tú ves la magnitud de este mensaje. Tu trabajo no es igual. Ahora trabajas como si trabajaras para Cristo. Y Cristo tiene un solo trabajo. Arrebatar almas del infierno. Arrebatar almas del reino del diablo para llevarlas al reino de Dios eternamente. Ese es nuestro único trabajo. Si tú vas a tu empresa el lunes tu único trabajo en la empresa es arrebatar almas del infierno.
+Y dedicarse a la iglesia y al ministerio. Pero quiero decirte que el 100 % de los que están sentados en este lugar. Han sido escogidos por Dios para llevar el mensaje del evangelio. Al lugar en donde ya estás la diferencia es que cuando tú ves la venida del Señor. Cuando tú ves la magnitud de este mensaje. Tu trabajo no es igual. Ahora trabajas como si trabajaras para Cristo. Y Cristo tiene un solo trabajo. Arrebatar almas del infierno. Arrebatar almas del reino del diablo para llevarlas al reino de Dios eternamente. Ese es nuestro único trabajo. Si tú vas a tu empresa el lunes tu único trabajo en la empresa es arrebatar almas del infierno.
 
 Que ni una sola persona. Que ni una sola alma de toda tu empresa de toda tu universidad. De toda tu familia. Se quede sin escuchar el mensaje del evangelio. Ese es tu único propósito en la vida tu única misión en esta era de corrupción. Es que nadie se quede sin escuchar la buena noticia. Sin embargo. Sabiendo el mensaje y la revelación completa. Vamos a nuestros trabajos. Nos sentamos en una computadora. Llenamos nuestro Excel. Cerramos la computadora. Y nos regresamos a la casa a ser cristianos.
 
@@ -154,4 +143,4 @@ Han sido comprados con el precio más costoso. El tiempo ha llegado el reino se 
 
 Ha sido escogido para que tu identidad sea firme. Sabiendo que eres un peregrino en esta tierra. Pero que si viene el día. Que si viene el día. Y el día se acerca en el que Jesús regresará. Todo lo que conocemos. Será hecho nuevo. Y aquel que ponga su fidelidad en el rey. Que tenga fe en Jesús. Vivirá por siempre en el reino de Dios. Y queda en nosotros la misión de que nadie tenga que perderse. Si no todos tengan vida eterna.
 
-Quiero invitarte iglesia. Que en estos siguientes minutos. Si tu quieres quedarte sentado. Lo puedes hacer. Si tu quieres arrodillarte. Lo puedes hacer. Si tu quieres pararte a adorarlo. Lo puedes hacer. Pero que medites en lo que esto significa para ti. Que prepares todo entendimiento para accionar. Que lo que has escuchado hoy. No se quede en un mensaje de domingo. Sino que hagas una estrategia para arrebatar almas del. Reino del diablo. Y podamos entregárselas a Dios. Como coronas. Ante sus pies. Porque Él merece. Toda honra. Y toda gloria.
+Quiero invitarte iglesia. Que en estos siguientes minutos. Si tu quieres quedarte sentado. Lo puedes hacer. Si tu quieres arrodillarte. Lo puedes hacer. Si tu quieres pararte a adorarlo. Lo puedes hacer. Pero que medites en lo que esto significa para ti. Que prepares todo entendimiento para accionar. Que lo que has escuchado hoy. No se quede en un mensaje de domingo. Sino que hagas una estrategia para arrebatar almas del reino del diablo. Y podamos entregárselas a Dios. Como coronas. Ante sus pies. Porque Él merece. Toda honra. Y toda gloria.

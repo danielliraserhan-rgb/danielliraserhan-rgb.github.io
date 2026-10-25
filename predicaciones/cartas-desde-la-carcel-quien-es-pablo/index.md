@@ -1,7 +1,5 @@
 # ¿Quién es Pablo? De Génesis a la cárcel en Roma
 
-> En la segunda sesión, Daniel Lira cuenta la historia de Pablo desde la gran historia de la Biblia. Pablo era un judío y fariseo cargado de estudio y tradición, que esperaba al Mesías prometido desde Génesis 3:15. La humanidad se separó de Dios en el Edén y se dispersó en Babel, y Dios llamó a Abraham para bendecir por medio de su descendencia a todas las naciones. En el camino a Damasco, Jesús se le reveló a Saulo, y tras años de formación, Pablo se convenció de que Jesús era el Mesías y de que la razón de ser de Israel era bendecir a las naciones. De ahí nacieron sus viajes misioneros —Antioquía, Chipre, Listra, Éfeso— y, al apelar al César, su camino a la cárcel en Roma.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=LM26KPEhvP8
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-quien-es-pablo/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Pablo no fue un joven sin trasfondo: era fariseo y esperaba al Mesías de Génesis 3:15.
-- La Biblia cuenta una separación: del Edén a Babel, y la promesa de reconciliar.
-- Dios llamó a Abraham para bendecir a todas las naciones.
-- En el camino a Damasco, Pablo entendió que Jesús era el Mesías prometido.
-- De esa convicción nació su celo por ir a donde nadie había ido.
-- Al apelar al César, su misión lo llevó preso a Roma.
 
 ---
 

@@ -1,7 +1,5 @@
 # Tres etapas del discipulado: acceso, siembra y cosecha
 
-> En la undécima sesión, Daniel Lira presenta tres etapas para hacer discípulos: ganar acceso, sembrar el evangelio y cosechar el fruto. Distingue el contexto local y urbano del de los lugares no alcanzados, donde no suele haber acceso y se necesita creatividad y el soporte de la iglesia local. Todos somos ministerio: con mentalidad misionera, como peregrinos infiltrados en la empresa o la universidad. Al sembrar en relación, encontraremos distintas respuestas: quienes rechazan, quienes se interesan poco, quienes se apartan por la dificultad y las personas de paz, que ya buscaban a Dios. En ellas nos concentramos.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=CDEINHZ0DpU
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-tres-etapas-acceso-siembra-cosecha/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Tres etapas: ganar acceso, sembrar el evangelio y cosechar el fruto.
-- Todos somos ministerio: peregrinos con mentalidad misionera donde estamos.
-- En lugares no alcanzados se necesita creatividad y el soporte de la iglesia local.
-- Cuando preguntan por qué lo hacemos: porque Cristo me amó y dio su vida por mí.
-- Habrá rechazo, interés superficial y abandono, pero también personas de paz.
-- Nos concentramos en las plantas que dan señales de fruto.
 
 ---
 

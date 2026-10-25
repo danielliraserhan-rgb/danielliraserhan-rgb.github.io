@@ -1,7 +1,5 @@
 # El evangelio del Reino desde Génesis
 
-> En la novena sesión, Daniel Lira recorre el evangelio del Reino desde Génesis. Todo se trata del Reino: Dios creó un lugar para habitar con su creación; tras la caída prometió en Génesis 3:15 la semilla de la mujer que aplastaría la cabeza de la serpiente; y en Génesis 49:10 anunció un rey de Judá a quien obedecerían los pueblos. El evangelio no es solo que Jesús murió por nosotros, sino que resucitó para restaurar, redimir y reinar por siempre.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=TvD7fmFk9tw
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-el-evangelio-del-reino/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Todo se trata del Reino de Dios.
-- Dios creó un lugar para habitar con su creación.
-- Génesis 3:15 promete la semilla que aplastaría la cabeza de la serpiente.
-- Génesis 49:10 anuncia un rey de Judá a quien obedecerán los pueblos.
-- El evangelio no termina en la cruz: Jesús resucitó para reinar.
-- Anunciamos que Jesús viene a restaurar, redimir y reinar por siempre.
 
 ---
 
@@ -36,11 +25,11 @@ Vi un cielo nuevo y una tierra nueva. Pero en esta carpa, en esta creación en l
 
 Y es una equivocación muy grande que a través de la historia tú y yo también hemos empezado a abrir los ojos a darnos cuenta de ello. Pero entonces toman este fruto e inmediatamente Dios les habla de las consecuencias. Ahora, estas consecuencias, quiero dejarte bien claro, no son un castigo. Es como la consecuencia lógica a tus actos. Como cuando tú le dices a un niño, no toques eso porque te vas a quemar. Tú no le estás castigando al niño con la quemadura. El niño va y toca y se quema y llora y le duele por consiguiente. Y tú con un corazón de padre vas y tomas su mano y tratas de curarlo, tratas de sanarlo y tratas de regresarlo a su estatus original.
 
-Pero la consecuencia no es el castigo. No fue castigado el niño con el calor, no se quemó el niño porque tú como padre hayas dicho, no quieres aprender, quémate, ¿Verdad? Eso no es lo que está sucediendo aquí. La consecuencia se las da Dios mismo. Y les dice, te dije que si tocabas el fuego te ibas a quemar y ahora te vas a quemar. Y es lo que está haciendo. Esencialmente, eso lo vemos en Génesis 3, como toman del árbol, toman del fruto y Dios llega y les dice, como tú has tomado este árbol, entonces, ta, ta, y les empieza a dar las consecuencias. Pero después de las consecuencias, se ve el corazón del padre de misericordias, en el que el corazón manso y humilde de Jesús, que se acerca a ellos y les dice: pero no te preocupes, porque de ti mujer, de ti mujer, que todavía ni siquiera se llamaba Eva,
+Pero la consecuencia no es el castigo. No fue castigado el niño con el calor, no se quemó el niño porque tú como padre hayas dicho, no quieres aprender, quémate, ¿Verdad? Eso no es lo que está sucediendo aquí. La consecuencia se las da Dios mismo. Y les dice, te dije que si tocabas el fuego te ibas a quemar y ahora te vas a quemar. Y es lo que está haciendo. Esencialmente, eso lo vemos en Génesis 3, como toman del árbol, toman del fruto y Dios llega y les dice, como tú has tomado este árbol, entonces, ta, ta, y les empieza a dar las consecuencias.
 
 ## Génesis 3:15: la semilla de la mujer
 
-De ti mujer nacerá alguien, habrá una semilla de ti mujer, y esta semilla aplastará la cabeza de la serpiente. Y dando la connotación, dando la idea de que al aplastar la cabeza de la serpiente, regresarán una vez más y se redimirá la consecuencia natural de sus. Actos. Y la serpiente herirá a esta simienta, a este hijo tuyo, lo herirá en el talón. Y obviamente tú y yo ahora sabemos que esta persona se llama Jesús y la herida en el talón fue su cruz. Pero que después de esto resucitó y el día de hoy está esperando pacientemente regresar para aplastar la cabeza de la serpiente. Y ese día regresaremos con él.
+Pero después de las consecuencias, se ve el corazón del padre de misericordias, en el que el corazón manso y humilde de Jesús, que se acerca a ellos y les dice: pero no te preocupes, porque de ti mujer, de ti mujer, que todavía ni siquiera se llamaba Eva, de ti mujer nacerá alguien, habrá una semilla de ti mujer, y esta semilla aplastará la cabeza de la serpiente. Y dando la connotación, dando la idea de que al aplastar la cabeza de la serpiente, regresarán una vez más y se redimirá la consecuencia natural de sus. Actos. Y la serpiente herirá a esta simienta, a este hijo tuyo, lo herirá en el talón. Y obviamente tú y yo ahora sabemos que esta persona se llama Jesús y la herida en el talón fue su cruz. Pero que después de esto resucitó y el día de hoy está esperando pacientemente regresar para aplastar la cabeza de la serpiente. Y ese día regresaremos con él.
 
 Ahora, eso es Génesis 3:15. De ahí en adelante, toda la historia de Génesis se trata de este hijo, que tú y yo ahora llamamos el Mesías. El Cristo. Cristo significa Mesías. Y no significa más que el ungido. ¿Quién será el elegido, el ungido por el Señor que vendrá a rescatarnos? Y entonces nacen Caín y Abel y entonces piensan que son ellos y uno mata al otro y entonces no son ellos pero tienen otro hijo que se llama Set. Y ese es el reemplazo. Porque este sí será. Y este no es. Y entonces nace Noé. Y a Noé le pone Noé porque significa él será el que nos traerá esperanza.
 

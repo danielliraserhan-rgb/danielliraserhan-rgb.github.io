@@ -1,7 +1,5 @@
 # Cartas desde la cárcel: teología, misión y vida práctica
 
-> En la introducción a Cartas de Pablo desde la cárcel, Daniel Lira presenta el propósito del curso: no un estudio exhaustivo, sino un panorama de las cuatro cartas que Pablo escribió preso —Efesios, Filipenses, Colosenses y Filemón— para conocer a Cristo de verdad y vivir su mensaje. Primero se recorre la historia de Pablo y cómo llegó a la cárcel; después, las cartas se estudian en tres movimientos: teología (quién es Dios y cuál es su plan), misión (los ministerios de la reconciliación y la encarnación, y la unidad en la diversidad del cuerpo de Cristo) y vida práctica.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,14 +8,6 @@
 - Video: https://www.youtube.com/watch?v=KJNGC3XJ1vE
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-introduccion-teologia-mision-y-vida-practica/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Es un panorama: la meta es tener la gran historia y luego profundizar.
-- Pablo escribió cuatro cartas desde la cárcel: Efesios, Filipenses, Colosenses y Filemón.
-- Primero conocemos quién era Pablo y cómo llegó preso.
-- Las cartas se estudian en tres partes: teología, misión y vida práctica.
-- La misión incluye la reconciliación, la encarnación y la unidad en la diversidad.
 
 ---
 

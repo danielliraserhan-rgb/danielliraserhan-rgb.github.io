@@ -1,7 +1,5 @@
 # Tetelestai: ecos de la cruz
 
-> La cruz es el momento central de la historia: como una piedra que cae en el agua o un grito que hace eco, impacta el pasado, el presente y el futuro. De las siete palabras de Jesús en la cruz, esta predicación se centra en «consumado es», en griego una sola palabra, *tetelestai*: una obra hecha una vez y para siempre, real y hecha por nosotros. Sus ecos se oyen en la Torá: los dos machos cabríos del Día de la Expiación muestran que el pecado fue limpiado y quitado, y el diablo perdió su poder de acusar; el carnero que sustituyó a Isaac muestra que la muerte fue vencida. Y como Dios cubrió a Adán y Eva, Cristo cubre nuestra vergüenza y nuestro miedo. Somos su obra maestra.
-
 *Transcripción completa de una predicación, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en mayo de 2025 en Convivencia Familiar Monterrey · Campus Cumbres.*
 
 - Autor: Daniel Lira
@@ -11,21 +9,13 @@
 - URL: https://daniellira.com/predicaciones/tetelestai-ecos-de-la-cruz/
 - Idioma: es-MX
 
-## Puntos clave
-
-- *Tetelestai* está en tiempo perfecto, indicativo y pasivo: hecho una vez y para siempre, real, y hecho por nosotros.
-- En el Día de la Expiación, un macho cabrío limpiaba el pecado y el otro lo llevaba lejos: en Cristo el diablo ya no tiene de qué acusarnos.
-- La palabra se usaba al saldar una deuda: «la deuda está cancelada».
-- El carnero en lugar de Isaac anunció la sustitución: Cristo venció a la muerte.
-- La vergüenza y el miedo, raíces de muchas ataduras, fueron cubiertos en la cruz; somos la obra maestra de Dios.
-
 ---
 
 ## Ecos de la cruz
 
-El día de hoy quiero voltear a ver la cruz. Hay muchas veces que pierdo de vista la cruz por meterme en las ramas de lo que eso produce, pero eventualmente el centro de nuestra adoración, el centro de nuestras vidas, el punto más importante de toda la humanidad, es el momento en el que Cristo fue a la cruz. Ahora yo me imagino que en este momento, para ti y para mí sucedió hace dos mil años, pero para el Padre, el Hijo y el Espíritu Santo, desde la creación, desde la eternidad pasada, antes de la creación, ellos estaban dándose gloria, alabanza, deleitándose uno con el otro y en un momento dicen: hagamos al hombre a nuestra imagen y.
+El día de hoy quiero voltear a ver la cruz. Hay muchas veces que pierdo de vista la cruz por meterme en las ramas de lo que eso produce, pero eventualmente el centro de nuestra adoración, el centro de nuestras vidas, el punto más importante de toda la humanidad, es el momento en el que Cristo fue a la cruz. Ahora yo me imagino que en este momento, para ti y para mí sucedió hace dos mil años, pero para el Padre, el Hijo y el Espíritu Santo, desde la creación, desde la eternidad pasada, antes de la creación, ellos estaban dándose gloria, alabanza, deleitándose uno con el otro y en un momento dicen: hagamos al hombre a nuestra imagen y semejanza.
 
-Semejanza. Hagamos a un ser capaz de conocernos, de amarnos, de sentir lo que nosotros sentimos cuando estamos juntos. Y entonces, digamos, hagamos al hombre y a la mujer. Solo había una pequeña cosa. Ellos no podían ser Dios. Tú y yo no somos Dios al crear algo, había un componente que tiene que salirse de la esfera de ser un Dios y había una posibilidad de ser imperfectos y de que todo saliera mal. Y yo creo que mientras platicaban y decían, ¿Valdrá la pena esto? Alguien tendría que pagar. ¿Cómo haríamos para restaurarlos? Y yo me imagino al Hijo levantando la mano y diciendo, yo pagaré el precio.
+Hagamos a un ser capaz de conocernos, de amarnos, de sentir lo que nosotros sentimos cuando estamos juntos. Y entonces, digamos, hagamos al hombre y a la mujer. Solo había una pequeña cosa. Ellos no podían ser Dios. Tú y yo no somos Dios al crear algo, había un componente que tiene que salirse de la esfera de ser un Dios y había una posibilidad de ser imperfectos y de que todo saliera mal. Y yo creo que mientras platicaban y decían, ¿Valdrá la pena esto? Alguien tendría que pagar. ¿Cómo haríamos para restaurarlos? Y yo me imagino al Hijo levantando la mano y diciendo, yo pagaré el precio.
 
 Y desde ese momento, yo me imagino que la Trinidad, Dios mismo estaba en sí mismo creando la historia que tú y yo apenas estamos viviendo. Y desde ese momento vieron la cruz. Y desde la cruz crearon todo lo demás a esto me refiero cuando hablo de ecos de la cruz, que es el título del mensaje. Es el momento central que impacta el presente, el pasado y el futuro. Como cuando dejas caer una piedra en una alberca o en el mar o en un cuerpo de agua, lo que hace es que hacia todos los lados impacta. Es lo que haces cuando te vas abajo de una montaña o de un surco o de lo que sea y gritas, ¡Hola!
 
@@ -123,4 +113,4 @@ Y mira los ojos tu vergüenza y tu miedo. Y dile: he sido cubierto mi desnudez h
 
 No necesitas más que voltear a la cruz y entender. Per tetelestai fue hecho una vez y para siempre. Es real, es tangible. Hubo sangre derramada. Lo practicamos cada vez que decimos en memoria de Él: tomamos el pan y lo quebramos cuando tomamos la sangre, cuando tomamos la comunión. Hecho está y fue hecho por mí. Solo. Vive dentro de esa gracia. Entrega tu vida y lo único que te tiene como ser humano no es ni el diablo ni la muerte. Son tus propios pensamientos, que puedes rendir a la cruz y decir: si esto me avergüenza, si esto me tiene aislándome de otro, si esto me llena de miedo y de temor, llévalo a la cruz.
 
-Tetelestai, hecho está. No hay nada, no hay nadie, cualquier, no hay acusación que te pueda separar del amor de Dios. Para terminar, quiero que oremos para que Dios nos ayude en este sentido, como diría Efesios 4, una predica sin. Efesios no es predica. Que sean renovados en el espíritu de su mente, que se vistan del nuevo hombre en el cual, en la semejanza de Dios, ha sido creado en la justicia y la santidad de la verdad.
+Tetelestai, hecho está. No hay nada, no hay nadie, cualquier, no hay acusación que te pueda separar del amor de Dios. Para terminar, quiero que oremos para que Dios nos ayude en este sentido, como diría Efesios 4: que sean renovados en el espíritu de su mente, que se vistan del nuevo hombre en el cual, en la semejanza de Dios, ha sido creado en la justicia y la santidad de la verdad.

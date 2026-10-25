@@ -1,7 +1,5 @@
 # Momentos con Jesús
 
-> En un mensaje para Cauce al inicio de 2023, Daniel Lira habla a quienes empiezan trabajos, se gradúan o inician nuevas temporadas. Recuerda su propia vida sin Dios: el emprendimiento, el trabajo hasta el cansancio, el miedo a fracasar y el vacío cuando se quedaba solo con la tormenta de sus pensamientos. Pero Dios lo vio, lo encontró y le dio dirección. Con Colosenses 2 advierte del engaño sutil de las tradiciones del mundo que ponen el trabajo sobre las personas y el progreso sobre Dios. Solo en Cristo habita la plenitud y solo en Él estamos completos. Como los discípulos en la barca, el milagro es su presencia: aprendamos a caminar con Él en todo momento.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en enero de 2023 en Cauce.*
 
 - Autor: Daniel Lira
@@ -10,14 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/momentos-con-jesus-colosenses-2/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Tu identidad, tu llamado y tu propósito están en Cristo en toda temporada.
-- Hay un engaño sutil: trabajo sobre personas, dinero sobre relaciones, progreso sobre Dios.
-- Solo en Cristo habita la plenitud y solo en Él estamos completos.
-- En la tormenta, el milagro es su presencia.
-- Él te ve, va contigo y te lleva a tierra firme.
 
 ---
 

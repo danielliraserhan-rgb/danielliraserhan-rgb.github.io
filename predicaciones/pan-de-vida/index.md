@@ -1,7 +1,5 @@
 # Pan de vida
 
-> En un domingo de junio de 2023, Daniel Lira habla de un fenómeno común en la iglesia: creyentes que se sienten estancados, enfriados o sin escuchar a Dios. Esa sensación no es una enfermedad, sino hambre: la señal de que es momento de comer más. A partir de la samaritana y de la respuesta de Jesús a sus discípulos («mi comida es hacer la voluntad del que me envió»), del «danos hoy el pan de cada día» y de Éxodo leído como un cortejo que culmina en el Sinaí, Daniel muestra que hacer la voluntad de Dios es el medio que el Padre escogió para ser conocido y amado. Jesús es el pan de vida, y la invitación es correr a Él cada día.
-
 *Transcripción completa de una predicación, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en junio de 2023 en Convivencia Familiar Monterrey.*
 
 - Autor: Daniel Lira
@@ -11,21 +9,11 @@
 - URL: https://daniellira.com/predicaciones/pan-de-vida/
 - Idioma: es-MX
 
-## Puntos clave
-
-- Sentirse estancado o enfriado no es estar enfermo: es hambre, la señal de que Dios nos llama a más.
-- No podemos vivir de comida procesada: libros y predicaciones ajenas no sustituyen ir directo a la palabra.
-- La samaritana debatió con Jesús como un niño que pregunta a su padre, y recibió el agua viva.
-- «Mi comida es hacer la voluntad del que me envió»: hemos saciado la sed, pero olvidamos comer del pan.
-- Hacer la voluntad de Dios no es ritual: es el vehículo que el Padre escogió para ser conocido y amado.
-- En Éxodo, Dios corteja a Israel; el Sinaí es una propuesta y la ley, unos votos para habitar con su pueblo.
-- Jesús es el pan de vida: el que viene a Él no tendrá hambre.
-
 ---
 
 ## Quiénes somos
 
-Voy a aprovechar para presentarme y, pero sobre todo presentarles a mi familia, que mi familia es para mí lo más importante que existe, lo más importante que tengo y que Dios me ha dado y si me puede, ahí está ya la imagen y obviamente estoy yo ahí bien guapo, Pero pueden ver aún más hermosa mi esposa que aquí está en vivo y a todo color y mi bebé que está en maternal, que le encanta maternal, cada domingo, batallamos para sacarla de ahí, pero pues lo disfruta bastante. Y como pueden ver en el letrerito pequeño, viene una nueva niña en camino para octubre de este año y se va a llamar Rebeca.
+Voy a aprovechar para presentarme y, pero sobre todo presentarles a mi familia, que mi familia es para mí lo más importante que existe, lo más importante que tengo y que Dios me ha dado y ahí está ya la imagen y obviamente estoy yo ahí bien guapo, Pero pueden ver aún más hermosa mi esposa que aquí está en vivo y a todo color y mi bebé que está en maternal, que le encanta maternal, cada domingo, batallamos para sacarla de ahí, pero pues lo disfruta bastante. Y como pueden ver en el letrerito pequeño, viene una nueva niña en camino para octubre de este año y se va a llamar Rebeca.
 
 Les diría que son los primeros en saber, pero se los dije a los de la primera reunión también. Y bueno, ellas son mis niñas, son puras niñas. Pues qué hacemos en convivencia familiar, cuál es nuestro rol, nuestra función. Tenemos el gusto y honor de dirigir el grupo de jóvenes de Cauce, que es de 22 a 27 años y de Vértice, de 27 en adelante. Vinieron más de Vértice ahora. Y también de dirigir el programa intensivo. El programa intensivo, aunque muchos creen que es sólo para jóvenes, es un programa para todas las generaciones, en donde queremos preparar generaciones que conocen el propósito de Dios para poder unirse a la misión, extender el reino, hacer discípulos en donde quiera que estén y a donde quiera que vayan y sin importar cualquier vocación.
 
@@ -123,7 +111,7 @@ Así que Dios la empieza a conquistar. Hace maravillas enfrente de ellos. Hace m
 
 En ningún momento les faltó nada y los guía a una montaña. Una montaña en la que hemos juzgado de legalista. Porque es donde se entrega la ley. Pero el día de hoy quiero invitarte a que lo veas con otros ojos. Como un novio que ha cortejado a su novia. De tal manera que llega el momento en el que comprometería su vida con ella. Y este monte Sinaí representa el momento en el que Dios, como un hombre, se hinca para decirle a Israel, ¿Quieres casarte conmigo? ¿Quieres ser mía por siempre?
 
-Y los diez mandamientos, la ley, son simplemente los votos matrimoniales. Estos votos en los que un matrimonio se jura, se promete amor eterno y fidelidad eterna. En el que se prometen unos a otros, yo seré tu Dios, no tendrás ídolos. Yo creo que la gran mayoría de los casados aquí dijeron algo similar en su boda. Prometo serte fiel. Prometo serte fiel. Bien. Bien. Aparece. Bien. Carmen. Segundo. Ella esfer. Son los votos que Dios le está haciendo a un pueblo que quiere enamorar. Y esta ley que también se puede traducir como instrucciones eran simplemente las instrucciones a un pueblo que por 400 años había vivido como esclavos y necesitaban a alguien que les enseñara a vivir en libertad.
+Y los diez mandamientos, la ley, son simplemente los votos matrimoniales. Estos votos en los que un matrimonio se jura, se promete amor eterno y fidelidad eterna. En el que se prometen unos a otros, yo seré tu Dios, no tendrás ídolos. Yo creo que la gran mayoría de los casados aquí dijeron algo similar en su boda. Prometo serte fiel. Prometo serte fiel. Son los votos que Dios le está haciendo a un pueblo que quiere enamorar. Y esta ley que también se puede traducir como instrucciones eran simplemente las instrucciones a un pueblo que por 400 años había vivido como esclavos y necesitaban a alguien que les enseñara a vivir en libertad.
 
 Son las instrucciones para un pueblo que por 400 años vivió rodeado de múltiples dioses paganos y que alguien tenía que enseñarles cómo es vivir con un solo Dios que derrama su vida por completo por ellos. Que por 400 años no fueron permitidos celebrar y adorar a su Dios y ahora eran las instrucciones de las fiestas que iban a agradar a Dios para que pudieran tener citas. El día del aniversario, el San Valentín, las Navidades juntos. Esto es lo que tú y yo sabemos que disfrutamos como en familia. Esto es lo que quería hacer Dios. Y al terminar de dar la ley, al terminar de dar estas instrucciones, al final revela la razón por la que hace esto.
 

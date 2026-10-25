@@ -1,7 +1,5 @@
 # Efesios 5–6: sometidos unos a otros, en casa y en el trabajo
 
-> En la sexta sesión de Efesios, Daniel Lira muestra cómo la teología de la carta aterriza en lo cotidiano. Pablo llama a andar como sabios, aprovechando el tiempo y siendo llenos del Espíritu, y de ahí brota el sometimiento mutuo «en el temor de Cristo». En el matrimonio, el marido ama a su esposa como Cristo amó a la iglesia y se entregó por ella; Daniel lo ilustra con el relato de un lirio que estaba muerto y que había que regar con palabras de vida. Los hijos honran a sus padres, mandamiento con promesa, y los padres no provocan a ira sino que crían en la instrucción del Señor. En el trabajo, servimos de corazón como siervos de Cristo, no para ser vistos.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2 (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=6Pw2Nq9cfgw
 - URL: https://daniellira.com/predicaciones/efesios-5-6-sometidos-unos-a-otros-en-casa-y-en-el-trabajo/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Andar como sabios es aprovechar el tiempo y vivir llenos del Espíritu, porque los días son malos.
-- El sometimiento en Efesios empieza siendo mutuo: «unos a otros en el temor de Cristo».
-- El marido ama como Cristo amó a la iglesia: se entrega y habla vida sobre su esposa.
-- Los hijos honran a sus padres; es el primer mandamiento con promesa.
-- Los padres no provocan a ira: crían en la disciplina e instrucción del Señor.
-- En el trabajo servimos de corazón, como siervos de Cristo y no para ser vistos.
 
 ---
 

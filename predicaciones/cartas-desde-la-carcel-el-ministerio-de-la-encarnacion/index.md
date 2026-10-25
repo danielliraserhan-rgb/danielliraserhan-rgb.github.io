@@ -1,7 +1,5 @@
 # El ministerio de la encarnación
 
-> En la novena sesión, Daniel Lira presenta el segundo ministerio de la misión: la encarnación. En Filipenses 2, Jesús, aunque existía en forma de Dios, se despojó a sí mismo, tomó forma de siervo y fue obediente hasta la cruz; por eso Dios lo exaltó y le dio el nombre sobre todo nombre. Encarnarnos no es visitar a las personas de lejos, sino plantarnos entre ellas, conocer lo que les aflige y esperar en el Espíritu para compartir el evangelio. Implica despojarnos de tiempo, dinero, privilegios y posición, y puede incluir sufrimiento por causa de Cristo, que es también un privilegio (Filipenses 1:29). Si la reconciliación es lo que buscamos, la encarnación es cómo lo logramos.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=W33IIZ62k6o
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-el-ministerio-de-la-encarnacion/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Jesús, teniéndolo todo, se despojó a sí mismo y tomó forma de siervo.
-- Dios lo exaltó y le dio el nombre que es sobre todo nombre.
-- Encarnarse es plantarse entre las personas, no visitarlas de lejos.
-- Servir implica despojarnos de tiempo, dinero, privilegios y posición.
-- Sufrir por Cristo también es un privilegio que se nos ha concedido.
-- La reconciliación es lo que buscamos; la encarnación es cómo la logramos.
 
 ---
 

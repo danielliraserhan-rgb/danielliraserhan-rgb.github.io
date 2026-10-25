@@ -1,7 +1,5 @@
 # La imagen de la verdad: Jesús
 
-> Daniel Lira compara la vida con el juego de unir puntos: lanzamos al azar pedazos de verdad y perspectivas, los unimos y terminamos con un monstruo al que llamamos vida, atrapados en trabajo, estrés y dinero. Pero sí hay más. Desde Génesis 3:15, la Escritura traza los puntos de una imagen verdadera: la simiente de la mujer, el arca, el heredero de Abraham, el carnero sustituto, el cetro de Judá, el hijo de David, el Emanuel. Jesús vino y cumplió, y apuntó a Daniel 7: el Hijo del Hombre que recibirá el reino. Desde Génesis 4:26 la humanidad clama «ven», y la creación gime. Es Él. Que el peso de esa verdad convierta nuestra vida en una misión.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/la-imagen-de-la-verdad-jesus/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Unimos al azar los puntos de la vida y formamos una imagen sin sentido.
-- Desde Génesis, la Escritura une los puntos y forma el rostro de Jesús.
-- Jesús vino como el Mesías y apuntó a su regreso como el Hijo del Hombre.
-- Desde Génesis 4:26 la humanidad clama «ven»; en Apocalipsis el clamor termina.
-- Las grandes historias heroicas se roban la gran historia: el Rey que viene por su novia.
-- Ve su imagen en la Palabra, obedécelo y vive para su regreso.
 
 ---
 

@@ -1,7 +1,5 @@
 # Efesios 2: «pero Dios», somos su obra maestra
 
-> En la tercera sesión de Efesios, Daniel Lira presenta el capítulo 2 como el contraste entre dos caminos y dos reinos: el de quienes andan muertos en delitos, según la corriente de este mundo, y el de quienes han recibido vida en Cristo. El giro de todo está en dos palabras: «pero Dios». Somos salvos por gracia, por medio de la fe, no por obras; y precisamente por eso somos «hechura suya», su obra maestra, creados para las buenas obras que Él preparó. Además, Cristo derribó la pared que separaba a judíos y gentiles para crear un solo pueblo nuevo, con acceso al Padre en un mismo Espíritu, edificado sobre los apóstoles y profetas con Cristo como piedra angular.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2 (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=6U0zFYzbedE
 - URL: https://daniellira.com/predicaciones/efesios-2-pero-dios-somos-su-obra-maestra/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Efesios 2 contrasta dos reinos: muertos según la corriente del mundo o vivos juntamente con Cristo.
-- «Pero Dios»: el cambio no empieza en nosotros, sino en su misericordia y su gran amor.
-- La salvación es por gracia, por medio de la fe; no es premio a nuestras obras.
-- Somos su obra maestra, creados en Cristo para buenas obras que Él preparó de antemano.
-- Cristo hizo de judíos y gentiles un solo pueblo nuevo, sin pared de separación.
-- Somos familia de Dios, edificados sobre los apóstoles y profetas, con Cristo como piedra angular.
 
 ---
 

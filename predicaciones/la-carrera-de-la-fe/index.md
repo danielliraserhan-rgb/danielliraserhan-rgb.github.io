@@ -1,7 +1,5 @@
 # La carrera de la fe
 
-> Al nacer de nuevo, todo creyente inicia una carrera que termina con el regreso de Jesús, y nadie la puede correr por otro: ni los pastores ni los maestros. Daniel Lira explica cómo prepararse. La leche espiritual debe dar paso al agua y al pan: la samaritana pide el agua viva, que es el Espíritu Santo; los discípulos piden el pan de vida, que es Jesús, y comerlo es hacer la voluntad del Padre por medio de su palabra. Daniel cuenta cómo, siendo musulmán, un libro sobre el camino de Emaús y Juan 4 lo llevaron a Cristo, e invita a tener nuestro propio camino a Emaús con la Biblia abierta.
-
 *Transcripción completa de una predicación, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en noviembre de 2023 en Convivencia Familiar Monterrey.*
 
 - Autor: Daniel Lira
@@ -11,15 +9,6 @@
 - URL: https://daniellira.com/predicaciones/la-carrera-de-la-fe/
 - Idioma: es-MX
 
-## Puntos clave
-
-- Al nacer de nuevo inicias una carrera que termina con el regreso de Jesús, y nadie la puede correr por ti.
-- Predicar sobre el regreso de Jesús es para vivir con urgencia, prepararnos para lo difícil y mantener los ojos en nuestra esperanza viva.
-- La leche espiritual es necesaria al inicio, pero un creyente debe crecer hasta el alimento sólido: agua y pan.
-- El agua viva que Jesús ofrece a la samaritana es el Espíritu Santo; el pan de vida es Jesús, y se come haciendo la voluntad del Padre en su palabra.
-- Los hombres somos cisternas rotas: bebe directamente de la fuente, y tu vida se volverá un manantial para otros.
-- Ten tu propio camino a Emaús: abre las Escrituras con el Espíritu Santo, deja que arda tu corazón y corre a contarlo.
-
 ---
 
 ## Una historia personal
@@ -28,11 +17,11 @@ A mí me encanta estar aquí, me encanta venir a este campus porque es mi campus
 
 Bien, y hay unas historias que voy a contar de la Biblia, en donde fue la primera vez que yo entregué mi vida a Cristo y luego fue este camino que tomé para seguir creciendo, entonces si me desvío o algo es por eso, voy a intentar no hacerlo, Ya me dijo el pastor Aarón que tengo dos horas, entonces con eso la hacemos, con eso sí la hacemos. Bueno, pero bueno, mi último mensaje, la última vez que vine, ¿Alguien estuvo aquí la última vez que vine? Espero no haberlos asustado, ¿No estuvieron muchos? Si no, para no decirlo, porque, más o menos. Bueno, la última vez que vine, prediqué en los días de Noé y hacía referencia al regreso de Jesús, que va a ser como en los días de Noé, en los días de Abraham y en los días de Lot.
 
-Y literalmente leí los versículos que dicen, se acerca el día del Señor, en el que todos van a resucitar, unos para vida eterna y otros para el desprecio eterno. O sea, estuvo medio fuerte el mensaje, hoy no se trata de eso. Pero eso lo dije justo antes de que pasara todo lo de Israel. Y después de eso se ha levantado así como que si tú entras a YouTube y le pones, serán los últimos días, ya valió, ¿Eh? O sea, vas a encontrar cien mil personas. Hay unos que decían que en septiembre, literal, el 29 de septiembre se iba a acabar el mundo, pero no es verdad, no se acabó, seguimos aquí.
+Y literalmente leí los versículos que dicen, se acerca el día del Señor, en el que todos van a resucitar, unos para vida eterna y otros para el desprecio eterno. Estuvo medio fuerte el mensaje, hoy no se trata de eso. Pero eso lo dije justo antes de que pasara todo lo de Israel. Y después de eso se ha levantado así como que si tú entras a YouTube y le pones, serán los últimos días, ya valió, ¿Eh? Vas a encontrar cien mil personas. Hay unos que decían que en septiembre, literal, el 29 de septiembre se iba a acabar el mundo, pero no es verdad, no se acabó, seguimos aquí.
 
 ## El regreso de Jesús y la carrera
 
-Lo que quiero decir es, cuando hablo del mensaje del regreso de Jesús, puede significar varias cosas. Algo tan cercano como 10 años, antes de 10 años no va a pasar, hay muchas señales que faltan de suceder, pero como 10 años, 50 años, 100 años, 500 años, ¿Ok? O sea, no hay manera de ponerle una fecha, pero lo que sí podemos observar son las piezas acomodándose al escenario que va a suceder al final. Y las piezas que van a suceder al final, el escenario que va a suceder es como, ¿Alguien de aquí le gusta correr? Híjole, aquí tampoco le gusta correr. Bueno, voy a cambiar ahí los ejemplos.
+Lo que quiero decir es, cuando hablo del mensaje del regreso de Jesús, puede significar varias cosas. Algo tan cercano como 10 años, antes de 10 años no va a pasar, hay muchas señales que faltan de suceder, pero como 10 años, 50 años, 100 años, 500 años, ¿Ok? No hay manera de ponerle una fecha, pero lo que sí podemos observar son las piezas acomodándose al escenario que va a suceder al final. Y las piezas que van a suceder al final, el escenario que va a suceder es como, ¿Alguien de aquí le gusta correr? Aquí tampoco le gusta correr. Bueno, voy a cambiar ahí los ejemplos.
 
 Entonces, pero es cuando estás haciendo algo muy difícil. Mientras más nos acerquemos, la vida se va a poner más difícil. Y lo están viendo en Israel hay guerras y lo que ha despertado en el mundo es un odio al judío. Lo que dijimos, nunca más, que nunca más vuelva a suceder con Hitler, empieza a sonar alrededor del mundo. Algo muy similar va a suceder hacia el final. Ahora, ¿Por qué les digo esto en la predicación? No se trata de eso. No se trata de eso. Es porque ese es el final. Y esa es la carrera en la que nosotros ahora vivimos. Cuando naciste de nuevo, cuando entregaste tu vida a Cristo, a Jesús, tú iniciaste una carrera.
 
@@ -44,11 +33,11 @@ No la corre su pastor Aarón por ustedes. No la corre nuestro pastor Luis por us
 
 Algo empiezas a hacer. Empiezas a entrenar. Empiezas. Mientras más se acerca, más urgencia tienes de prepararte, de entrenarte y de estar listo. No vaya a ser que te me mueras a media caminata. Pero también es para estar preparados para el momento difícil de la carrera. Es para estar listos para el momento en el que ya no puedes más. Pero por último y lo más importante es recordar a Jesús. Nuestra esperanza viva que literalmente va a regresar.
 
-Ese es el final de la carrera. ¿Ok? Y puestos los ojos en eso, entendiendo el tipo de carrera que caminamos, cómo me preparo. Igual que en la primera reunión, aquí nadie corre. ¿Verdad? Nadie corre de aquí. Como cinco levantamos. Ok, levanten la mano. ¿Quién corre? Ok. Está muy difícil así atinarle. ¿Quién de aquí sí tiene hijos? Está ahí a ver, no estamos la sesión pasada literal tuve que quitar mi iPad porque me... O fuiste un hijo. Ya si no tuviste hijos, fuiste un bebé. ¿Alguien fue bebé aquí alguna vez en su vida?
+Ese es el final de la carrera. ¿Ok? Y puestos los ojos en eso, entendiendo el tipo de carrera que caminamos, cómo me preparo. Igual que en la primera reunión, aquí nadie corre. ¿Verdad? Nadie corre de aquí. Como cinco levantamos. Ok, levanten la mano. ¿Quién corre? Ok. Está muy difícil así atinarle. ¿Quién de aquí sí tiene hijos? O fuiste un hijo. Ya si no tuviste hijos, fuiste un bebé. ¿Alguien fue bebé aquí alguna vez en su vida?
 
-Listo. Vamos a irnos por ahí. Cuando nace un bebé, inicia una vida. ¿Ok? Le podríamos llamar carrera nomás para que las slides sirvan, ¿No? Inicia una carrera. Inicia una vida. ¿De quién es la vida? ¿De los papás o del bebé? Es del bebé. Y por más que los papás querramos vivir la vida por ellos, no puedes. Yo ya empecé a entender qué significa. Yo le decía, mamá, ya no te metas, por favor. O sea, yo soy un adulto. Ahora que tengo dos hijas, digo, nunca serán adultas. Son mis hijas. Yo les voy a ayudar siempre. Pero honestamente no podemos. Nace el bebé y sí, al inicio depende 100 % de su mamá.
+Listo. Vamos a irnos por ahí. Cuando nace un bebé, inicia una vida. ¿Ok? Le podríamos llamar carrera nomás para que las slides sirvan, ¿No? Inicia una carrera. Inicia una vida. ¿De quién es la vida? ¿De los papás o del bebé? Es del bebé. Y por más que los papás querramos vivir la vida por ellos, no puedes. Yo ya empecé a entender qué significa. Yo le decía, mamá, ya no te metas, por favor. Yo soy un adulto. Ahora que tengo dos hijas, digo, nunca serán adultas. Son mis hijas. Yo les voy a ayudar siempre. Pero honestamente no podemos. Nace el bebé y sí, al inicio depende 100 % de su mamá.
 
-100%. Pero aún ahí tiene que llorar para que su mamá la cargue y la alimente. Aún así tiene que llorar para que su mamá o su papá. Ayudo mucho, ¿Eh? Nomás puedo decir mamá porque las mamás tienen un don divino. Yo no sé cómo le hacen. Y la bebé empieza a caminar, empieza a crecer, empieza a levantar la cabeza, empieza a gatear. Y si tú dices, voy a gatear por ella. ¿Puedes o no puedes? No se puede. No se puede. O sea, es imposible.
+100%. Pero aún ahí tiene que llorar para que su mamá la cargue y la alimente. Aún así tiene que llorar para que su mamá o su papá. Ayudo mucho, ¿Eh? Nomás puedo decir mamá porque las mamás tienen un don divino. Yo no sé cómo le hacen. Y la bebé empieza a caminar, empieza a crecer, empieza a levantar la cabeza, empieza a gatear. Y si tú dices, voy a gatear por ella. ¿Puedes o no puedes? No se puede. No se puede. Es imposible.
 
 ## Como un bebé que crece
 
@@ -80,7 +69,7 @@ Si entendieras quién es Jesús, tú le pedirías a Jesús y Él te daría agua 
 
 Y sale corriendo, y sale y se lo cuenta a todos y le dice, esta persona me dijo lo que hice, me dio agua. ¿No será Él el Mesías? ¿No será Él el Cristo? ¿No será Él el que esperamos? Y corre todo el pueblo a conocer a Jesús para ser bien claros, el agua viva, el regalo que Jesús tiene, es el Espíritu Santo. ¿Por qué es el Espíritu Santo? Porque es la presencia de Dios el regalo es la presencia de Dios a través del Espíritu Santo que mora en ti y en mí.
 
-Ese es el agua viva. Y es un regalo de Dios que si tú se lo pides, Él te lo va a dar. Si tú le pides a Dios, agua viva, Él te va a dar agua viva. Pero no se queda ahí la historia. Mientras la samaritana sale corriendo por todos sus amigos, como si estuvieras jugando a la trice, un dos, tres por mí, por todos mis amigos, si jugaron eso, ¿No? En Torreón jugábamos cosas diferentes en lo que la samaritana va, los discípulos regresan y ven a Jesús y le dicen, Maestro, come algo. O sea, se les olvidó que Jesús estaba ahí, o sea, como que se les prendió el foco.
+Ese es el agua viva. Y es un regalo de Dios que si tú se lo pides, Él te lo va a dar. Si tú le pides a Dios, agua viva, Él te va a dar agua viva. Pero no se queda ahí la historia. Mientras la samaritana sale corriendo por todos sus amigos, como si estuvieras jugando a la trice, un dos, tres por mí, por todos mis amigos, si jugaron eso, ¿No? En Torreón jugábamos cosas diferentes en lo que la samaritana va, los discípulos regresan y ven a Jesús y le dicen, Maestro, come algo. Se les olvidó que Jesús estaba ahí, como que se les prendió el foco.
 
 ## La comida que ustedes no saben
 
@@ -88,7 +77,7 @@ Se acordaron que su maestro no había comido y le dicen, por favor, come, come a
 
 Y Jesús les dice, mi comida es hacer la voluntad del que me envió y llevar a cabo su obra. Hay un alimento que es mucho mayor a cualquier alimento. Es hacer la voluntad de Dios. Hacer la voluntad. Le tenemos tanto miedo a las obras que hemos dejado de hacer la voluntad de Dios. No es un tema de ley, no es un tema de hacerlo porque si no hay un castigo, ya no hay un castigo, pero sí hay una recompensa. Ya no hay un castigo, pero sí lo puedes conocer más. No es porque sea un castigo, es porque te nutre. Y nadie en su sano juicio que tiene hambre, deja de comer pan.
 
-Eso es hacer la voluntad de Dios. Y luego, así se queda. Como que llegan todas las personas del pueblo y conocen a Jesús. Yo creo que hizo milagros, hizo todo lo que tenía que hacer. Y van pasando los días y los discípulos siguen pensando ¿Cuál es la comida? No entendí. Porque no le hacen preguntas, sigue. Jesús alimenta a cinco mil personas, multiplica el pan, multiplica los peces y los discípulos empiezan a pensar. Eso es lo que hizo. O sea, estaba ahí esperándonos y agarró una piedra y la hizo pan. No, eso es lo que tentó el diablo a Jesús. Eso no es lo que hizo.
+Eso es hacer la voluntad de Dios. Y luego, así se queda. Como que llegan todas las personas del pueblo y conocen a Jesús. Yo creo que hizo milagros, hizo todo lo que tenía que hacer. Y van pasando los días y los discípulos siguen pensando ¿Cuál es la comida? No entendí. Porque no le hacen preguntas, sigue. Jesús alimenta a cinco mil personas, multiplica el pan, multiplica los peces y los discípulos empiezan a pensar. Eso es lo que hizo. Estaba ahí esperándonos y agarró una piedra y la hizo pan. No, eso es lo que tentó el diablo a Jesús. Eso no es lo que hizo.
 
 ## El pan de vida
 
@@ -130,13 +119,13 @@ Aprender a comer directamente y no depender de hombres. Mi trabajo es quedarme s
 
 Y entiendo, ¿Ok? Al inicio es necesario. Es necesario beber la leche antes de comer el alimento sólido. Pero bebe la leche. Y camina. Y crece. Y empieza a comer papilla. Y luego vas a empezar a decir, oye, me gustó esta no me gustó. Y empiezas a tomar tu camino en la carrera. Y empiezas a profundizar en la Palabra. Y empiezas a leer. Y lo que antes no entendías, ahora lo entiendes. Y cuando no lo entiendes, tienes una comunidad a la que puedes ir y decir, oye, ¿Cómo se hace una hamburguesa?
 
-Vamos a hacerla, pero para que comas. Te quiero enseñar a hacerla para que tú la hagas. Y luego, ¿Qué vas a hacer? Llegas a tu casa y le haces una hamburguesa a tu familia que nunca habían probado. Y cuando la prueben, dicen, ¿Qué me diste? Les arruinas la vida. Si tú estás en el desierto y te dan de tomar una Coca -Cola. Honestamente, siempre decimos, la última Coca en el desierto. Te apuesto que la escupes. O sea, tienes sed, tu boca está seca, llevas días sin beber y tomas Coca. Es como que bueno, es lo único que hay. O sea, sí está chido. Pero el momento que te dan agua,
+Vamos a hacerla, pero para que comas. Te quiero enseñar a hacerla para que tú la hagas. Y luego, ¿Qué vas a hacer? Llegas a tu casa y le haces una hamburguesa a tu familia que nunca habían probado. Y cuando la prueben, dicen, ¿Qué me diste? Les arruinas la vida. Si tú estás en el desierto y te dan de tomar una Coca -Cola. Honestamente, siempre decimos, la última Coca en el desierto. Te apuesto que la escupes. Tienes sed, tu boca está seca, llevas días sin beber y tomas Coca. Es como que bueno, es lo único que hay. Sí está chido. Pero el momento que te dan agua,
 
 Recobras vida. Te hidratas tu mente se empieza a esclarecer. Empiezas a vivir. Empiezas a tener energía. Y empiezas a ver la vida diferente. Y entonces tu vida es arruinada. Porque cuando vuelvas a tomar Coca, dices, esto no es agua. Cuando tú te conviertes en una fuente de agua viva que le da agua al no creyente. Y pueden decir, ¿Qué tienes tú de diferente? Porque hay gente, no sé si hay alguien aquí, que viene a la armónica a tomar un café, a trabajar. Dicen, vengo aquí porque siento una paz. Vengo aquí porque hay algo raro, hay algo diferente. Y después de días, dicen, pues, ¿Y si entro a una de esas reuniones?
 
 ¿Por qué? Porque cuando sales de aquí ya no encuentras esa paz. Ya tu vida fue arruinada. Deja que Dios arruine tu vida. Que el dinero ya no te sepa. Porque necesitas el pan. Necesitas a Jesús. Y para terminar, quiero contarles la historia. Es una historia en donde el primer libro cristiano que me dieron. Se llamaba El Forastero en el Camino de Emaús. Yo no era creyente. Yo ni quería ser creyente. Luego les contaré en la profundidad, pero yo era musulmán. Así que yo rechazaba a Jesús por completo. Mi papá, en un café de un creyente, empieza a leer la Biblia. ¿Por qué? Porque se juntaban sus amigos.
 
-Él tiene un negocio en frente del café. Y es donde tomaba café diario. Y el dueño lo empieza a invitar. Vente, vente. Y eventualmente se sientan a tomar un café. Y empiezan a abrir la Biblia. Empieza a beber del agua viva. Te ha puesto esto. Ya ni siquiera abría la tienda. O sea, él iba primero al café, a estudiar, a conocer a Jesús. Y luego ya iba y abría la tienda. Y todo el tiempo que estaba ahí estaba pensando en lo que se vio. Y eventualmente, él se da cuenta que sus hijos van por un muy mal camino. Que van en una carrera que no nos lleva a la gloria de Cristo, sino al desprecio eterno.
+Él tiene un negocio en frente del café. Y es donde tomaba café diario. Y el dueño lo empieza a invitar. Vente, vente. Y eventualmente se sientan a tomar un café. Y empiezan a abrir la Biblia. Empieza a beber del agua viva. Te ha puesto esto. Ya ni siquiera abría la tienda. Él iba primero al café, a estudiar, a conocer a Jesús. Y luego ya iba y abría la tienda. Y todo el tiempo que estaba ahí estaba pensando en lo que se vio. Y eventualmente, él se da cuenta que sus hijos van por un muy mal camino. Que van en una carrera que no nos lleva a la gloria de Cristo, sino al desprecio eterno.
 
 ## El forastero en el camino de Emaús
 

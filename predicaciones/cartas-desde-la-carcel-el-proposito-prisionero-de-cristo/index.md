@@ -1,7 +1,5 @@
 # El propósito de las cartas: prisionero de Cristo, no de Roma
 
-> En la tercera sesión, Daniel Lira explica la motivación de las cartas desde la cárcel. Para las iglesias, enterarse de que el portador de las buenas noticias estaba preso podía ser desalentador. Pero Pablo no se considera prisionero de Roma, sino de Cristo, y ve la cárcel como oportunidad: sus prisiones han hecho avanzar el evangelio y han dado valor a otros para predicar (Filipenses 1:12–14). Escribe para animar y recordar la misión; Filemón es un testimonio vivo, con Onésimo regresando como hermano. Las cartas unen teología, misión y vida práctica, cuyo marco de referencia es el carácter de Cristo.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=phpPxLZ89QQ
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-el-proposito-prisionero-de-cristo/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Pablo se considera prisionero de Cristo, no de Roma.
-- Sus prisiones hicieron avanzar el evangelio y dieron valor a otros para predicar.
-- Las cartas buscan animar a las iglesias y recordarles su misión.
-- Filemón es un testimonio vivo: Onésimo regresa como hermano amado.
-- La teología es la realidad de Dios; entenderla nos lleva a una misión.
-- La vida práctica es reflejar el carácter de Cristo, en la cárcel o en la cima.
 
 ---
 

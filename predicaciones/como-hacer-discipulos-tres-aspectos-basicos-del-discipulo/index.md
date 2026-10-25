@@ -1,7 +1,5 @@
 # Tres aspectos básicos: oración, evangelismo y seguimiento
 
-> En la duodécima sesión, Daniel Lira repasa las etapas de acceso, siembra y cosecha y presenta tres aspectos básicos del discípulo que hace discípulos. Primero, la oración: no solo encerrarse en el cuarto temprano, sino asociarse con Dios como un socio íntimo y estar expectante de su presencia. Segundo, un evangelismo creativo que usa lo que Dios ya nos dio, sin delegar todo al pastor del domingo ni pedir a las personas que salgan de su círculo; cuando sientes un tirón del Espíritu, ahí jalas. Tercero, el seguimiento de quienes empiezan a conocer la Palabra, guiando con el ejemplo y no solo con palabras.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=01BK1BHUzNo
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-tres-aspectos-basicos-del-discipulo/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La vida cotidiana es el lugar del ministerio.
-- Oración es asociarnos con Dios y estar expectantes de su presencia.
-- No delegamos el evangelismo al pastor del domingo.
-- No copiamos el método de otro: usamos lo que Dios ya nos dio.
-- Cuando sentimos un tirón del Espíritu, ahí compartimos.
-- Damos seguimiento guiando con el ejemplo, no solo con palabras.
 
 ---
 

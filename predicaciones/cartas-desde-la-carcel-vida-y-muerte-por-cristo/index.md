@@ -1,7 +1,5 @@
 # Vida y muerte por Cristo
 
-> En la séptima sesión comienza la parte de misión. Daniel Lira recuerda que la historia se divide en dos eras y que, aun viviendo en esta, tenemos la ciudadanía y la autoridad de Cristo. Desde la cárcel, Pablo dice que Cristo será exaltado en su cuerpo por vida o por muerte, y se queda a causa de la iglesia: para él, el vivir es Cristo y el morir es ganancia. Lo considera todo basura frente al incomparable valor de conocer a Cristo, como quien cambia un millón por cien millones; y aun así no se cree perfecto, sino que prosigue a la meta. La misión es vivir de manera digna del evangelio, unidos, y abrazar el ministerio de la reconciliación, que es para toda la vida.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=KKAI7a6Jutk
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-vida-y-muerte-por-cristo/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Aun en esta era tenemos la ciudadanía y la autoridad de Cristo.
-- Pablo quería que Cristo fuera exaltado en su cuerpo, por vida o por muerte.
-- Se quedaba a causa de la iglesia: el vivir es Cristo y el morir es ganancia.
-- Todo es basura frente al incomparable valor de conocer a Cristo.
-- Pablo no se creía perfecto: proseguía a la meta.
-- Dios nos reconcilió y nos dio el ministerio de la reconciliación, para toda la vida.
 
 ---
 

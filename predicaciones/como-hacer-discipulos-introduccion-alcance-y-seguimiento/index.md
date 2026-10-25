@@ -1,7 +1,5 @@
 # Alcance y seguimiento: la meta es hacer discípulos
 
-> En la introducción a la clase Alcance y Seguimiento, también llamada ¿Cómo hacer discípulos?, Daniel Lira explica de dónde nace: muchos esfuerzos de evangelismo dan poco fruto duradero, y muchos tenemos familiares y amigos que aún no conocen a Cristo. La meta no es solo que alguien haga una oración, sino formar seguidores de Cristo que lo conozcan, se relacionen con Él y estén dispuestos a darle la vida entera. Advierte que algunas ideas pueden sonar distintas a lo acostumbrado, y anima a escucharlas con el corazón abierto.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,14 +8,6 @@
 - Video: https://www.youtube.com/watch?v=CYFBdBVeDTQ
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-introduccion-alcance-y-seguimiento/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La clase se llama Alcance y Seguimiento: no basta con alcanzar, hay que acompañar.
-- Muchos esfuerzos de evangelismo dan poco fruto duradero.
-- Todos tenemos familiares y amigos que aún no conocen a Cristo.
-- Algunas ideas sonarán distintas: escúchalas con el corazón abierto.
-- La meta no es una oración, sino discípulos que conozcan a Cristo y le den la vida entera.
 
 ---
 

@@ -1,7 +1,5 @@
 # Discípulos: una identidad, no una actividad
 
-> En este mensaje, Daniel Lira llama a identificarnos como discípulos. Primero, qué es un discípulo: en la tradición judía los jóvenes estudiaban desde niños, y los doce fueron llamados probablemente muy jóvenes; dejaron al instante redes, barca y oficina para seguir a Jesús, y según la tradición casi todos murieron como mártires. Segundo, de quién somos discípulos: como quien halla un tesoro o una perla de gran precio, encontraron al Mesías, y por Él lo dejaron todo; la mujer del alabastro derramó lo más valioso sobre Él. La máxima expresión de Cristo hoy es su Palabra, viva y más cortante que una espada. Tercero, cómo vivimos como discípulos: dejándonos examinar —«Escudríñame, oh Dios»—, meditando la Palabra, viviendo con propósito donde estemos, y obedeciendo un paso a la vez, cueste lo que cueste.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/discipulos-una-identidad-no-una-actividad/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Ser discípulo es una identidad: no algo que hacemos, sino algo que somos.
-- Los doce dejaron al instante redes, barca y oficina para seguir a Jesús.
-- Encontraron la perla de gran precio: Jesús, el Mesías, el Hijo del Dios viviente.
-- Seguir a Cristo es negarnos a nosotros mismos y tomar nuestra cruz.
-- La máxima expresión de Cristo hoy es su Palabra, que nos examina y transforma.
-- Vivimos con propósito donde estemos, obedeciendo un paso a la vez, cueste lo que cueste.
 
 ---
 

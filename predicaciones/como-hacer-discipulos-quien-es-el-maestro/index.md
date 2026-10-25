@@ -1,7 +1,5 @@
 # ¿Quién es el maestro? Discípulos de Jesús, no nuestros
 
-> En la séptima sesión, Daniel Lira recuerda que el discípulo emula a su maestro, y por eso la pregunta clave es quién es el maestro. Muchas veces enseñamos como maestros que pasan información, pero no en una dinámica de discípulo; y como seguidores de Cristo no hacemos discípulos nuestros, sino de Cristo, para que sigan en el camino aun cuando nosotros ya no estemos. En los lugares no alcanzados, donde siempre hay algún tipo de persecución, esto es vital. Vivimos hoy bajo el gobierno del Rey que vendrá otra vez, devolviéndole a Jesús lo que ya es suyo, lo que compró con su sangre.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=FXhX1K8HBVw
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-quien-es-el-maestro/
 - Idioma: es-MX
-
-## Puntos clave
-
-- El discípulo emula a su maestro: la pregunta es quién es el maestro.
-- No hacemos discípulos nuestros, sino de Jesús.
-- Así, las personas dependen de la vid verdadera y no de nosotros.
-- En contextos de persecución, discípulos que dependen de Cristo siguen firmes aunque el líder falte.
-- Vivimos hoy bajo el gobierno del Rey que regresará.
-- Devolvemos a Jesús lo que ya es suyo, lo que compró con su sangre.
 
 ---
 

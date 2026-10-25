@@ -1,7 +1,5 @@
 # Efesios 6: la armadura de Dios y las vestiduras del sacerdote
 
-> En la séptima sesión de Efesios, Daniel Lira explica la armadura de Dios como un juego de palabras de Pablo, que era ciudadano romano y también fariseo de fariseos: conocía la armadura de los soldados y las vestiduras sacerdotales. No luchamos como Roma, para dominar un reino, sino como sacerdotes que representan a Dios. El escudo de la fe nos protege de las mentiras del diablo, cuyas armas desde Génesis 3 son el miedo y la vergüenza; lo contrario a la fe no es solo incredulidad, sino miedo y vergüenza. El casco de la salvación protege la mente, como la lámina del sumo sacerdote que decía «Santidad al Señor». La espada del Espíritu es la Palabra de Dios, y todo se sostiene en oración.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2 (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=uwPu6M9fsZQ
 - URL: https://daniellira.com/predicaciones/efesios-6-la-armadura-de-dios-y-las-vestiduras-del-sacerdote/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Pablo conocía la armadura romana y las vestiduras sacerdotales, y juega con ambas imágenes.
-- No luchamos como los romanos para dominar un reino: funcionamos como sacerdotes que representan a Dios.
-- Desde Génesis 3 las armas del enemigo son el miedo y la vergüenza.
-- El escudo de la fe apaga esas mentiras: Dios cubre nuestra desnudez y nos ama.
-- El casco de la salvación guarda la mente, como la lámina «Santidad al Señor» del sumo sacerdote.
-- La espada del Espíritu es la Palabra de Dios, y la armadura se viste en oración.
 
 ---
 

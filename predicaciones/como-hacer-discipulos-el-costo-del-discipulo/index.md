@@ -1,7 +1,5 @@
 # El costo del discípulo: entregar nuestro reino
 
-> En la sexta sesión, Daniel Lira estudia Lucas 14:25–35. Jesús advierte a la multitud que quien no carga su cruz y lo sigue no puede ser su discípulo, y pide calcular el costo como quien va a construir una torre. Habla también de la sal que pierde su sabor. Para los primeros discípulos, seguir a Jesús resucitado costó todo, y aun así fue la inversión que siempre vale la pena. Ser discípulo es tomar nuestro propio pequeño reino y entregárselo al Maestro.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=XCSVnyH2SOU
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-el-costo-del-discipulo/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Jesús pide cargar la cruz y seguirlo.
-- Hay que calcular el costo, como quien construye una torre.
-- La sal que pierde su sabor ya no sirve.
-- A los primeros discípulos seguir a Jesús les costó todo.
-- Es la inversión que siempre vale la pena.
-- Ser discípulo es entregarle a Jesús nuestro propio pequeño reino.
 
 ---
 

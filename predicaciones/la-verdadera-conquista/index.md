@@ -1,7 +1,5 @@
 # La verdadera conquista
 
-> Recién terminada la serie La Conquista, el domingo después de Resurrección, Daniel Lira habla de la conquista que esa historia anunciaba. David, al ser proclamado rey, va primero por el arca y danza sin su manto real: entendió que no se trataba del territorio sino de la presencia de Dios. Salomón se acostumbró a la bendición, se construyó su propio templo y el reino se dividió. Así creció durante siglos la expectativa: ¿quién es el Hijo de David? En el bautismo de Jesús, el Padre lo llama «amado», y Jesús anuncia el evangelio del reino. Nuestra tarea no es conquistar sino proclamar la victoria que ya se dio.
-
 *Transcripción completa de una predicación, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Este texto combina la versión predicada con el manuscrito de Daniel Lira para el mismo mensaje («Hosanna»): lo que solo estaba en el manuscrito se integró con sus propias palabras. Publicada en abril de 2024 en Convivencia Familiar Monterrey.*
 
 - Autor: Daniel Lira
@@ -11,22 +9,13 @@
 - URL: https://daniellira.com/predicaciones/la-verdadera-conquista/
 - Idioma: es-MX
 
-## Puntos clave
-
-- David entendió que el centro del reino no era la tierra sino la presencia de Dios, y por eso fue primero por el arca.
-- Salomón se acostumbró a la bendición y se olvidó de que la presencia de Dios debía llegar a todas las familias de la tierra.
-- Durante siglos Israel esperó al Hijo de David; en el bautismo de Jesús, el Padre lo llama «amado», y la palabra hebrea suena como David.
-- «Evangelio» era el anuncio de un rey victorioso: Jesús recluta mensajeros para proclamar que el reino se acerca.
-- Las palmas de la Pascua anuncian la fiesta de los tabernáculos: el Rey volverá, no en burro, sino en caballo blanco.
-- Nuestro trabajo no es conquistar, sino proclamar la victoria que ya se dio en Cristo.
-
 ---
 
 ## Después de La Conquista
 
-Hoy. Es el primer domingo después del Domingo de Resurrección. Celebramos, cantamos, alabamos y entendimos que es real. Estas no son tonterías, no son disparates, no son locuras. Él realmente vino y Él realmente resucitó. Su resurrección es el evento más importante de la historia, porque es la firma, la garantía, la prueba de que Él es quien dijo ser. Pero, ¿quién es Jesús? Y más importante: ¿quién es para ti? Y eso es lo que nos ayuda a definir cómo vamos a vivir nuestra vida y tratar de descifrar quién es Jesús. Es lo que cambió la vida de los discípulos, fue lo que cambió la vida de Juan el Bautista, es lo que puede cambiar nuestra vida, entender quién es Él y por qué vino y por qué resucitó. Ahora, también acabamos de terminar una serie que se llamaba La Conquista. Y esta serie habla de esta conquista de la tierra prometida.
+Hoy es el primer domingo después del Domingo de Resurrección. Celebramos, cantamos, alabamos y entendimos que es real. Estas no son tonterías, no son disparates, no son locuras. Él realmente vino y Él realmente resucitó. Su resurrección es el evento más importante de la historia, porque es la firma, la garantía, la prueba de que Él es quien dijo ser. Pero, ¿quién es Jesús? Y más importante: ¿quién es para ti? Y eso es lo que nos ayuda a definir cómo vamos a vivir nuestra vida y tratar de descifrar quién es Jesús. Es lo que cambió la vida de los discípulos, fue lo que cambió la vida de Juan el Bautista, es lo que puede cambiar nuestra vida, entender quién es Él y por qué vino y por qué resucitó. Ahora, también acabamos de terminar una serie que se llamaba La Conquista. Y esta serie habla de esta conquista de la tierra prometida.
 
-Y quiero, como no es parte de la serie, pero partir un poco de ahí para hablar de la verdadera conquista. Y no tiene nada que ver con esos hechos en sí, sino lo que esos hechos querían hablar. Lo que la conquista de esa tierra, el Reino Unido de Israel quería decirnos. Entonces vamos a hablar justo de eso. ¿Está bien? ¿Me tomo agua? Porque si no, ya no voy a tomar. Muy bien. Pues pasa todo lo de la conquista, llegan a la tierra y eventualmente pasan muchos años, David es el que termina de conquistar la tierra. David es el rey que en la época histórica se le llamaría el Reino Unido.
+Y quiero, como no es parte de la serie, pero partir un poco de ahí para hablar de la verdadera conquista. Y no tiene nada que ver con esos hechos en sí, sino lo que esos hechos querían hablar. Lo que la conquista de esa tierra, el Reino Unido de Israel quería decirnos. Entonces vamos a hablar justo de eso. ¿Está bien? Pues pasa todo lo de la conquista, llegan a la tierra y eventualmente pasan muchos años, David es el que termina de conquistar la tierra. David es el rey que en la época histórica se le llamaría el Reino Unido.
 
 ## David va primero por el arca
 

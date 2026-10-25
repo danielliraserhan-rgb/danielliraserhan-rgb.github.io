@@ -1,7 +1,5 @@
 # Fructificar y multiplicar: una tarea para todos
 
-> En la octava sesión, Daniel Lira responde a la pregunta «¿por qué yo?». Desde Génesis 1:28, el mandato de ser fecundos, multiplicarse y ejercer dominio sobre la tierra anticipa la Gran Comisión. Jesús no dice nada nuevo: retoma el propósito de la creación cuando, con toda autoridad, manda hacer discípulos de todas las naciones. Fuimos creados para representar el gobierno de Dios en la tierra, y hoy engendramos hijos espirituales cuando más personas pasan de muerte a vida por el nuevo nacimiento.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=uN2yRs4c3fE
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-fructificar-y-multiplicar/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La tarea de hacer discípulos es para todos, no solo para unos cuantos.
-- Génesis 1:28: sean fecundos, multiplíquense, llenen la tierra.
-- Jesús retoma en la Gran Comisión el propósito de la creación.
-- Fuimos creados para representar el gobierno de Dios en la tierra.
-- Hoy nos multiplicamos espiritualmente por el nuevo nacimiento.
-- Cada persona que pasa de muerte a vida es un hijo espiritual.
 
 ---
 

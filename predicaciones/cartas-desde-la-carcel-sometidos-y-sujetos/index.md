@@ -1,7 +1,5 @@
 # Sometidos unos a otros: amor, no aplastamiento
 
-> En la undécima sesión, Daniel Lira muestra que Pablo siempre termina hablando de relaciones, porque ahí se demuestra el carácter de Cristo: incluso la teología es relación (el Padre nos adoptó, el Hijo nos redimió y el Espíritu nos selló para estar con Él). Antes de los ejemplos, redefine el sometimiento: no es aplastamiento, sino considerar al otro como más importante que uno mismo (Filipenses 2:3), como Cristo, que se despojó y dio su vida por nosotros. Lo ilustra con un paraguas: quién se pone debajo y quién toma la función de Cristo para cubrir de la lluvia. Lo aplica a esposos y esposas, a hijos que honran y padres que crían en la instrucción del Señor, y a siervos y amos.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=ti31_yj8xEA
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-sometidos-y-sujetos/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Pablo aterriza su teología en las relaciones: ahí se demuestra el carácter de Cristo.
-- Someterse no es aplastamiento: es considerar al otro como más importante que uno mismo.
-- Cristo es el modelo: se despojó de sus privilegios y dio su vida por nosotros.
-- En el matrimonio, uno se pone bajo el paraguas y el otro, como Cristo, cubre de la lluvia.
-- Honrar a padre y madre trae promesa; los padres crían en la instrucción del Señor.
-- En el trabajo, siervos y amos se relacionan sabiendo que tienen un Señor en los cielos.
 
 ---
 

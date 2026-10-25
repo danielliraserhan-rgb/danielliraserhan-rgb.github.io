@@ -1,7 +1,5 @@
 # Conclusión: embajadores de Cristo, todo lo puedo en Él
 
-> En la conclusión del curso, Daniel Lira repasa el recorrido: Filemón recibió por medio de Onésimo una carta que mostraba el fruto del evangelio aun en las prisiones; vimos quién es Pablo y cómo llegó a la cárcel al apelar al César; la teología de un Dios que adopta, redime y sella; la misión de vivir y morir por Cristo en los ministerios de la reconciliación y la encarnación; y la vida práctica en las relaciones y la armadura de Dios. Ya no se trata de mí, sino de Cristo: somos sus embajadores y estamos firmes sin temor. Cierra leyendo Filipenses 4: Pablo aprendió el secreto del contentamiento y puede decir «todo lo puedo en Cristo que me fortalece», mientras esperamos que Él traiga su reino.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=ao1TuWjOhbM
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-conclusion-embajadores-de-cristo/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Filemón y Onésimo muestran el fruto del evangelio aun en las prisiones.
-- Recorrimos la historia de Pablo, la teología, la misión y la vida práctica.
-- Ya no se trata de mí, sino de Cristo: mi vida da fruto en Él y mi muerte me acerca a Él.
-- Somos embajadores de Cristo, firmes y sin temor.
-- Pablo aprendió el secreto del contentamiento en toda situación.
-- «Todo lo puedo en Cristo que me fortalece», mientras esperamos su reino.
 
 ---
 

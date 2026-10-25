@@ -1,7 +1,5 @@
 # Efesios 1: adoptados, redimidos y sellados en Cristo
 
-> En la introducción y primera sesión de Efesios en Estudio 12:2, Daniel Lira presenta la carta como una «constitución de la iglesia»: no responde a un problema local, sino que recuerda quién es Dios, cuál es su plan, quiénes somos y cuál es la misión. La clave de la teología de Pablo, el fariseo que conoció las Escrituras pero no al Mesías hasta el camino a Damasco, es la frase «en Cristo», repetida unas 246 veces en sus cartas: Cristo es como el arca de Noé, y dentro de Él recibimos identidad, misión y propósito. En Efesios 1:3–14 la Trinidad actúa en perfecta sincronía: el Padre nos adoptó, el Hijo nos redimió con su sangre y el Espíritu Santo nos selló como garantía, todo «para la alabanza de su gloria».
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2 (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=mrQ2rA5OpGE
 - URL: https://daniellira.com/predicaciones/efesios-1-adoptados-redimidos-y-sellados-en-cristo/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Efesios no es una carta reactiva: es una constitución que dice quién es Dios, quiénes somos y cuál es la misión.
-- La clave de Pablo es «en Cristo»: como el arca de Noé, dentro de Él hay identidad, salvación y propósito.
-- El Padre nos adoptó en Cristo: tienes acceso a Él como a un buen papá que quiere estar contigo.
-- El Hijo nos redimió con su sangre: Dios no está sentado esperando regañarte.
-- El Espíritu Santo nos selló como garantía de la redención que viene.
-- Todo lo hizo Dios «para la alabanza de su gloria», y ese también es tu propósito.
 
 ---
 

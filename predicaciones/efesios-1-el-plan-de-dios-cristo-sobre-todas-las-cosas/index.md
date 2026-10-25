@@ -1,7 +1,5 @@
 # Efesios 1: el plan de Dios, Cristo sobre todas las cosas
 
-> En la segunda sesión de Efesios, Daniel Lira confronta una idea muy extendida: que el cristianismo se trata solo de ser salvos y escapar de un mundo material malo, una herencia del pensamiento griego y del gnosticismo, no de la Biblia. Si la salvación fuera la meta, un buen Padre nos llevaría al cielo en el momento de creer. Fuimos sellados por el Espíritu porque hay una misión: el «misterio de su voluntad» es reunir todas las cosas en Cristo, el segundo Adán que administrará la tierra (Efesios 1:9–10). Pablo ora para que conozcamos la esperanza de ese llamado y el poder que resucitó a Cristo, el mismo que vive en nosotros. Hoy Cristo es la cabeza y la iglesia su cuerpo, sus pies en la tierra, llamando a todos a subir al arca.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2 (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=AnwUXt9VFD4
 - URL: https://daniellira.com/predicaciones/efesios-1-el-plan-de-dios-cristo-sobre-todas-las-cosas/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La Biblia no enseña que lo material es malo y que la meta es escapar: eso es gnosticismo.
-- Si el objetivo fuera solo ser salvos, Dios nos llevaría al momento de creer; nos dejó aquí con una misión.
-- El misterio del plan de Dios es reunir todas las cosas en Cristo, el nuevo Adán que administrará la tierra.
-- Pablo ora para que conozcamos la esperanza del llamado y el poder que resucitó a Cristo, que vive en nosotros.
-- Cristo es la cabeza; la iglesia es su cuerpo y sus pies en la tierra.
-- Todos estamos llamados a hacer discípulos, empezando por nuestros hijos, como Noé llamando a subir al arca.
 
 ---
 

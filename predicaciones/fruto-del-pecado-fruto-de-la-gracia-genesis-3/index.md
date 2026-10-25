@@ -1,7 +1,5 @@
 # Fruto del pecado, fruto de la gracia
 
-> A partir de Génesis 2:25 y Génesis 3, Daniel Lira muestra que la historia empieza con un hombre y una mujer «desnudos y sin vergüenza» delante de Dios, y que el pecado introdujo dos frutos que todavía cosechamos: vergüenza y miedo. Pero Dios mismo cubrió su desnudez y prometió regresarnos al jardín. La Biblia es como un rompecabezas que un papá arma con su hijo: Génesis da el marco, Jesús es la imagen, y lo importante nunca fue la pieza sino estar con Papá. Esa gracia produce dos frutos nuevos, fe y esperanza, y se cultiva acercándonos a la palabra que desnuda el alma no para avergonzarnos sino para edificarnos, renovando la mente y dejando que el Padre nos corrija en comunidad.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en abril de 2025 en Convivencia Familiar Monterrey (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,16 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/fruto-del-pecado-fruto-de-la-gracia-genesis-3/
 - Idioma: es-MX
-
-## Puntos clave
-
-- El diseño original fue estar «desnudos y sin vergüenza» delante de Dios (Génesis 2:25).
-- Todo pecado produce dos frutos: vergüenza y miedo, y nos hace escondernos del Padre (Génesis 3).
-- Dios cubre nuestro pecado y promete regresarnos al jardín: esa es la gracia.
-- La Biblia es un rompecabezas que Papá arma contigo; Jesús es la imagen y lo importante es estar con Él.
-- La gracia produce dos frutos: fe en que es un buen Padre y esperanza en que hará lo que dijo.
-- La palabra desnuda el alma no para avergonzarte sino para edificarte (Hebreos 4:12–16).
-- Se cosecha el fruto de la gracia escuchando, aprendiendo, dejándose corregir y viviendo lo que Papá enseña, en comunidad.
 
 ---
 
@@ -40,12 +28,16 @@ Puntos:
 
 Por tanto, puesto que tenemos en derredor nuestro tan gran nube de testigos, despojémonos también de todo peso y del pecado que tan fácilmente nos envuelve, y corramos con paciencia la carrera que tenemos por delante, 2 puestos los ojos en Jesús, el autor y consumador de la fe, quien por el gozo puesto delante de Él soportó la cruz, despreciando la vergüenza, y se ha sentado a la diestra del trono de Dios.
 
+## Las dos semillas
+
 - Las dos semillas (GENESIS 1 y 2) Génesis 2:25 - Génesis 3
 - Diseño original: Desnudos y sin vergüenza
 - Corrupción: Vergüenza y miedo
 - Promesa: Fe y esperanza
 - Dios cubre nuestro pecado y nos regresa al jardín.
 - Todo pecado va a producir dos cosas: Vergüenza y miedo.
+
+## El rompecabezas de la Biblia: estar con papá
 
 Conocer a Dios nos debe dar la certeza y confianza de que Él es un buen padre…
 
@@ -70,6 +62,8 @@ Te das cuenta que eres como el niñito pequeño que está haciendo un rompecabez
 - Se trata de estar con papá
 - Se trata de estar con sus hijos
 
+## La gracia trae dos frutos: fe y esperanza
+
 Cuando entendemos esta realidad, entendemos la gracia.
 
 - La gracia es lo que nos habilita a acercarnos a papá
@@ -86,6 +80,8 @@ Certeza de que el esta con nosotros hasta el fin del mundo.
 - Certeza de que todo lo que el hace es para ayudarnos a regresar a casa
 - Esperanza de que el hará lo que dice que hará
 - El cubrirnos, el sanarnos, el amarnos nos indica que el regresará.
+
+## La palabra desnuda tu alma
 
 Es nuestro proceso vencer la vergüenza y el miedo.
 
@@ -112,6 +108,8 @@ Porque la palabra de Dios es viva y eficaz, y más cortante que cualquier espada
 
 Penetra hasta la división del alma y del espíritu, de las coyunturas y los tuétanos, y es poderosa para discernir los pensamientos y las intenciones del corazón. No hay cosa creada oculta a Su vista, sino que todas las cosas están al descubierto y desnudas ante los ojos de Aquel a quien tenemos que dar cuenta.
 
+## Material y espiritual es una sola cosa
+
 - Toda realidad espiritual tiene una realidad material y viceversa
 - Colosenses 2:6-7
 
@@ -124,6 +122,8 @@ Pero Dios no desnuda nuestra alma para avergonzarnos, sino para edificarnos. (el
 Hebreos 4:15
 
 15 Porque no tenemos un Sumo Sacerdote que no pueda compadecerse de nuestras flaquezas, sino Uno que ha sido tentado en todo como nosotros, pero sin pecado. 16 Por tanto, acerquémonos con confianza al trono de la gracia para que recibamos misericordia, y hallemos gracia para la ayuda oportuna.
+
+## Renueva tu mente
 
 - Renueva tu mente
 - Acércate como con un buen padre.
@@ -148,6 +148,8 @@ Es para su corrección que sufren. Dios los trata como a hijos; porque ¿qué hi
 Al presente ninguna disciplina parece ser causa de gozo, sino de tristeza. Sin embargo, a los que han sido ejercitados por medio de ella, después les da fruto apacible de justicia.
 
 Por tanto, fortalezcan las manos débiles y las rodillas que flaquean, y hagan sendas derechas para sus pies, para que la pierna coja no se descoyunte, sino que se sane.
+
+## La Biblia no es de interpretación privada
 
 - La Biblia no es de interpretación privada
 - Josué 1:8

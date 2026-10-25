@@ -1,7 +1,5 @@
 # Efesios 4–5: dones para edificar y vestirse del nuevo hombre
 
-> En la quinta sesión de Efesios, Daniel Lira explica que Cristo dio a su iglesia dones —apóstoles, profetas, evangelistas, pastores y maestros— no para exaltar a unos cuantos, sino para capacitar a los santos y edificar el cuerpo. Cada creyente tiene un tipo de gracia que sirve a los demás. Después, Pablo usa la imagen de despojarse del viejo hombre y vestirse del nuevo, una imagen que nos lleva a Génesis 3, cuando Dios cubrió la desnudez de Adán y Eva. Ese nuevo hombre se ve en lo cotidiano: palabras que edifican e imparten gracia, perdonar como Dios nos perdonó en Cristo y andar en amor. Termina con el llamado a despertar y vivir como hijos de luz.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2 (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -11,18 +9,7 @@
 - URL: https://daniellira.com/predicaciones/efesios-4-5-dones-para-edificar-y-vestirse-del-nuevo-hombre/
 - Idioma: es-MX
 
-## Puntos clave
-
-- Los dones de Efesios 4:11 existen para capacitar a los santos y edificar el cuerpo, no para exaltar a unos pocos.
-- Cada creyente tiene una gracia que sirve a otros: tu don es para alguien más.
-- Vestirse del nuevo hombre recuerda a Génesis 3: Dios mismo cubre nuestra desnudez.
-- El nuevo hombre se ve en palabras que edifican e imparten gracia a quien escucha.
-- Perdonamos así como Dios nos perdonó en Cristo, y andamos en amor como Él nos amó.
-- «Despierta, tú que duermes»: estamos llamados a vivir como hijos de luz.
-
 ---
-
-Las palabras en rojo son pasajes de baja confianza en la transcripción automática; conviene verificarlas con el audio.
 
 ## Introducción
 

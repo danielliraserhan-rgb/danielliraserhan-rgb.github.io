@@ -1,7 +1,5 @@
 # Sígueme: la perla de gran precio
 
-> En este mensaje, Daniel Lira quiere que veamos la perla de gran precio, que anhelemos seguir a Cristo hacia ella, y que entendamos que el costo, aunque es todo, no es alto. La perla es el Reino de Dios, la resurrección, la respuesta a las grandes preguntas; y su centro es Jesús, el Rey del Reino. Daniel recuerda haber estado harto de vivir solo por existir, hasta toparse con la perla. Como en Pentecostés, la respuesta es arrepentirse y seguir. Seguir a un rabí era lo más anhelado en la cultura judía, y Jesús llama: «Sígueme». Pero, como al joven rico, el llamado exige calcular el costo: muchos lo siguen y pocos lo dejan todo. No se trata de empezar, sino de perseverar, guiados por el Espíritu que nos hace hijos y herederos.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/sigueme-la-perla-de-gran-precio/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La perla de gran precio es el Reino de Dios, y su centro es Jesús, el Rey.
-- Encontrarla le da sentido a todo: a la carrera, al propósito, a la ansiedad.
-- Ante el evangelio, la respuesta es arrepentirse y seguir a Jesús.
-- Seguir a un rabí era lo más anhelado; Jesús te llama: «Sígueme».
-- Muchos lo siguen, pocos lo dejan todo: calcula el costo y persevera.
-- No necesitas solo descanso o terapia: necesitas a Cristo, al Espíritu y al Padre.
 
 ---
 

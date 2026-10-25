@@ -1,7 +1,5 @@
 # Una sola cosa importa: amar a Dios
 
-> En la tercera sesión, Daniel Lira conecta el camino a Emaús con la Gran Comisión y la promesa del Padre: el Espíritu Santo, que nos inviste de poder (Lucas 24:49). Luego va a lo único que de verdad importa: el gran mandamiento de Mateo 22, que resume toda la ley en dos —amar a Dios y amar al prójimo—, y que viene del Shemá de Deuteronomio 6. Dios creó los cielos y la tierra como una casa para convivir con nosotros. Hacer discípulos no es un programa: nace de amar a Dios de tal forma que otros lo quieran conocer.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=VW1Mbqq1dOY
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-una-sola-cosa-importa/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Jesús prometió el Espíritu Santo para que pudiéramos cumplir la misión.
-- El gran mandamiento: amar a Dios con todo el corazón, alma y mente.
-- Toda la ley y los profetas dependen de amar a Dios y al prójimo.
-- El Shemá de Deuteronomio 6 es la raíz de ese mandamiento.
-- Dios creó el mundo como una casa para convivir con nosotros.
-- Hacer discípulos nace de amar a Dios para que otros lo quieran conocer.
 
 ---
 

@@ -1,7 +1,5 @@
 # Jesús, mi maestro
 
-> ¿Cómo conozco la voluntad de Dios? Daniel Lira responde que todo depende de nuestro alimento: Jesús, cansado y sediento, decía que su comida era hacer la voluntad del Padre. No necesitamos un maestro humano para entender la voluntad de Dios; necesitamos la Palabra, el ejemplo de Jesús y la presencia del Espíritu. Los dones de maestro y pastor existen para edificar el cuerpo, no para sustituir la búsqueda personal ni para ser glorificados, sino para enseñar de tal manera que cada uno pueda profundizar. El Padre se vuelve nuestro maestro cuando nos volvemos aprendices.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
@@ -11,19 +9,11 @@
 - URL: https://daniellira.com/predicaciones/jesus-mi-maestro/
 - Idioma: es-MX
 
-## Puntos clave
-
-- Conocer la voluntad de Dios depende de nuestro alimento.
-- Necesitas la Palabra, el ejemplo de Jesús y el Espíritu Santo.
-- Los maestros y pastores enseñan para que tú puedas profundizar.
-- No busques al gurú: deja que el Padre sea tu maestro, Jesús tu pastor y el Espíritu tu guía.
-- Nadie da fruto separado de la vid.
-
 ---
 
-¿Cómo hago para conocer la voluntad de Dios?
+## ¿Cómo hago para conocer la voluntad de Dios?
 
-Todo depende de nuestro alimento
+### Todo depende de nuestro alimento
 
 - Jesús estaba cansado y sediento
 - Pero había algo más
@@ -39,7 +29,9 @@ Así que estudiamos las escrituras para poder conocer la voluntad del padre y pr
 - El ejemplo de a Jesús
 - Y la presencia del Espíritu Santo
 
-Ahora.. cuando tú vayas a la palabra de Dios te vas a encontrar que dio dones a cada uno según su voluntad.
+## Dones para servir a la iglesia
+
+Ahora... cuando tú vayas a la palabra de Dios te vas a encontrar que dio dones a cada uno según su voluntad.
 
 - A unos como maestros, pastores, etc.
 - Y estos dones son para servir a la iglesia
@@ -70,11 +62,15 @@ Pero de nuevo, no es para alzarlos y glorificarlos. Si no para tomar unos a otro
 
 Es por esto que la palabra dice… nadie da fruto separado de la vid.
 
-Mi camino como maestro de la palabra inicio cuando alguien me enseñó que había más en las escrituras de lo que había visto
+## Mi camino como maestro de la palabra
+
+Mi camino como maestro de la palabra inició cuando alguien me enseñó que había más en las escrituras de lo que había visto
 
 Me compartió lo que Dios había estado enseñándole y cada vez que abría mi Biblia podía profundizar aún más gracias a ello
 
-El padre se vuelve tu maestro cuando nos volvemos aprendices.
+## El Padre se vuelve tu maestro
+
+El Padre se vuelve tu maestro cuando nos volvemos aprendices.
 
 Cuando el hambre de conocer su voluntad es mayor al hambre física o al cansancio.
 

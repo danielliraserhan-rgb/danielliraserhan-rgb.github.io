@@ -1,7 +1,5 @@
 # La mujer: dadora de vida
 
-> En un mensaje por el Día de la Mujer, Daniel Lira recalca el valor de la mujer como dadora de vida y el del hombre como protector de la vida. La mujer fue creada no del barro sino de hueso y carne, no en el caos sino en el huerto, no inferior sino a imagen de Dios. Por una mujer vendría el Salvador; mujeres llevaron a Cristo a su pueblo, lo ungieron y lo vieron resucitado primero, y hoy siguen llevando el evangelio en lugares de persecución. El diablo la ataca desde Génesis 3:15 porque de ella vendría la vida. Por eso el llamado a los hombres: ser cabeza no da más valor, sino que nos hace escudo, como Cristo que dio su vida por su novia.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
@@ -10,14 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/la-mujer-dadora-de-vida/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La mujer fue creada a imagen de Dios, en la hermosura del huerto.
-- Fue por una mujer que vendría el Salvador.
-- La enemistad de Génesis 3:15 explica por qué la mujer ha sido oprimida.
-- Ser cabeza no da más valor: nos hace escudo.
-- Cristo, que dio su vida por su novia, es el modelo para amar y proteger.
 
 ---
 

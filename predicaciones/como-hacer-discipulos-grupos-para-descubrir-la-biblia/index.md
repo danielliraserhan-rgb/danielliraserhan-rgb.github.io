@@ -1,7 +1,5 @@
 # Grupos para descubrir la Biblia
 
-> En la decimotercera sesión, la parte práctica del curso, Daniel Lira explica qué hacer cuando encuentras a alguien abierto: reunirse para descubrir la Biblia, con la meta de que la persona aprenda, experimente y obedezca a Dios, y llegue pronto a caminar a la par nuestra. La dinámica empieza con gratitud, que prepara el corazón; luego se lee una historia corta, se pide contarla en sus propias palabras y se guía solo con preguntas: qué dice de Dios, qué dice de las personas, qué entendiste y cómo lo practicarás. Comparte la historia real de un hombre musulmán que, al leer que Dios hizo al hombre y a la mujer a su imagen, empezó a tender su propia cama, y cuya madre y hermana llegaron al grupo y se bautizaron. La pregunta final, «¿a quién le puedes compartir esto?», hace discípulos desde el día uno.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=uZf4QahuTn4
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-grupos-para-descubrir-la-biblia/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La meta es que la persona aprenda, experimente y obedezca a Dios.
-- Queremos que pronto camine a la par nuestra, no detrás.
-- Empezamos con gratitud: prepara el corazón para escuchar que Dios es bueno.
-- Leemos historias cortas y pedimos contarlas en sus propias palabras.
-- No enseñamos: guiamos con preguntas que llevan del entendimiento a la obediencia.
-- «¿A quién le puedes compartir esto?»: discípulos que hacen discípulos desde el día uno.
 
 ---
 

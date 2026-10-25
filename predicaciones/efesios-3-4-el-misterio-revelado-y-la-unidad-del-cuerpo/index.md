@@ -1,7 +1,5 @@
 # Efesios 3–4: el misterio revelado y la unidad del cuerpo
 
-> En la cuarta sesión de Efesios, Daniel Lira recorre el capítulo 3 y el inicio del 4. Pablo escribe desde la cárcel, pero no se llama prisionero de Roma sino «prisionero de Cristo Jesús»: su circunstancia está bajo el propósito de Dios. El misterio que le fue revelado es que los gentiles son coherederos y miembros del mismo cuerpo, y la iglesia es el medio por el cual la infinita sabiduría de Dios se da a conocer incluso a los principados y potestades. Dios puede hacer mucho más de lo que pedimos o entendemos, según el poder que ya obra en nosotros. Por eso Pablo ruega vivir de manera digna del llamado, con humildad y paciencia, preservando la unidad del Espíritu en medio de la diversidad de expresiones de la iglesia.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2 (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=KUA7tV0PQS4
 - URL: https://daniellira.com/predicaciones/efesios-3-4-el-misterio-revelado-y-la-unidad-del-cuerpo/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Pablo se llama prisionero de Cristo, no de Roma: sus circunstancias están bajo el propósito de Dios.
-- El misterio revelado: los gentiles son coherederos, miembros del mismo cuerpo y partícipes de la promesa.
-- Pablo se veía como el más pequeño de los santos, y por gracia anunció las riquezas de Cristo.
-- Por medio de la iglesia, Dios muestra su sabiduría a los principados y potestades.
-- Dios puede hacer mucho más de lo que pedimos o entendemos, según el poder que obra en nosotros.
-- La vocación digna se vive con humildad y paciencia, preservando la unidad en la diversidad.
 
 ---
 

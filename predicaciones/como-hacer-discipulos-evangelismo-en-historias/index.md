@@ -1,7 +1,5 @@
 # Evangelismo en historias
 
-> En la decimoquinta sesión, Daniel Lira enseña una estrategia de evangelismo en historias. Somos hechos de historias y la Biblia es una gran historia; a la gente quizá no le guste que llegues diciendo verdades, pero sí escuchar una historia. La estrategia tiene tres historias: cuenta la tuya en uno o dos minutos, en tres columnas —antes, encuentro con Dios, después—; termina con una pregunta que invite a la otra persona a contar la suya; y, después de escucharla, cuéntale una historia de Jesús que responda a lo que vive, como la de la samaritana. Anima a aprender tres o cuatro historias de Jesús para usarlas en la vida diaria.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=xE5_S1KHGs0
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-evangelismo-en-historias/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Somos hechos de historias, y la Biblia es una gran historia.
-- A la gente quizá no le gustan los sermones, pero sí las historias.
-- Cuenta tu historia en uno o dos minutos: antes, encuentro con Dios y después.
-- Termina con una pregunta que invite a la otra persona a contar la suya.
-- Escucha y luego cuenta una historia de Jesús que responda a lo que vive.
-- Aprende tres o cuatro historias de Jesús para tu vida diaria.
 
 ---
 

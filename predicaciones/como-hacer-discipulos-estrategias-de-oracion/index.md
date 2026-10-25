@@ -1,7 +1,5 @@
 # Estrategias de oración: orar la Escritura
 
-> En la decimocuarta sesión, Daniel Lira comparte estrategias de oración que le han servido y que pueden inspirar a otros. Primero, escanear la Escritura —por ejemplo los Salmos— hasta que un texto llame la atención, y detenerse ahí. Luego, entender el texto: si dice «el Señor es mi pastor», preguntar qué es un pastor. Después, meditar en esa verdad y clamar por más de ella en la propia vida. Por último, orar por otros y por comunidades enteras desde esa misma verdad. Versículo por versículo, se puede orar media hora sin detenerse.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -11,20 +9,11 @@
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-estrategias-de-oracion/
 - Idioma: es-MX
 
-## Puntos clave
-
-- Aprendemos a orar para inspirar a otros a orar.
-- Escanea la Escritura hasta que un texto te llame la atención y detente ahí.
-- Entiende el texto: ¿qué es un pastor?
-- Medita en esa verdad sobre Dios y alinéate a ella.
-- Clama por más de esa verdad en tu vida.
-- Ora por otros y por comunidades enteras desde esa misma verdad.
-
 ---
 
 ## Aprender a orar e inspirar a otros
 
-¿Quisieras aprender a orar y inspirar a otros a que también puedan orar y acercarse y ser íntimos con Dios? Quiero platicarte algunas estrategias que me han funcionado y que creo que te pueden funcionar para orar, para acercarte a Dios y para que otras personas también puedan ser inspirados por tu vida de oración, que podamos hacer discípulos, que oran y que podamos también orar por aquellos. Hay cosas bien sencillas que podemos hacer. Y la primera cosa que te quiero enseñar es orar los salmos. Es los salmos por su propia naturaleza, son son canciones o son pedazos de la escritura que tienen una poesía y un ritmo y tienen una profundidad dicha de una manera simple.
+¿Quisieras aprender a orar y inspirar a otros a que también puedan orar y acercarse y ser íntimos con Dios? Quiero platicarte algunas estrategias que me han funcionado y que creo que te pueden funcionar para orar, para acercarte a Dios y para que otras personas también puedan ser inspirados por tu vida de oración, que podamos hacer discípulos, que oran y que podamos también orar por aquellos. Hay cosas bien sencillas que podemos hacer. Y la primera cosa que te quiero enseñar es orar los salmos. Es los salmos por su propia naturaleza, son canciones o son pedazos de la escritura que tienen una poesía y un ritmo y tienen una profundidad dicha de una manera simple.
 
 ## Escanear la Escritura
 

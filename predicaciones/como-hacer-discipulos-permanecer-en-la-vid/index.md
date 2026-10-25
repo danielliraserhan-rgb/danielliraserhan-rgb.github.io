@@ -1,7 +1,5 @@
 # Permanecer en la vid: el fundamento antes del método
 
-> En la cuarta sesión, Daniel Lira pone el fundamento antes de cualquier método: permanecer en la vid (Juan 15). El corazón humano lo ablanda el Espíritu Santo, no nuestra presión ni nuestro celo por corregir a otros. Dios mismo enseña y revela por su Espíritu y su Palabra viva; por eso nuestra tarea no es convencer, sino ayudar a otros a escuchar a Dios, amándolo a Él y al prójimo. Lo que viene en la clase es un sistema práctico, pero ningún sistema sustituye la relación con Cristo.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=pkPa0Fwplu8
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-permanecer-en-la-vid/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Antes de cualquier método, el fundamento es permanecer en Cristo.
-- Separados de Él nada podemos hacer.
-- El Espíritu Santo ablanda el corazón, no nuestra presión.
-- El celo por corregir a otros puede estorbar lo que Dios quiere hacer.
-- Dios es quien enseña: nuestra tarea es ayudar a otros a escuchar a Dios.
-- Ningún sistema sustituye la relación con Cristo.
 
 ---
 
@@ -36,7 +25,7 @@ Qué? Y me decían es que el pecado nos separó del mundo. Y entonces yo decía 
 
 No hacía nada más. Pero yo me cerraba, porque el corazón del humano tiene que ser enternecido por el Espíritu Santo, y él lo sabía. Él lo sabía que cuando él me decía, cada vez que me decía esto, mi corazón en las noches anhelaba leer la Biblia, pero no se atrevía a hacerlo. Y cada vez que él me lo preguntaba, era una semilla que iba siendo plantada, que iba creciendo hasta el día que la abrí. Y el día que la abrí, Dios me habló y el día que. Dios me habló. Entregué mi vida a Jesús por completo, pero de nuevo queremos decirle a la gente: eres un pecador y te vas a ir al infierno, arrepiéntete.
 
-Tienes que arrepentirte de tus obras y ese es el trabajo del Espíritu Santo. Él convence de pecado, él convence de arrepentimiento y él nos guía al arrepentimiento por. Qué? Porque él ha provisto el perdón. Cuando nosotros intentamos hacer esto, estamos diluyendo el trabajo del Espíritu Santo, porque nunca le llegaremos. Por más increíbles que seamos predicando del arrepentimiento, es el Espíritu Santo quien convence de pecado y lleva y guía al arrepentimiento. Para que ellos lleguen a Cristo, les tratamos de decir: estás equivocado. Tratamos de enseñarles y decirles que están mal o de convencerlos. Usamos esta frase: convertirlos.
+Tienes que arrepentirte de tus obras y ese es el trabajo del Espíritu Santo. Él convence de pecado, él convence de arrepentimiento y él nos guía al arrepentimiento. ¿Por qué? Porque él ha provisto el perdón. Cuando nosotros intentamos hacer esto, estamos diluyendo el trabajo del Espíritu Santo, porque nunca le llegaremos. Por más increíbles que seamos predicando del arrepentimiento, es el Espíritu Santo quien convence de pecado y lleva y guía al arrepentimiento. Para que ellos lleguen a Cristo, les tratamos de decir: estás equivocado. Tratamos de enseñarles y decirles que están mal o de convencerlos. Usamos esta frase: convertirlos.
 
 Y es que nadie convierte a nadie. Es el Espíritu Santo quien da vida a los muertos. Y la verdad es que no hay una fórmula. La verdad es que no hay un sistema, y esa es la parte que más nos duele a ti y a mí, en esta mentalidad mexicana, americana, que tenemos incluso cierta influencia griega, helenista y romana. Quiere fórmulas, quiere métodos, quiere maneras de a ver. Paso uno, paso dos, paso tres, y la verdad es que no hay. Por eso quiero meterme una vez más en temas del corazón. Nuestro trabajo no es decirles que son pecadores, que se van a ir al infierno.
 

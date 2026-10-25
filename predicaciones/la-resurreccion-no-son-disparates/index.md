@@ -1,7 +1,5 @@
 # La Resurrección: no son disparates
 
-> En el Domingo de Resurrección, Daniel Lira recorre Lucas 24. Las mujeres encuentran la tumba vacía, los ángeles les recuerdan las palabras de Jesús, y ellas corren a contarlo; pero a los once sus palabras les parecen disparates. Dos discípulos se van hacia Emaús con el corazón enfriándose, y Jesús camina con ellos y les explica, desde Moisés y los profetas, por qué tenía que sufrir. Desde Génesis, del carnero de Isaac al cordero de la Pascua y al siervo de Isaías 53, Dios proveyó el cordero: en la cruz nos redimió, hizo propiciación y nos vistió de justicia. Dios está satisfecho, y la resurrección es la prueba.
-
 *Transcripción completa de una predicación, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en marzo de 2024 en Convivencia Familiar Monterrey · Campus Cumbres.*
 
 - Autor: Daniel Lira
@@ -11,22 +9,13 @@
 - URL: https://daniellira.com/predicaciones/la-resurreccion-no-son-disparates/
 - Idioma: es-MX
 
-## Puntos clave
-
-- Ante Cristo no hay término medio: o la resurrección es verdad o son disparates, y si es verdad nuestra vida tiene que cambiar.
-- Los discípulos que vieron los milagros llamaron disparates al testimonio de las mujeres; nosotros también vivimos a veces como si lo fuera.
-- Desde Génesis, Dios anunció un hijo y proveyó un cordero en lugar del primogénito: Isaac, la Pascua, Isaías 53.
-- En la cruz Jesús nos redimió, hizo propiciación y nos vistió de justicia: Dios está satisfecho, y la resurrección lo prueba.
-- Jesús camina con los discípulos que van hacia la tibieza, les abre las Escrituras y se revela al partir el pan.
-- Los discípulos de Emaús somos tú y yo: el corazón ardiente regresa a proclamar que es verdad.
-
 ---
 
 ## O la aceptas o la niegas
 
 Es la Semana Santa. Es el momento en el que Cristo no puede ser ocultado. Tú caminas por las calles y hay una exaltación de Él. Todo el mundo está pensando en Él en todos lados se habla de esta realidad. Y hay de dos. O la aceptas o la niegas. No hay términos medios. Y nosotros nos juntamos porque celebramos y recordamos que esto es verdad. Jesús vino al mundo. Vivió una vida como tú y como yo. Caminó como tú y como yo. Fue tentado como tú y como yo. Pero Él fue perfecto. Él fue justo. Y aún así fue a la cruz. Y tomó en su muerte lo que a ti y a mí nos correspondía.
 
-Y luego resucitó. Tengo una holz. Déjenme. Ahorita termino de tomarme. Perdón. Es que no sabía que iba a pasar tan rápido. Listo. Entonces recordamos a este hombre. Recordamos a Jesús. Es ese hombre que no solamente era un hombre y que fue crucificado. Que fue llevado como cordero al matadero un hombre colgado en un madero. Burlado y atacado. Llamado el rey de los judíos por sus burladores y por aquellos que lo despreciaban. Pero al tercer día la historia estaba a punto de cambiar. Hubo un temblor. Hubo algo, una magnitud que todos pudieron sentir. La piedra fue removida y la tumba quedó vacía. Dice Lucas 24. Si tú traes tu Biblia física, sácala.
+Y luego resucitó. Entonces recordamos a este hombre. Recordamos a Jesús. Es ese hombre que no solamente era un hombre y que fue crucificado. Que fue llevado como cordero al matadero un hombre colgado en un madero. Burlado y atacado. Llamado el rey de los judíos por sus burladores y por aquellos que lo despreciaban. Pero al tercer día la historia estaba a punto de cambiar. Hubo un temblor. Hubo algo, una magnitud que todos pudieron sentir. La piedra fue removida y la tumba quedó vacía. Dice Lucas 24. Si tú traes tu Biblia física, sácala.
 
 Y si no, pueden comprar una librería. Es bueno tener una Biblia física. Pero en Lucas 24 lo vamos a ir proyectando. Pero si tú tienes una Biblia, nomás quiero tomarme esta pausa porque nadie tuvo una Biblia el día de hoy. Hay muchas verdades ocultas que no podemos decir un domingo. No porque no podamos decirlas, sino porque hay 30 minutos de mensaje. Y cuando tú lees la palabra es viva y salta y atraviesa tu corazón. Nuestras palabras humanas solo son estorbos comparados a la palabra de Dios.
 
@@ -48,7 +37,7 @@ Y todo, sí, y sucede y se les olvida. Pero las mujeres, Dios ama a las mujeres 
 
 Pero regresando al sepulcro, anunciando a los once apóstoles. María, Juana, la madre de Jacobo, todas las mujeres, Susana, decían cosas. Pero a ellos, estas palabras les parecieron como disparates. Y no las creyeron. Llegan viendo la tumba vacía, con el testimonio vivo. Yo vi la tumba vacía, se me aparecieron dos ángeles. Me dijeron que Cristo ha resucitado. Acuérdense que Él nos dijo que había resucitado. Pero los discípulos pensaron que eran puras tonterías. El día de hoy quiero que nos detengamos.
 
-A mirar al hombre a mirar al hombre colgado en un madero. A mirar a ese rey de los judíos para comprobar si realmente son tonterías y disparates. O si esta es la verdad. Porque si esta es la verdad, nuestra vida tiene que cambiar. Tú y yo lo celebramos. Lo caminamos. Lo conmemoramos. Pasamos la Semana Santa. Lo creemos. Pero día a día vivimos como si fueran puros disparates. Como si fueran puras tonterías. Ahora no quiero que me lo tomen a mal. No estoy diciendo que tú crees que es una tontería. Y que crees que es una locura. Pero los mismos discípulos. Que caminaron tres años con Jesús.
+A mirar al hombre colgado en un madero. A mirar a ese rey de los judíos para comprobar si realmente son tonterías y disparates. O si esta es la verdad. Porque si esta es la verdad, nuestra vida tiene que cambiar. Tú y yo lo celebramos. Lo caminamos. Lo conmemoramos. Pasamos la Semana Santa. Lo creemos. Pero día a día vivimos como si fueran puros disparates. Como si fueran puras tonterías. Ahora no quiero que me lo tomen a mal. No estoy diciendo que tú crees que es una tontería. Y que crees que es una locura. Pero los mismos discípulos. Que caminaron tres años con Jesús.
 
 Los mismos discípulos que vieron los milagros. Vieron la multiplicación. Lo vieron caminar sobre el mar. Que escucharon al Jesús mismo decirles. Me voy a morir. Pero al tercer día voy a resucitar. Tranquilos. Esos discípulos. Estaban en sus casas. Escuchando el testimonio real de ángeles y de mujeres. Dijeron son puras locuras. Cuando pasamos por cosas difíciles. Es difícil creer en esto. Lo creemos nuestra mente lo cree nuestro corazón lo cree. Pero cuando estás en ese momento difícil. Es muy complicado. Voltear a ver a Jesús y decir que no es una locura. Creer que Él puede hacer algo diferente. Cuando estás en el trabajo. Y tú crees que es verdad.
 
@@ -68,7 +57,7 @@ Y van caminando. Y Jesús llega a un momento en el que se detiene y les dice, in
 
 ## ¿Por qué tenía que morir Jesús?
 
-Y desde este amor, Dios mismo, el Padre alabando al Hijo, el Hijo al Espíritu Santo, al Espíritu Santo, al Padre, están en una plenitud y deleite increíble. Y dicen, hagamos al hombre a nuestra imagen y semejanza. Para que ellos puedan disfrutar y deleitarse de esto. Entreguémonos a ellos. Y entonces crea los cielos y la tierra para habitar en ellos. Y al hombre para habitar con ellos. Sin embargo, el ser humano no siendo perfecto, no siendo Dios, tendría una imperfección. Y estas imperfecciones causarían una separación de Dios. Y esta separación ahora la llamamos muerte.
+Y desde este amor, Dios mismo, el Padre alabando al Hijo, el Hijo al Espíritu Santo, el Espíritu Santo al Padre, están en una plenitud y deleite increíble. Y dicen, hagamos al hombre a nuestra imagen y semejanza. Para que ellos puedan disfrutar y deleitarse de esto. Entreguémonos a ellos. Y entonces crea los cielos y la tierra para habitar en ellos. Y al hombre para habitar con ellos. Sin embargo, el ser humano no siendo perfecto, no siendo Dios, tendría una imperfección. Y estas imperfecciones causarían una separación de Dios. Y esta separación ahora la llamamos muerte.
 
 Pero Dios mismo, en ese momento, cuando se imaginaba todo antes de la fundación del mundo, calculó el costo y dijo, el pago de esta imperfección es la muerte. Yo no sé cómo habrá funcionado, pero tal vez el Hijo levantó la mano y dijo, yo tomaré esa muerte. Yo cubriré ese pago. Yo pagaré la deuda para cada uno de nosotros. Él provería el pago justo para cada uno de sus hijos. Él provería el sacrificio perfecto que cubre el pecado. Y lo haría a través de su Hijo. Este es el mensaje que resuena como un eco desde Génesis. Mujer, vendrá un hijo.
 
@@ -88,7 +77,7 @@ Jesús es el cordero, es el hombre de la aflicción y en su cruz, en su muerte, 
 
 Dios está satisfecho con el pago. Dios está satisfecho. No hay nada más que hacer. Cuando él nos ve, él nos ve vestidos de justicia. El gran plan de Dios se había puesto en marcha y él está satisfecho. ¿Qué no entendían los discípulos? ¿Qué no entendemos tú y yo cuando vemos a la cruz? De tal manera que no impacta nuestra vida. Los discípulos no estaban satisfechos. Ellos veían al cordero y esperaban que redimiriera a Israel. Este cordero iba a venir a redimir a Israel. Pedro no estaba satisfecho. Él en su pecado, habiendo negado a Cristo tres veces, se sentía avergonzado y condenado. Él no estaba satisfecho.
 
-Él creía que estaba descalificado. Tomás, otro de los discípulos, no estando satisfecho, le dice, muéstrame tus manos. Y Jesús, amable y amoroso, le dice, mira, toca mis manos, toca mi costado. Soy el mismo resucitado. Tú y yo podemos no estar satisfechos, porque nuestra mente nos cuenta una historia. Pero Él está satisfecho en la cruz, Él dijo, consumado es, hecho está. La prueba de que Él está satisfecho es que Él resucitó, es que Él se levantó de los muertos, es que Él es el primero de los frutos de la resurrección, el cual nos promete que un día tú y yo también resucitaremos. Pero ahora Cristo ha resucitado de entre los muertos, primicias de los que durmieron, porque la muerte entró por un hombre, pero también por un hombre, pero también por un hombre vino la resurrección de los muertos.
+Él creía que estaba descalificado. Tomás, otro de los discípulos, no estando satisfecho, le dice, muéstrame tus manos. Y Jesús, amable y amoroso, le dice, mira, toca mis manos, toca mi costado. Soy el mismo resucitado. Tú y yo podemos no estar satisfechos, porque nuestra mente nos cuenta una historia. Pero Él está satisfecho en la cruz, Él dijo, consumado es, hecho está. La prueba de que Él está satisfecho es que Él resucitó, es que Él se levantó de los muertos, es que Él es el primero de los frutos de la resurrección, el cual nos promete que un día tú y yo también resucitaremos. Pero ahora Cristo ha resucitado de entre los muertos, primicias de los que durmieron, porque la muerte entró por un hombre, pero también por un hombre vino la resurrección de los muertos.
 
 Así como en Adán todos mueren, en Cristo todos somos vivificados. No hay más obra, no hay más cosa, no hay más rito, no hay más nada que tengas que hacer para satisfacer a Dios. Dios, Él está satisfecho contigo. Está satisfecho con Pedro que lo negó tres veces. Está satisfecho con Tomás aunque pidió pruebas. Está satisfecho con los hombres que lo necesitaron ver tres veces resucitado para poder creerle. Él no está trayendo juicio ni ira sobre cada uno de nosotros. Eso ya fue pagado en la cruz.
 

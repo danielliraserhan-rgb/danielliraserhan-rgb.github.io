@@ -1,7 +1,5 @@
 # Maranatha: Él ya viene
 
-> En este mensaje de conferencia, Daniel Lira busca reconocer y saciar el hambre de Dios. La iglesia del primer siglo amó hasta la muerte —según la tradición, casi todos los apóstoles fueron martirizados— porque había entendido que nada se arregla sin Él y vivía con un anhelo profundo por su regreso. Desde Génesis 4:26, cuando la humanidad comenzó a invocar el nombre del Señor, el clamor es «Maranatha»: ven, Señor. Jesús pidió que nadie nos engañe y que miremos las señales; Daniel presenta, aclarando que es solo una postura posible, cómo lee el aumento del antisemitismo como un termómetro de la enemistad de Génesis 3:15 y la sucesión de reinos de Daniel y Apocalipsis. Pero el mensaje no es de posturas ni de amarillismo, sino de ser entendidos en los tiempos: Jesús viene, lo arreglará todo, y nos escogió para dar fruto. Por eso derramamos la vida a la luz de su regreso.
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/maranatha-el-ya-viene/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La iglesia del primer siglo amó hasta la muerte porque sabía que nada se arregla sin Él.
-- Desde Génesis 4:26 la humanidad clama: Maranatha, ven, Señor.
-- Jesús pidió que nadie nos engañe y que miremos las señales.
-- Daniel presenta su lectura de las señales como una postura posible, no como certeza.
-- El mensaje no es de amarillismo, sino de ser entendidos en los tiempos.
-- Jesús viene, lo arreglará todo y nos escogió para dar fruto: derrama tu vida a la luz de su regreso.
 
 ---
 

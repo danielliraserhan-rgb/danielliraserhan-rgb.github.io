@@ -1,7 +1,5 @@
 # ¿Qué es un discípulo? El yugo del rabí
 
-> En la quinta sesión, Daniel Lira compara la idea moderna de alumno y salón de clases con la relación entre un rabí y sus talmidim en tiempos de Jesús. El alumno moderno acumula información; el discípulo tomaba el yugo de su maestro —su manera de interpretar y vivir la ley—, vivía con él y su intimidad lo llevaba a la imitación. Alrededor del maestro había respeto y honor. Por eso Jesús dice «tomen mi yugo y aprendan de mí», y por eso un discípulo bien preparado será como su maestro. Ser discípulo es una relación, no solo enseñanza.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=qxNEZiy2KCg
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-que-es-un-discipulo/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Del corazón pasamos a la definición: ¿qué es un discípulo?
-- El alumno moderno acumula datos; el discípulo aprende a vivir como su maestro.
-- El yugo del rabí era su manera de entender y vivir la Palabra.
-- La intimidad con el maestro lleva a la imitación.
-- Al maestro se le rodeaba de respeto y honor.
-- Ser discípulo es una relación, no solo enseñanza.
 
 ---
 
@@ -30,7 +19,7 @@ Y nosotros acompañamos en este proceso, en este proceso de que las personas se 
 
 ## Alumno moderno vs. discípulo
 
-Estamos hablando de hacer discípulos, alcance y seguimiento es hacer discípulos, y la respuesta es muy sencilla: un discípulo. La palabra discípulo significa enseñado. Esto implica que hay un maestro y que hay un alumno. Ahora, cuando tú y yo pensamos en maestro y alumno, estamos pensando en clases. Estamos pensando en este método tradicional en el que nos sentamos. Yo aprendo, tomo notas y descargo el contenido a mi mente de lo que el maestro tenía, y entonces voy por la vida y continúa en eso. Pero en los tiempos, en los tiempos de Jesús, esto era era distinto. Era más acerca de un rabí y la manera en la que funcionaba toda en la cultura hebrea acerca de un discípulo, de un rabí o de un maestro era un poco distinta.
+Estamos hablando de hacer discípulos, alcance y seguimiento es hacer discípulos, y la respuesta es muy sencilla: un discípulo. La palabra discípulo significa enseñado. Esto implica que hay un maestro y que hay un alumno. Ahora, cuando tú y yo pensamos en maestro y alumno, estamos pensando en clases. Estamos pensando en este método tradicional en el que nos sentamos. Yo aprendo, tomo notas y descargo el contenido a mi mente de lo que el maestro tenía, y entonces voy por la vida y continúa en eso. Pero en los tiempos, en los tiempos de Jesús, esto era distinto. Era más acerca de un rabí y la manera en la que funcionaba toda en la cultura hebrea acerca de un discípulo, de un rabí o de un maestro era un poco distinta.
 
 ¿Entonces qué era un? Rabí? Tenía varios puntos importantes que lo consideraban. Número uno: el rabí, o el maestro, tenía la autoridad para interpretar las escrituras a fin de llevar una vida con rectitud. Le daban esta autoridad de interpretar la palabra de Dios de una manera práctica para poder llevarla a la vida útil. Y esa vida útil, que fuera una vida de rectitud, una vida alineada, hará el carácter de Dios. Número dos: el maestro elegía a los discípulos. No, al revés. No como ahora que tú te suscribes a una clase o que tú te metes a la universidad y escoges, inclusive haciendo el horario, a tu maestro.
 
@@ -54,4 +43,4 @@ Me ujió con lo más preciado que tenía y me lavó los pies con sus lágrimas. 
 
 Él merece la gloria, él lo merece todo. Por tanto, la definición de un discípulo nosotros debemos destacarla solamente en relación de este maestro, de este rabí. No es solamente el enseñado, como el término como tal lo dice, sino que un discípulo es un seguidor, un emulador, un replicador. Es el que en raíz de intimidad, se convierte hacia el carácter de su maestro. Es simplemente una persona que busca replicar el carácter del maestro, seguirlo y obedecerlo en todo momento. Ahora los cuatro puntos son elegido por su maestro. Es íntimo con su maestro, sigue a su maestro y esto este: seguir a su maestro. Quiero solo aclarar algo importante: se da en obediencia automática.
 
-No es como una vez que te escogió, y es la honra de estar con él. No estás cuestionando al rabí, estás siguiendo al rabí, estás obedeciendo al rabí y muchas veces esperas la siguiente instrucción y acatas la instrucción. Hoy cenaremos y dormiremos aquí, entonces es ahí. Hoy caminaremos hacia acá, entonces es hacia acá y entonces se va haciendo esta emulación. Y al final del día, el discípulo se convierte como el maestro y es por eso que nosotros, tú y. Yo nos llamamos cristianos. Al principio fue un término peyorativo, un término que se usaba como para disminuir de que los minicristos, los pequeños cristos. Pero la comunidad cristiana o los seguidores del camino, los seguidores de Cristo, lo tomaron como honra y respeto, diciendo: si yo soy como aquel Cristo, yo soy como mi maestro, emulo a mi maestro y me convierto como él y, por lo tanto, soy un cristiano, Soy un minicristo por. Qué? Porque sigo emulo y camino como mi maestro lo hace ¿Por qué?
+No es como una vez que te escogió, y es la honra de estar con él. No estás cuestionando al rabí, estás siguiendo al rabí, estás obedeciendo al rabí y muchas veces esperas la siguiente instrucción y acatas la instrucción. Hoy cenaremos y dormiremos aquí, entonces es ahí. Hoy caminaremos hacia acá, entonces es hacia acá y entonces se va haciendo esta emulación. Y al final del día, el discípulo se convierte como el maestro y es por eso que nosotros, tú y. Yo nos llamamos cristianos. Al principio fue un término peyorativo, un término que se usaba como para disminuir de que los minicristos, los pequeños cristos. Pero la comunidad cristiana o los seguidores del camino, los seguidores de Cristo, lo tomaron como honra y respeto, diciendo: si yo soy como aquel Cristo, yo soy como mi maestro, emulo a mi maestro y me convierto como él y, por lo tanto, soy un cristiano, Soy un minicristo. ¿Por qué? Porque sigo emulo y camino como mi maestro lo hace ¿Por qué?

@@ -1,7 +1,5 @@
 # El camino a Emaús: caminar con Jesús es un proceso
 
-> En la segunda sesión, Daniel Lira usa el camino a Emaús (Lucas 24) como retrato de lo que es ser discípulo. Dos seguidores de Jesús caminan tristes, con una esperanza que parecía perdida: «nosotros esperábamos que Él era el que iba a redimir a Israel». Habían oído de la tumba vacía y no lo creían. Jesús camina con ellos sin que lo reconozcan, los llama tardos de corazón y les explica, desde Moisés y los profetas, lo que decían de Él las Escrituras. Al partir el pan se les abren los ojos, y reconocen que su corazón ardía en el camino. Caminar con Jesús es un proceso, y el encuentro con Él lo cambia todo.
-
 *Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,15 +8,6 @@
 - Video: https://www.youtube.com/watch?v=a8Cl4BXSXSA
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-el-camino-a-emaus/
 - Idioma: es-MX
-
-## Puntos clave
-
-- Los discípulos de Emaús caminaban tristes, con una esperanza que parecía perdida.
-- Habían oído de la tumba vacía, pero no lo creían.
-- Jesús caminó con ellos aunque no lo reconocían.
-- Les abrió las Escrituras desde Moisés y los profetas.
-- Al partir el pan se les abrieron los ojos: «¿No ardía nuestro corazón?».
-- Ser discípulo es un proceso: caminar con Jesús hasta reconocerlo.
 
 ---
 
@@ -66,7 +55,7 @@ Cuando exponemos las escrituras a las personas, y su corazón empieza a arder, e
 
 ## Empezar a seguir a Jesús sin reconocerlo
 
-Y la siguiente vez que los ves, ya leyeron todo Génesis. Y luego ves Exo, y empiezan a leer, y empiezan a querer comerse las escrituras, empiezan a venir a la iglesia, empiezan a hacerlo aún, sin saber que es Jesús el que está enfrente. Empiezan a seguirlo, empiezan a anhelarlo. Y así que le insisten, y se queda con ellos, y están aprendiendo de él, y están conociendo de él, y están entendiendo de él, pero no es hasta este momento que ellos entienden quién es él. O sea, al sentarse a la mesa con ellos, Jesús toma el pan y lo bendijo, y partiéndoles, les dio. Quiero que te remontes y te imagines que tú eres uno de estos discípulos que por tres años caminó con Jesús, al que le habían dicho que había resucitado y que estaba vivo.
+Y la siguiente vez que los ves, ya leyeron todo Génesis. Y luego ves Exo, y empiezan a leer, y empiezan a querer comerse las escrituras, empiezan a venir a la iglesia, empiezan a hacerlo aún, sin saber que es Jesús el que está enfrente. Empiezan a seguirlo, empiezan a anhelarlo. Y así que le insisten, y se queda con ellos, y están aprendiendo de él, y están conociendo de él, y están entendiendo de él, pero no es hasta este momento que ellos entienden quién es él. Al sentarse a la mesa con ellos, Jesús toma el pan y lo bendijo, y partiéndoles, les dio. Quiero que te remontes y te imagines que tú eres uno de estos discípulos que por tres años caminó con Jesús, al que le habían dicho que había resucitado y que estaba vivo.
 
 Y que has caminado con una persona que se asemeja a Jesús, que habla como Jesús, que te explica las cosas como Jesús. Pero llega un momento en el que sentados a las mesas, Jesús toma un pan. Y tal vez mientras ellos veían, en esta intimidad, porque sentarte a la mesa es una de las cosas más íntimas que hacemos. Abrimos nuestro corazón, cocinamos, y compartimos un momento personal. Y sentados a la mesa, ven cómo Jesús agarra un pan. Y empiezan a recordar la vez que este Jesús, este Mesías, partió el pan y lo multiplicó, y dio alimento a cinco mil. Y empiezan a recordar las múltiples veces, las múltiples pascuas que pasaron con él, y cada vez que partió el pan y lo bendijo, o cada cena que Jesús tomaba el pan y lo partió.
 

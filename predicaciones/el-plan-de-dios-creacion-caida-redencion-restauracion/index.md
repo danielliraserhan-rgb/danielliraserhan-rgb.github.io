@@ -1,7 +1,5 @@
 # El plan de Dios
 
-> Todos preguntamos «¿cuál es mi propósito?», pero casi nadie se pregunta cuál es el propósito de Dios. Daniel Lira recorre la historia completa de la Biblia en cuatro movimientos: en la creación, Dios hizo todo bueno y nos diseñó por amor para tener comunión con Él; en la caída, el ser humano tomó del fruto y rechazó el plan de Dios, y la consecuencia fue la separación, la muerte; en la redención, Dios ya tenía un plan dentro del plan, anunciado desde el primer pacto con Adán y cumplido en la cruz, donde un fruto que traía muerte es revertido por uno que trae vida; y en la restauración, Dios llevará su creación de vuelta al diseño original. Con el ejemplo de las cucharas y la sopa, Daniel concluye que nuestro propósito solo tiene sentido alineado al de Dios: ser embajadores de Cristo que ruegan al mundo «¡Reconcíliense con Dios!».
-
 *Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en junio de 2018 en Convivencia Familiar Monterrey (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
@@ -10,16 +8,6 @@
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/el-plan-de-dios-creacion-caida-redencion-restauracion/
 - Idioma: es-MX
-
-## Puntos clave
-
-- La pregunta correcta no es «¿cuál es mi propósito?» sino «¿cuál es el propósito de Dios?».
-- El propósito de Dios desde el inicio hasta la eternidad es el mismo: la comunión de su creación con Él.
-- En la creación todo era bueno, y Dios nos dio voluntad para elegir su diseño.
-- La raíz de todo pecado es rechazar a Dios y su plan; la consecuencia es separación, muerte.
-- La redención no fue un parche: es la parte «B» del plan, anunciada desde Génesis 3 y cumplida en la cruz.
-- La restauración devolverá toda la creación al diseño original de Dios.
-- Nuestro propósito es ser embajadores de Cristo; una cuchara sirve para la sopa, no para el espagueti.
 
 ---
 
