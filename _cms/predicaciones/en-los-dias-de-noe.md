@@ -1,0 +1,167 @@
+---
+title: En los días de Noé
+seo_title: ''
+slug: en-los-dias-de-noe
+description: Fuimos creados por Dios dentro de esta realidad y no para vivir en una era de corrupción, sino en una era venidera, el reino de Dios.
+date: 2023-08
+series: En los días de Noé
+part: null
+tipo: Predicación
+campus: Campus Cumbres
+lugar: ''
+video: https://www.youtube.com/watch?v=ctBuW9GCg14
+video_title: En los días de Noé (Campus Cumbres) | Daniel Lira
+video_start: ''
+video_private: false
+canal: Convivencia Monterrey (@ConvivenciaMty)
+video_duration: 2379
+video_upload_date: '2023-08-13'
+manuscript: false
+combina: ''
+keywords:
+- días de Noé
+- días de Lot
+- Marcos 1
+- Génesis 6
+- Génesis 18
+- Lucas 17
+- reino de Dios
+- regreso de Jesús
+- 1 Pedro 1
+- evangelismo
+- era de la corrupción
+image: ''
+published_month: 2026-10
+published: true
+orden: 42
+id: ctBuW9GCg14
+---
+## El mensaje de Jesús
+
+Muchas gracias, pastor. Hoy no le presté el campus, por eso estoy acá yo. Muy bien, pues ya no me presento, ya hubo una gran presentación del pastor, espero que pues el mensaje lo dé el Espíritu Santo para poder llenar eso que el pastor habló, pero la verdad es que sí, mi esposa es la que hace todo, sin ella no funcionaría. Incluso este mensaje cuando ya lo tenía estaba incómodo y se lo platiqué y me lo arregló y ya, listo, vámonos. Entonces, si la ven a ella, es la que está embarazada allá afuera con una bebé, la pueden saludar también. Pero bueno, voy a ir directo al mensaje para utilizar el tiempo adecuado, generalmente doy clases de dos horas, entonces hoy va a durar 35 minutos, no se preocupen, esperemos.
+
+Pero el mensaje de hoy lo titulé En los días de Noé, y aunque su nombre lo dice, no vamos a hablar de Noé, el mensaje se trata de Jesús. Se trata de Jesús y lo que Él vino a la tierra a decir, el mensaje que Él vino a dar y la razón por la que caminó aquí. Ahora conocemos su obra, conocemos que Él vino para morir por nuestros pecados, derramar su sangre completa, resucitar y llevarnos a esta vida eterna. Sin embargo, tenía un mensaje que proclamó mientras estaba en la tierra, mientras caminaba entre nosotros, en su cuerpo, antes de morir en la cruz y de resucitar, Él proclamaba un mensaje.
+
+¿Qué es lo que vino Jesús a decir? ¿Qué es lo que vino a revelarnos? Habiendo revelado la mayoría de lo que tenemos y conocemos como Biblia a través de sus profetas. Él tomó carne porque tenía un mensaje para darnos, sí, la obra en la cruz, pero tenía un mensaje y este mensaje sólo lo podía dar Él. Y es muy claro, es muy simple, pero es muy radical cuando podemos entender la magnitud de lo que está diciendo. Tú lo puedes encontrar en Marcos capítulo 1. Recién viene Jesús del desierto, recién viene de ser tentado por el diablo y vencer al diablo. Y lo vence y va regresando y lo primero que hace es llegar a Galilea a predicar y predica este mensaje.
+
+El tiempo se ha cumplido, decía, el reino de Dios se ha acercado. Arrepiéntanse y crean en el Evangelio. Este fue el mensaje de Jesús durante todo su ministerio. Durante todo lo que hizo, Él proclamaba la venida del reino de Dios. Y lo decía contundentemente, el reino se acerca, el tiempo ya se cumplió. Ahora, cuando hablamos de esto, tenemos que entender que en el principio Dios creó los cielos y la tierra. Él creó todo y lo creó para estar entre nosotros, para estar con el hombre y con la mujer, para caminar entre nosotros y disfrutar de su creación. Sin embargo, el hombre decide alejarse de Dios y al alejarse de Dios se corrompe su existencia.
+
+## Dos eras
+
+Se corrompe su existencia y da inicio a algo que llamo la era de la corrupción, Da inicio a esta corrupción, a la era de la corrupción. Pero, en ese momento, Dios mismo promete a un Redentor. Promete a aquel que vendrá a aplastar la cabeza de la serpiente para restaurarlo todo, para redimirlo todo. Hablando en términos bíblicos, hablando en perspectiva de Dios y en perspectiva eterna. Solo existen dos eras, dos tiempos: la era de la corrupción y la era de la restauración. No existe más. Sí, obviamente, conocemos nosotros y dividimos la historia de la humanidad en otros tiempos.
+
+Pero, ante los ojos de Dios, solo hay dos. La era en la que los hombres se alejaron de Él y la era en la que por fin estarán de regreso con Él. Porque ese es su anhelo más grande. Regresar con su creación y que su creación regrese con Él voluntariamente. Así que Dios promete a este Redentor que pondrá fin a toda la corrupción y restaurará todo estableciendo su reino. Y todo aquel que sea fiel a este Rey que viene, que tenga fe en el Rey que viene, va a participar del reino de Dios. Pero todo aquel que lo rechace vivirá fuera de este reino por siempre, por la eternidad, alejado de Dios por siempre.
+
+Nuestra vida no tiene sentido fuera de esta realidad. Nuestra existencia no tiene propósito, no tiene destino fuera de esta realidad. Fuimos creados por Dios dentro de esta realidad y no para vivir en una era de corrupción, sino en una era venidera, el reino de Dios. Y la va a marcar la venida del Mesías, la segunda venida de Jesús. En la primera, Él dice, el tiempo se ha cumplido. Como cuando le dice a Noé, el tiempo se ha cumplido. Va a venir un diluvio, el diluvio está cerca, el diluvio se ha acercado. Y detrás del diluvio hay una restauración de la tierra. La era de la corrupción pasará y vendrá un nuevo cielo, una nueva tierra, una nueva creación en la que por fin regresaremos con nuestro Dios.
+
+Y la manera de entrar es abandonando nuestra forma de vivir, nuestra vieja forma de vivir y creyendo en Dios y su Evangelio. ¿Cuál es el Evangelio? ¿Cuál es la buena noticia? Que todos son bienvenidos a este reino. Ahora, esta primera figura, la primera figura de lo que está por venir del regreso de Jesús son los días de Noé. En los días de Noé, se los quiero leer para ponerlos en contexto. Dice Génesis 6. En los días de Noé, en la era de la corrupción, esperando el diluvio para una nueva tierra.
+
+## Un arca a la vista de todos
+
+Ahora, imaginen estos días. Imaginen los días de Noé. Porque justo después de esto, Dios le dice, construye un arca. Construye un arca y vas a entrar tú y tu familia y vas a meter a todos estos animales. Y es un arca de como 150 metros. Si Dios te dijera hoy, construye un arca de 150 metros, ¿dónde la esconderías? Sería noticia nacional. Hay un loco construyendo un arca porque dice que viene un diluvio. Era público. A lo que voy es que el diluvio era algo de conocimiento público. No hay manera de esconderlo. No hay manera que no se corriera la voz de que había alguien construyendo un arca en medio de una tierra en la que nunca había llovido.
+
+La gente sabía que venía un diluvio. Y Noé estaba trabajando para construirlo. Ahora, en esta época, Dios dice que... todo hombre, toda la humanidad había sido corrupta. Todos eran malvados. Todo estaba lleno de violencia. Los hombres tomaban a las mujeres por fuerza. Los hombres se acostaban con hombres, las mujeres con mujeres, unos con otros. Se mataban simplemente porque sí. Ofrecían a sus bebés como sacrificio. Era toda una maldad increíble. Todo estaba corrupto. El nivel de maldad había llegado a tal punto que no podía dejar de venir el diluvio. Pero conociendo un poco el corazón de Dios y conociendo que Noé, la Biblia nos dice que Noé caminó todos los días con Dios, creo que él también conocía el corazón de Dios.
+
+Un corazón que no quiere que nadie se pierda. Yo creo que Noé hizo algo similar a lo que Abraham hizo cuando le anunció Dios la destrucción de Sodoma y Gomorra. Cuando Dios anuncia esta destrucción, Abraham va y se para entre Sodoma y Gomorra y Dios. Y le dice, si encuentro a cien personas dentro de Sodoma y Gomorra, que sean buenos, a tan solo cien personas de toda la población, ¿Desistirías de destruirla? Yo conozco y creo conocer al menos un poco del corazón de Dios y creo que enternecido, pero triste, sabiendo la realidad, le decía a Abraham, ok, si encuentras a cien personas, yo voy a desistir de destruirlo.
+
+Pero Abraham dijo, a lo mejor cien son muchas. Dijo, no sé si vaya a haber cien. Dios, vamos a negociarle: Cincuenta personas. Si voy a Sodoma y Gomorra y encuentro a cincuenta personas que sean buenas, que sean conforme a tu corazón, que no se hayan olvidado de ti, ¿Desistirías de destruir toda la ciudad? Y de nuevo Dios entristecido decía, adelante, ve y búscalos. Ve y busca. Y una vez más Abraham dice, diez. Diez personas. No hay cien, no hay cincuenta. Pero prometo que voy a ir a cada casa. Voy a tocar a cada puerta. Voy a proclamar que vas a destruir la ciudad. Y voy a encontrar a alguien que se arrepienta y diga, Señor, no destruyas Sodoma y Gomorra.
+
+## Como Abraham por Sodoma
+
+Y si encuentro a diez, Dios, por favor, si encuentro a diez, ¿Desistirías de destruirlo? Y una vez más Dios entristecido le dice, ve. Sin embargo, vemos la escena que cuando Lot le platica a sus yernos de que va a ser destruida la ciudad, ellos se burlan de él. Y la esposa, no creyendo, cuando iban de salida, voltea hacia atrás y vive el mismo destino que Sodoma y Gomorra, que son consumidos por completo. De la misma manera, creo que Noé se tardaba al construir el arca. Mientras Dios era paciente para traer el diluvio, él se tardaba, iba poco a poco para poder predicarle, para poder dar el mensaje del diluvio a todo aquel que se cruzaba por su camino.
+
+Y a él no le importó ser el loco, a él no le importó proclamar un mensaje que nadie entendía, él simplemente iba a decir, hay un diluvio que se acerca, el tiempo se cumplió, hay un diluvio que viene. Y si tú quieres permanecer, y si tú quieres participar de la nueva tierra que viene después del diluvio, yo puedo hablar con Dios, conozco a Dios, conozco su corazón y sé que te va a dar un pase de entrada. Sacamos un animal u otro, no importa, te meto ahí, pero tan solo te estoy diciendo que viene el diluvio y estoy construyendo un arca a la cual puedes ser bienvenido.
+
+Sin embargo, viene el diluvio y destruye a todos menos a la familia de Noé. La humanidad está corrupta, el tiempo se acerca, hay un arca, la construye Noé para que estés a salvo, para que vivas en la nueva creación. Este es el mensaje de Jesús, el tiempo se ha cumplido, estamos en los últimos tiempos, el tiempo se ha cumplido, se acerca el reino de Dios. De nuevo, Jesús no estaba diciendo que ya inició el reino de Dios, sino que se acerca el reino de Dios. Pero los fariseos le preguntaban, habiendo visto que sanaba enfermos, que predicaba con poder, que traía autoridad. Habiendo visto esto, los fariseos, los líderes de los fariseos, como siempre querían atrapar a Jesús y querían negarlo porque ellos querían seguir reinando sobre el pueblo.
+
+## «El reino de Dios está entre ustedes»
+
+Y le piden a Jesús siempre señales visibles. Cuando hablamos de señales visibles, no nada más es, bueno, cuál es la señal de tu regreso, es una prueba. Dame las fechas, pero dame las fechas a ver si cuadra. A ver, dime tu genealogía exacta, aunque ya la tenían. Querían más pruebas de las que ya se habían dado. Por lo tanto, le preguntan a Jesús, habiendo preguntado esto, los fariseos, de cuándo vendría el reino, él les responde, el reino de Dios no viene con señales visibles. Tampoco dirán, miren aquí está o ahí está, porque el reino de Dios está entre ustedes. En esencia, los fariseos que tenían la revelación de los profetas viendo al Mesías, le preguntaban, ¿Cuándo vendrá el Mesías?
+
+Y Jesús les decía, les he dicho que el reino de Dios ya se está anunciando, ya fue anunciado, el tiempo se ha cumplido y se está acercando violentamente. Dejen de buscarlo, dejen de perder el tiempo y comiencen a proclamar el reino de los cielos. Comiencen a proclamar al mundo que el fin se está acercando rápidamente. Para que todos puedan arrepentirse, para que todos puedan volver a Dios, para que todos sean bienvenidos, porque está abierta el arca para todos.
+
+Lo más interesante para mí es que justo después de esto, Jesús sigue hablando y menciona los días de Noé y los días de Lot. Pero cuando lo hace, no menciona la expresión de pecado, de la inmoralidad que había, no menciona la violencia de nuevo, no menciona las muertes, no menciona nada de esto. Esto es lo que dice Jesús: tal como ocurrió en los días de Noé, así también será en los días del Hijo del Hombre.
+
+## Comían, bebían, compraban y construían
+
+Comían, bebían, se casaban y se daban en casamiento. Hasta el día en que Noé entró al arca, vino el diluvio y los destruyó a todos. Lo que está diciendo aquí no es que se emborrachaban, no es que se la pasaban de fiesta en fiesta. Simplemente está diciendo, vivían su vida. Se les predicó que venía un diluvio y que había un arca, que había una nueva tierra por venir. Sin embargo, continuaron en sus comidas, bebidas, platicando, casándose, preocupándose más si tendré una familia o no, si me voy a casar o no me voy a casar, cuando se acercaba un diluvio que iba a arrasar con todo.
+
+Fue lo mismo que ocurrió en los días de Lot. Ellos comían y bebían, compraban, esto pega más fuerte porque es Monterrey, compraban, vendían, plantaban, construían, emprendían, hacían negocios, conseguían trabajos, crecían en las empresas, estudiaban en las universidades. Pero el día que Lot salió de Sodoma, llovió fuego y azufre del cielo y los destruyó a todos. Lo mismo acontecerá el día en el que el Hijo del Hombre sea revelado, el día en el que Jesús regrese.
+
+La expresión de pecado sí, llegó a ser la inmoralidad de todo tipo. Pero la profundidad de este pecado era que sabiendo que se acercaba el diluvio, sabiendo que se acercaba la destrucción y una nueva tierra, se entregaron día a día a una vida sin sentido de solo existir de lunes a viernes, de nueve a cinco. Generar dinero, riqueza, trabajo, familia, nada de esto es malo, esto es bueno. Sin embargo, a la luz de la venida del Señor, nuestra vida no debe de ser solamente para trabajar.
+
+## La revelación en un cajón
+
+Nuestra vida no debe de ser solamente para existir y para sobrevivir y estar pensando en que si me voy a casar o no, si voy a tener hijos o no, que si el tercero o el cuarto, que si me cambio de trabajo o no, que si subo y soy director, que si emprendo o no emprendo. Cuando nos entregamos, día tras día, a una vida sin sentido, el pecado y la expresión del pecado sigue. Es solamente un síntoma de que hay algo, que nos hemos olvidado de Dios y de su regreso. Y, me temo, iglesia, que estamos viviendo en los tiempos de Noé, que estamos viviendo en los tiempos de Lot, habiendo recibido la revelación completa de Génesis a Apocalipsis, algo que no tuvieron los profetas, algo que no tuvo Noé ni Abraham, algo que no tuvo Jeremías ni Daniel, algo que no tuvo nadie, que nosotros hoy tenemos en nuestras manos. La revelación completa de la existencia de principio a fin, de creación a nueva creación, de corrupción a restauración. Habiendo tenido la palabra de Dios, habiendo visto al Mesías cara a cara, habiendo conocido su resurrección y su mensaje de su regreso, teniendo la palabra de Dios, ante la cual las tormentas obedecen, los cielos y la tierra, las montañas se mueven y la creación tiembla por completo. La hemos guardado en un cajón para que se empolve, reduciéndola y diluyéndola a un devocional diario, a un domingo, para recibir la bendición de Dios, a una oración de cajero automático, para que mi negocio prospere y mi familia sea bendecida, a rituales sin sentido. Porque hemos olvidado a Dios, hemos olvidado la magnitud y la implicación del regreso de Jesús.
+
+Y por lo tanto, sin esta realidad, nuestra vida se convierte día tras día, sin sentido, sin propósito y sin existencia. Sí, conocemos a Dios y sí, tal vez tú ya tienes tu ticket para el arca, y tal vez cuando Él regrese tú ya vas a participar en el arca y vas a permanecer en el reino de Dios porque estás aquí. Sin embargo, ante la luz del regreso de Jesús, creo que vivimos en los días de la iglesia, que sí, vivimos en la era de la corrupción, y no porque la iglesia sea corrupta. No es porque la iglesia sea corrupta, sino porque vivimos en la era de la corrupción.
+
+No hay otra. Desde Génesis 3 hasta Apocalipsis 19, todo eso es la era de la corrupción, pero tú y yo vivimos ahí. Tú y yo tenemos el mensaje, tú y yo tenemos la verdad, la realidad de lo que va a suceder y de la venida del Señor. Iglesia, se acerca el día del Señor se acerca violentamente. Se acerca el día de Jesús, en donde todo será hecho nuevo, en donde toda vida, como la conocemos actualmente, terminará y será creada de nuevo. No podemos darnos el lujo de vivir en esta era de corrupción, cuando el reino de Dios se acerca fuerte y rápidamente.
+
+## ¿Estamos listos?
+
+Yo creo que Jesús regresa en esta generación. No estoy diciendo que regresa mañana, pero fuertemente creo que las cosas se están preparando para el regreso de Jesús. No lo digo de una manera amarillista, para que vayan buscando videos de YouTube como los fariseos, buscando estas señales visibles. Ese no es el objetivo, ese no es el punto. El punto es que vivamos a la luz del regreso de Jesús. Si Jesús regresara en los próximos diez años, ¿Estamos listos para esto? ¿Hemos predicado el Evangelio?
+
+¿Hemos predicado el Evangelio? ¿Hay alguien en tu trabajo que conoces, que el día de la venida de Jesús no estará en esta arca, y le has proclamado el mensaje, le has proclamado el Evangelio, de que es bienvenido a este lugar? Porque sí, aunque vivimos en la era de la corrupción, también creo que Dios está levantando la iglesia. También creo que Dios está escogiendo a sus hijos para proclamar este mensaje, para llevar al mundo el mensaje del Evangelio, el mensaje de su regreso, en el que todos son bienvenidos. Cuando lea el siguiente versículo, quiero que imagines que es para ti.
+
+## Escogidos en medio de estos días
+
+Y Jesús les dice, vengan conmigo y yo haré que ustedes sean pescadores de hombres. Y dejando al instante las redes, ellos lo siguieron. Hemos sido llamados, pero creo que hemos perdido el temor de Dios. La respuesta reverente a su gloria, la respuesta con temor ante esta realidad, creo que hemos perdido un poco de esto. Y vivimos hoy en una sociedad en la que la expresión del pecado ha llegado casi, si no es que ha igualado los días de Noé y los días de Lot. En donde hombre se acuesta con hombre, mujer con mujer. En el que la identidad es tan libre que cada quien puede escoger lo que quiera, rechazando la palabra de Dios.
+
+En la que a matar a un bebé en el vientre de su madre se le considera como libertad. En el que empezamos a proclamar la palabra de Dios y ahora la gente se burla de nosotros. En el que empezamos a proclamar las verdades y la gente las ve como mentiras. Hemos llegado a una expresión como la de los días de Noé y en los días de Lot. Pero Dios te ha escogido a ti en medio de estos días. En medio de los días que apuntan a su regreso. En medio de esta última temporada, antes de la venida de Jesús. Antes del nuevo diluvio. Antes de la restauración de todas las cosas.
+
+Dios te ha escogido a ti. Se acerca el día del diluvio. Se acerca el día del Señor. Y todos son bienvenidos al arca. Todos son bienvenidos a su reino. Tú has sido escogido para llevar el mensaje a toda tribu, a toda lengua, a toda nación, a toda empresa, a todo trabajo, a toda universidad, a toda familia, a todos lados. Tu vida no es tuya. Es de Cristo. Pedro lo entendía completamente. Y los animo a que lean en sus casas Primera de Pedro.
+
+## El lugar donde ya estás
+
+Pero se acerca este día. Y Dios nos ha escogido. Dios nos ha comprado. Ahora este mensaje está hecho para ser radical. Pero no les estoy diciendo que dejen sus trabajos. No les estoy diciendo que abandones a tu familia y te vayas de misionero. No les estoy diciendo que renuncies a tu empresa y la dejes ahí. No estoy diciendo eso. Este no es el mensaje para los días de la iglesia. Creo que el 1 % de aquí, tal vez 1, 2, 3, 5 personas de todo este lugar, estén llamadas a dejarlo todo y entrar al pastorado, y ser misioneros y dedicarse a la iglesia y al ministerio.
+
+Pero quiero decirte que el 100 % de los que están sentados en este lugar han sido escogidos por Dios para llevar el mensaje del evangelio al lugar en donde ya estás. La diferencia es que cuando tú ves la venida del Señor, cuando tú ves la magnitud de este mensaje, tu trabajo no es igual. Ahora trabajas como si trabajaras para Cristo. Y Cristo tiene un solo trabajo. Arrebatar almas del infierno. Arrebatar almas del reino del diablo para llevarlas al reino de Dios eternamente. Ese es nuestro único trabajo. Si tú vas a tu empresa el lunes, tu único trabajo en la empresa es arrebatar almas del infierno.
+
+Que ni una sola persona, que ni una sola alma de toda tu empresa, de toda tu universidad, de toda tu familia, se quede sin escuchar el mensaje del evangelio. Ese es tu único propósito en la vida, tu única misión en esta era de corrupción: que nadie se quede sin escuchar la buena noticia. Sin embargo, sabiendo el mensaje y la revelación completa, vamos a nuestros trabajos. Nos sentamos en una computadora. Llenamos nuestro Excel. Cerramos la computadora. Y nos regresamos a la casa a ser cristianos.
+
+Pero la gente que está en el cubículo de al lado, las personas que están en el local de un lado de tu negocio, las personas que te atienden en el Oxxo, las personas que te atienden en el food truck, y si tú no sabes a qué me refiero, habla con Mauricio y pregúntale su testimonio de cómo llegó a Cristo. Todas las personas que se cruzan enfrente de ti merecen escuchar el evangelio, porque Cristo pagó su sangre para que la cosecha sea mucha.
+
+Tu trabajo cambia a la luz del mensaje del regreso de Jesús. Hemos diluido el mensaje del martirio. Hay un número de mártires en el cielo que dieron su vida por Cristo, incluyendo a todos los apóstoles, preguntándole a Jesús: ¿cuántos más? Y Jesús dice: faltan pocos. Faltan pocos. Faltan pocos que den su vida por mí. ¿Cuántos más, Señor? Y cada vez que alguien derrama su vida literalmente, su sangre por el evangelio, y muere por causa del evangelio, ellos celebran diciendo: uno más, Señor. ¿Cuántos faltan? Uno más. Y se alegran. Y se alegran. El día de hoy, a esta fecha, 2023, es el momento en el que más cristianos están muriendo por causa del evangelio que nunca antes en la historia de la humanidad. Nunca antes. Ni siquiera en la época de Hechos. Es el momento en el que más cristianos mueren por esto. A eso es a lo que hemos sido llamados a morir literalmente. No es figurativamente. No es a morir a mi rechazo. No es a morir a que se burlen de mí. Es a morir literalmente.
+
+## Los mártires y el llamado
+
+Pero te tengo una noticia: en Monterrey no te van a matar. Al menos no por causa del evangelio. Por lo tanto, sé agresivo. Seamos agresivos en la predicación del evangelio. Que nadie se quede sin escuchar el mensaje que Jesús vino a proclamar. ¿Qué pasa? Te corren del trabajo. Consigues otro. Y predicas el evangelio ahí. ¿Y qué pasa si a las mil personas de tu empresa ya les predicaste este mensaje? Tal vez es hora de cambiar de trabajo y predicarle a otras.
+
+¿Y qué si te corren y no consigues trabajo y terminas viviendo abajo de un puente? Le predicas a las personas que viven abajo del puente. Este es el mensaje radical de Jesús en el cual Pedro terminó en la cárcel. Pablo terminó en la cárcel. Juan terminó exiliado en una isla de viejito. Todos fueron martirizados porque creían en este mensaje. Pero tengo otra noticia. Si Jesús no quiere que estés predicando abajo del puente, Él te va a sostener en tu trabajo. Él te va a llevar a otro trabajo. Cuando tú te dedicas al trabajo de Jesús, Él se va a dedicar a cuidarte a ti y a ponerte en los lugares donde haya alguien con hambre de conocerlo.
+
+## Alguien está orando por ti
+
+Y que digas, Señor, he estado orando. ¿Sabes? Yo oré por cuatro años a un Dios que no conocía. Por cuatro años clamé y me iba a dormir llorando diciendo, Dios, si existes, revélate a mí en un sueño. Porque los cristianos dicen que sueñan. Los musulmanes dicen que sueñan contigo y creen en ti, y convierten su vida por completo y se entregan a Cristo. Los cristianos dicen que hablas. Pero no es hasta que un cristiano que obedece a Jesús es la oración contestada de mis oraciones a un Dios que no conozco, que puedo entregar mi vida a Él.
+
+En tu empresa hay personas, te lo puedo asegurar, que han estado orando y clamando a un Dios que no conocen, pero que tú conoces, que tú tienes aquí por completo, al cual podemos conocer profunda y verdaderamente para poder llevarlo a estas personas y decirles: este Dios te está buscando a ti. Este Dios abrió las puertas de su reino para que tú entres y no te pierdas, sino que tengas vida eterna. Hemos sido llamados y escogidos según el conocimiento eterno del Padre, por la santificación del Espíritu Santo para obedecer a Jesucristo. Hemos sido rociados por su sangre, comprados por el precio más caro, no con oro, no con plata, sino con la sangre del Cordero inmolado, el único que es digno, el único que está sentado a la diestra del Padre.
+
+Hemos sido comprados y elegidos para una resurrección de los muertos, una esperanza viva. Esa es nuestra fe. Es en donde hemos nacido de nuevo, esta esperanza de recibir una herencia suprema en la era venidera. No en la tierra en la era de corrupción, porque aunque tengas la familia más hermosa, es corrupta. Pero un día la verás en el cielo, en la tierra de nuevo, pero restaurada. Un día la verás restaurada y podrás tener a una familia sin corrupción. Lo más bello de este mundo es basura, cuando lo comparamos a la venida de Jesús y a lo que Él está preparando para nosotros.
+
+## Una estrategia
+
+Así como en los días de Noé, Dios levantó a Noé en medio de la maldad. Así como en los días de Lot, Dios levantó a Abraham en medio de la maldad. Así como en los días del exilio, Dios levantó a sus profetas en medio de la dificultad. Todos proclamaban un mismo mensaje. Viene el día del Señor. Viene el día de Jesús. Viene el día en el que Él regresará a restaurarlo todo. De esa misma manera, iglesia, creo que hoy estamos en los días de la iglesia. Y está levantando a personas, no pastores, no predicadores, no ungidos del Señor, no profetas, no maestros. Está levantando a individuos que se llaman iglesia, no las cuatro paredes, sino a cada uno de ustedes, para levantarse y ir a estos lugares.
+
+Hacer una estrategia. Literalmente sentarte y hacer una estrategia. Le voy a llevar su café favorito a mi jefe todos los días. Aunque lo odio y me hace la vida de cuadritos. Todos los días le voy a llevar su café, voy a llegar temprano, voy a hacer el trabajo que él odia y lo voy a hacer excelente. Porque un día me va a preguntar, ¿por qué lo haces? ¿Por qué haces todo esto? ¿Por qué haces todo esto si te he tratado mal?
+
+Porque Cristo me dio un regalo más grande. Cristo vertió su sangre cuando yo no la merecía. Cristo se dio por completo en la cruz para salvarme de mis pecados y darme vida eterna. Y tengo una buena noticia. Lo hizo para ti también. Y quiere invitarte a este reino. Eres bienvenido a este reino eterno. Cristo ha pagado por tus pecados. Él lo ha hecho. Te he traído el café y he trabajado tan arduamente no porque quiera un ascenso, no porque quiera más dinero, sino porque quiero tu alma.
+
+Si alguien va a ir al infierno, más vale que pase sobre nosotros. Más vale que tenga que poner nuestro cuerpo como un obstáculo. Que hayan escuchado el evangelio. Que hayan escuchado la verdad. Que hayan escuchado el mensaje de Jesús. Y si tienen que pasar por nuestras vidas, más vale que pasen por nuestros cadáveres. Pero que no se quede ni una sola persona a la que pueda conocer sin escuchar el mensaje de Jesús. El mensaje incluido en esta palabra, por el cual nos dejó su Espíritu Santo para llenarnos de poder y sabiduría, para revelarnos. Que dice, no se preocupen por lo que dirán.
+
+## Esperanza, santidad y temor
+
+Simplemente abre tu boca. Abre tu boca. Y Él va a poner las palabras necesarias. Yo creo en una generación, iglesia, en esta generación de iglesia, que arrebata almas del reino de las tinieblas con violencia, y como nunca antes dispuesta a seguir a Cristo hasta la muerte, literalmente. La manera en la que hacemos esto, dice Pedro: preparen todo entendimiento para accionar. Preparen todo entendimiento para accionar. Tienen la revelación completa. Es nuestra responsabilidad entenderla. Es nuestra responsabilidad estudiarla. Es nuestra responsabilidad comernos este libro por completo. Y cuando no entendemos, ir a Dios y decirle: ayúdame porque no entiendo. Porque me estás preparando para hacer algo y no sé qué hacer.
+
+Pero hay tres cosas muy puntuales de las que Pedro habla en su primera carta. Número uno: pongan toda su esperanza solamente en la gracia manifiesta en el regreso de Jesús. Toda esperanza que tengan en su vida sea puesta no en si vas a casarte, no en si tendrás ese trabajo, no en si tu empresa prosperará. Es en que un día Jesús va a regresar. Y va a secar toda lágrima. Va a ponerle fin a toda corrupción. Y nos entregará una tierra y un cielo nuevo y restaurado en donde Él habitará con nosotros por siempre.
+
+No busquen sus deseos. Sino que sean santos como Él es santo. Separémonos de toda corrupción. Somos humanos corruptos. Pero hemos sido nacidos de nuevo. Comprados por Él. El Espíritu Santo habita en ti. Sí, aunque tengas deseos que sean corruptos, tú puedes alejarte de ellos y decir esto no da gloria y alabanza a Dios. Por lo tanto, me alejaré porque Cristo es santo. Y por último, dice: si alguna vez han proclamado el nombre de Dios, el nombre del Padre, y lo han llamado su Padre,
+
+si han proclamado el nombre que está sobre todo nombre, si han proclamado a Jesús como su Dios y como su Rey, vivan con temor en este tiempo de peregrinaje. Es decir, esta casa no es tu casa. Esta vida no es tu vida. Viviremos en una casa que Dios está preparando. En una casa restaurada, en un lugar físico restaurado, en el cual Dios está preparando un banquete de bodas. Y en ese banquete de bodas hay una silla con tu nombre.
+
+Y al lado de esa silla hay un montón de sillas que aún no tienen nombre, que se te han asignado para ir y llenar este lugar, llenar este banquete para que en el día de la boda, en el día del regreso de Jesús, tú puedas, animado, celebrar con el Cordero las bodas del Cordero con su iglesia. Y decir: derramé mi vida para una sola cosa. Porque considero todo como basura a fin de ser hallado en Cristo. Y en el supremo llamamiento de Dios.
+
+Han sido comprados con el precio más costoso. El tiempo ha llegado, el reino se acerca. Y lo que no es moda, lo que no es farándula, lo que no cambiará nunca por más que las cosas cambien y la dificultad venga, por más que pase lo que tenga que pasar, lo único que no cambia es que Jesús va a regresar por su amada iglesia. Va a regresar por su pueblo, el cual compró con su sangre, y su iglesia va a estar lista. Va a estar preparada. Va a haber entendido la palabra de Dios. Y vamos a haber proclamado su mensaje a toda la tierra. Has sido escogido para esta misión.
+
+Has sido escogido para que tu identidad sea firme, sabiendo que eres un peregrino en esta tierra. Pero que sí viene el día, que sí viene el día, y el día se acerca en el que Jesús regresará, todo lo que conocemos será hecho nuevo. Y aquel que ponga su fidelidad en el rey, que tenga fe en Jesús, vivirá por siempre en el reino de Dios. Y queda en nosotros la misión de que nadie tenga que perderse, sino que todos tengan vida eterna.
+
+Quiero invitarte, iglesia, que en estos siguientes minutos, si tú quieres quedarte sentado, lo puedes hacer. Si tú quieres arrodillarte, lo puedes hacer. Si tú quieres pararte a adorarlo, lo puedes hacer. Pero que medites en lo que esto significa para ti. Que prepares todo entendimiento para accionar. Que lo que has escuchado hoy. No se quede en un mensaje de domingo. Sino que hagas una estrategia para arrebatar almas del reino del diablo. Y podamos entregárselas a Dios como coronas ante sus pies. Porque Él merece toda honra y toda gloria.

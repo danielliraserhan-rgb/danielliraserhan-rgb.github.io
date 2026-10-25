@@ -1,0 +1,104 @@
+---
+title: ¿Quién es Pablo? De Génesis a la cárcel en Roma
+seo_title: ''
+slug: cartas-desde-la-carcel-quien-es-pablo
+description: Él la estudiaba diligentemente y se dedicaba todo el tiempo a las Escrituras.
+date: 2023-10
+series: Cartas de Pablo desde la cárcel
+part: 2
+tipo: Clase
+campus: Intensivo Convivencia en línea
+lugar: ''
+video: https://www.youtube.com/watch?v=LM26KPEhvP8
+video_title: Cartas de Pablo desde la cárcel — 02 - ¿Quién es Pablo?
+video_start: ''
+video_private: false
+canal: Daniel Lira (@danielliraserhan)
+video_duration: null
+video_upload_date: ''
+manuscript: false
+combina: ''
+keywords:
+- apóstol Pablo
+- Saulo
+- fariseo
+- Génesis 3:15
+- Babel
+- Abraham
+- naciones
+- camino a Damasco
+- viajes misioneros
+- Éfeso
+- apelación al César
+- Hechos
+image: ''
+published_month: 2026-10
+published: true
+orden: 59
+id: LM26KPEhvP8
+---
+## Comenzar con la historia de Pablo
+
+Bienvenidos a nuestra segunda sesión, la primera fue de introducción acerca de cómo íbamos a estudiar esto y como les mencionaba en la sesión vamos a iniciar con la historia de Pablo. ¿Quién es Pablo? Es una pregunta que aunque parece ser sencilla puede llegar a confundirnos si no entendemos de dónde viene y cómo es que entra este celo tan fuerte. Y si yo pudiera resumir quién es Pablo en una sola frase yo diría que Pablo es un judío que entendió su propósito y misión real para el cual fue creado él y no sólo él sino la nación de Israel y todos los judíos y todo el pueblo de Israel y cómo fue creado desde el inicio.
+
+Y es que al entender esto y al entender que Jesús era el que había sido profetizado desde el inicio su vida cambió. Así que, ¿quién es Pablo? En resumen, Pablo es una persona judía que había entendido cuál era su propósito y que al conocer al Mesías dio su vida por él. Ahora, ¿cómo llegó a esto? Él no era nada más un fariseo, como lo podemos conocer, sino él era un erudito. Él era un sabio. Él era lo que podríamos llamar un prodigio, un estudioso de la ley, un estudioso de la ley apasionado y ferviente por él, y una de las cosas apasionadas por las que tenía era la palabra de Dios y la fidelidad a ella.
+
+En ese momento lo único que tenían era la Biblia judía o lo que llamamos nosotros Antiguo Testamento. Él la estudiaba diligentemente y se dedicaba todo el tiempo a las Escrituras. Iba creciendo en esta rama de los fariseos ampliamente, inclusive ante la posibilidad o iniciando a ser miembro del Sanedrín, que eran quienes gobernaban incluso todas estos diferentes aspectos de la religión judía en su momento. Entonces Pablo no era solamente un joven que un día tuvo un encuentro con Jesús, sino que él ya venía cargado de un estudio, él ya venía cargado de tradiciones y principalmente los fariseos, ellos buscaban el regreso, o bueno no el regreso, sino la venida de su Mesías, que había sido profetizado desde Génesis 3:15.
+
+Y si no te sabes bien la historia te la platico rápido o puedes de nuevo entrar a nuestra clase de panorama de Antiguo Testamento. Pero en Génesis 3:15 es en donde el hombre y la mujer caen, toman de este fruto que no debieron haber tomado, tratando de decir que podían vivir separados de Dios. Y es la primera vez que vemos una separación entre Dios y la humanidad, Dios y su creación, a la que había creado para estar junto con ellos. Y a través de esto Dios mismo le promete a Adán y a Eva que vendría una semilla, una simiente, un hijo, que vendría y aplastaría la cabeza de la serpiente y al hacerlo iba a redimir y restaurar esta relación con Dios.
+
+## La promesa de la semilla
+
+Acto siguiente, tienen a dos hijos y estos dos hijos eran su esperanza. Ellos creían que ellos iban a ser esta simiente que vendría a regresarlos, que aplastarían a la serpiente, sin embargo, estos dos chocan y uno mata al otro. Y es la primera vez que vemos cómo se separan dos humanos. Ahora se había roto esta relación con Dios y se había roto esta relación entre hermanos. Y sobre esta base comienza la humanidad y comienza a ser cada vez más perversa y cada vez más alejada de Dios, cada vez más buscando un camino a la vida eterna o un camino en la vida humana separados de Dios.
+
+Y ahí nos topamos con esta gran torre que hacen, la torre de Babel, en la que toda la humanidad se pone de acuerdo para construir una gran torre. ¿Para qué? Para ser como Dios. Para llegar a las alturas y ser como Dios. Lo mismo que estaba pasando en Génesis 3:15, ahora se repetía con la humanidad entera. Y Dios en un acto de misericordia, sabiendo que el diseño real es una relación estrecha y unida con Jesús, con Dios, con el Padre, con el Espíritu Santo. Esta relación, esto era lo que él había diseñado. Sabiendo que esta torre no iba a ser ni lo más cercano al diseño real, decide separar a las naciones.
+
+Les da 70 idiomas y separa a 70 naciones para que ellos no pudieran continuar en estos actos que seguían siendo corruptos. Y que lo único que iban a lograr era más separación con Dios y más separación entre ellos. Pero a partir de ahí, de estas mismas naciones, Dios toma a un hombre. A este hombre lo conocemos como Abraham. Y Abraham le promete que de su descendencia vendrá esta semilla, esta simiente, y que hará de su descendencia un pueblo, una nación que iba a santificar, que iba a separar. Y al separarlo y santificarla, les da un propósito. Y esto es lo que entendió Pablo. Escucha muy bien esto.
+
+El propósito por el cual Dios escogió a Abraham. El propósito por el cual Dios creó a la nación de Israel. Lo hizo solamente para que todas las demás naciones fueran benditas. Que fueran bendecidas y pudieran regresar a él. El plan de redención de Dios, de volver a reconciliar al hombre con Dios. Y reconciliar a la humanidad consigo mismo, a los hermanos consigo mismos. Era necesario, o vio necesario crear una nación, que hoy conocemos como los judíos.
+
+## Abraham y las naciones
+
+Para que ellos pudieran bendecir a todas las naciones. Dios no se olvidó de estas 70 naciones, sino que creó a una. Escogió a una y no porque fuera mejor. No porque Abraham tuviera algo especial, sino porque él así lo diseñó. Y al diseñarlo así, él toma a Abraham, crea una nación. Le da una serie de instrucciones con el propósito de que todos pudiéramos regresar a Dios. En el camino tal vez esto se perdió. En algún momento esto se habrá perdido. Y se enfocaron más en las tradiciones y en una separación de las naciones. En vez de ir a bendecirlas. Tal vez algo así sucedió. Sin embargo, el propósito original de Dios.
+
+Era que los judíos, que la nación de Israel. El pueblo y la descendencia de Abraham pudieran recuperar lo que se había perdido. Reconciliar a la humanidad consigo mismo y reconciliar a la humanidad con Dios. Y esto es lo que Pablo entendió al momento de tener su encuentro con Cristo. Es importante conocer el propósito de nuestra creación. Porque cuando lo conocemos podemos dedicarnos completamente a ella. Podemos correr completamente a ella. Podemos tener una meta fija y podemos correr la carrera sin miedo y con fe. Con la certeza de saber que para eso fui creado. Y ahí encontrar deleite. Y ahí entonces los demás podrán ser bendecidos.
+
+Así que Pablo crece en esta tradición farisea. Estudia en esta tradición farisea. Y va creciendo en rango en esta tradición farisea. Incluso cuando llega Jesús y hace su ministerio. Muere, resucita y asciende. Se empieza a crear la iglesia. Y dentro de esta iglesia, Pablo está presente en el primer momento que un cristiano, llamándolo así, un seguidor del mensaje de Jesús, muere por la causa de Jesús. Y este es Esteban. Y este es importante. De nuevo estamos hablando de la historia de Pablo. Y de cómo él llegó a donde llegó. Y cómo llegó a la cárcel. Pero primero tenemos que entender cómo llegó a Cristo. Cómo llegó a entender que el Mesías que había sido profetizado en Génesis 3:15.
+
+Era ese mismo Mesías que había venido a la tierra. Que había muerto. Que había resucitado. Y Esteban es uno de los momentos que yo creo que catalizó su entrega a Jesús. Le podríamos llamar conversión. Pero realmente él ya conocía la historia. Él no tuvo que convertirse de una cosa a otra. Sino que solamente sus ojos fueron abiertos de que Jesús era el Mesías. De que aquel que él perseguía era ahora a quien iba a seguir. Y Esteban, al ser cuestionado por los fariseos, por los judíos religiosos, por los líderes religiosos específicamente, él se para y declara el Evangelio. Les da una cátedra pasando por Moisés, pasando por los escritos, pasando por los profetas.
+
+## Pablo declara el evangelio
+
+Empieza a hablar de cómo todo había sido profetizado. Todo había sido llevado. Y que Jesús era el cumplimiento de eso. Que Jesús era aquel profetizado en Génesis 3:15. Que era la descendencia que había sido prometida de Abraham. Que era el rey que iba a reinar por siempre. Que se le había hablado al rey David. Al hacer esto, los fariseos, teniendo miedo de que podían perder su poder, apedrean a Esteban. Y Pablo estuvo ahí observándolo todo. Sin embargo, esto a él le creó un celo mayor por su propia religión. Y por sus propias tradiciones. Y de ahí en adelante, él toma una carta y pide permiso para ir a matar a los seguidores de Cristo.
+
+Y es así como con esta carta, con este permiso que se le ha entregado de ir a detener este... o a los seguidores de Cristo... este evangelio, que le llamaban, el camino, el mensaje de detener esto que se estaba propagando, que era tan peligroso para ellos, que en el camino, en Damasco, se le aparece Jesús y le dice, Pablo, Pablo, ¿por qué tú me persigues? Ahora, obviamente, en este momento no se llamaba Pablo, y lo importante aquí es que Pablo era tanto judío como ciudadano de Roma, y entonces él tenía estos dos nombres. Así que le dice, Saulo, Saulo, que era su nombre judío, Saulo, Saulo, ¿por qué me estás persiguiendo?
+
+Que era ciego al instante y de ahí en adelante se embarca en un camino que duró varios años y varios años probablemente de soledad, en los que se habla de que fue a Arabia. Tal vez pasó por algunos lugares históricos, tal vez fue a conocer donde estuvo Moisés, no sé. Sin embargo, en este tiempo estuvo con Jesús y recibió una administración de Jesús y recibió enseñanza de Jesús. Y ahí él fue convencido de que Jesús era el Mesías, de que Jesús era aquel que había sido profetizado desde el inicio, que él vendría a aplastar la cabeza de la serpiente. Y al hacer esto, él recordó que la razón por la que existían los judíos era una sola: es ir a bendecir a las naciones.
+
+## De Jerusalén a los viajes misioneros
+
+Y es de ahí de donde nace este corazón ardiente de Pablo, de ir a donde nadie más ha ido, de ir a todo el mundo, de ir y predicar el Evangelio, las buenas noticias de que Jesús había venido a todo el mundo. Así que al regresar a Jerusalén, y juntarse con los discípulos y los apóstoles, se empiezan a embarcar en una serie de viajes, y Pablo va a tener tres diferentes viajes misioneros. Nos vamos a hablar de estos tres diferentes viajes misioneros, pero todos los viajes, en todos los viajes que Pablo hace, él va siempre primero al judío. Tú te preguntarás, ¿por qué? Porque si él sabía que su propósito era ir a las naciones, ir a recuperar a las naciones, bendecirlas, predicarles que el reino de los cielos, que los judíos conocían tanto, el reino de Dios estaba cerca, y que ahora, no solo estaba cerca, sino que estaba disponible, y era accesible para todos, judíos y gentiles, griegos y hebreos por igual. Su trabajo era predicarles a las naciones. ¿Por qué entonces iba primero al judío? Por la importancia, de nuevo, de que entendamos cuál es el propósito de nuestra creación. Él sabía que si iba primero al judío, y el judío aceptaba al Mesías, él se iba a multiplicar. Ya no sería solamente Pablo, ya no sería solamente él quien iría a las naciones, sino que los mismos judíos seguirían multiplicándose. Y principalmente la iglesia de Hechos eran judíos, eran pueblos judíos, eran personas judías, que entendiendo quién era Jesús, entregaron su vida a ella, y de ahí empieza a propagarse el evangelio.
+
+Sin embargo, había un rechazo más fuerte con los judíos, así que siempre que llegaba a los judíos, una gran parte lo rechazaba, un pequeño remanente aceptaba el mensaje, y juntos iban a los gentiles, juntos iban y esparcían este mensaje. Entonces, los tres viajes misioneros de Pablo. El primer viaje misionero no lo hace solo, realmente él va acompañando a Bernabé. Bernabé decide ir a un viaje a compartir el evangelio, y él se le añade, él se le dice, yo voy contigo, vamos, vamos. Y estos viajes, si tú tienes tu Biblia, probablemente en la parte de atrás tengas unos mapas, y si no, vamos a pasar los mapas aquí en pantalla.
+
+Pero si tú tienes tu Biblia, puedes abrirlo a donde dice los viajes misioneros de Pablo. Y en estos viajes misioneros de Pablo, tú vas a ver muchas diferentes colores, muchos puntitos rojos, muchas flechitas. Mi objetivo es que puedas entender este mapa, y en general es que este mapa son tres viajes misioneros. Y estos tres viajes misioneros tienen un propósito de ir más allá cada vez. El primer viaje llega a una región, el segundo viaje amplía la región, el tercer viaje amplía aún más la región. Y después de eso regresa a Jerusalén, donde es encarcelado, y termina en Roma. Entonces tiene tres viajes misioneros, los vamos a repasar rápidamente.
+
+## Primer viaje misionero
+
+El primer viaje misionero que va acompañando a Bernabé, inicia en Antioquía, en donde él vivía. Y de ahí pasan de Antioquía, pasan a Chipre, de ahí a Perga, y luego a Listra y Derbe. Aquí, en este viaje, cuando llegan a Listra y Derbe, es la escena famosa en la que apedrean a Pablo. Llegan a Antioquía, de Antioquía pasan a Chipre, de Chipre a Perga, y luego llegan a Listra y Derbe. Y cuando llegan a esta región, es esta escena en donde sana a un paralítico. Pablo y Bernabé sanan y hacen milagros, y un paralítico empieza a caminar, y el pueblo tratan de hacer a ellos dos de unos dioses.
+
+Recuerden que predominantemente, la cultura griega ya se había esparcido en este lugar. Entonces, tratan de hacerlo uno o como un dios. Y ellos, al rechazarlo, al detenerse, los apedrean casi hasta la muerte. Así que deciden regresar, y ahí concluye el primer viaje misionero. El segundo viaje misionero, hay un cierto altercado con Bernabé en donde Pablo dice, debemos de ir a donde nadie más ha ido, debemos de ir a donde nadie más ha hecho fundamento, debemos llevar el Evangelio a todo el mundo, debemos cumplir la misión de Dios. Así que ahora embarca él solo, en un nuevo viaje misionero, tratando de romper las fronteras y ir más allá.
+
+Inicia, digamos que inicia de nuevo en Listra, llega a Listra en donde Timoteo, un discípulo que sale de Listra, lo puedes conocer, lo empieza a acompañar. Y de ahí van y caminan hacia Galacia, y de ahí a Macedonia, en donde conocen a Lucas, y de ahí a Filipi, o Filipo, en donde los meten de nuevo a la cárcel, hay un terremoto, se abre la puerta y son liberados milagrosamente. Pasan a Tesalónica, a Berea, llegan a Atenas con esta predicación famosa del Dios desconocido, y de Atenas pasan a Corinto con de nuevo esta nueva predicación famosa, en donde no predica con algo lógico y razonal, sino a través del poder del Espíritu Santo, y termina regresando, pasando por un lugar que se llama Éfeso.
+
+No se queda, simplemente va de pasada, predica un poco el Evangelio y se regresa de nuevo a su ciudad. De ahí se queda un poco de tiempo entre Antioquía y Jerusalén, tiene una confrontación con Pedro acerca de los gentiles, que la puedes encontrar también en la Biblia, y de ahí se embarca en un nuevo viaje, en donde principalmente llega a Éfeso. Su objetivo era llegar a Éfeso para continuar lo que había hecho, en donde pasa tres meses predicando a los judíos y dos años más predicando a los gentiles. Y de nuevo pasa a través de Macedonia recorriendo un poco de las iglesias a las que ya había ido.
+
+## Éfeso y el camino a la cárcel
+
+Y en ese viaje recibe este llamado, esta impresión, esta comisión, de regresar a Jerusalén del Espíritu Santo, donde todo el mundo le dice: ahí solo te espera cárcel, ahí solo te espera dolor. Y él dice: yo tengo que regresar a Jerusalén. Así que regresando a Jerusalén es ahí en donde lo meten a prisión. No es en Roma, no es en algún otro lugar, sino que es en mismo Jerusalén, en donde lo toman y lo aprisionan. No le encuentra nada, tratan de hacerle juicio tras juicio, lo pasan de persona en persona, y no hay nada por qué enjuiciarlo, no hay nada por qué mantenerlo en la cárcel.
+
+Y justo cuando lo van a liberar, y esto es súper importante de nuevo, él entendía su misión, él entendía su propósito, que era ir a las naciones, y se encontró con la posibilidad de al ser él un ciudadano de Roma, del Imperio Romano, él podía ejercer un derecho de ir a juicio ante el César. Así que él, en vez de tomar su libertad, él decide apelar al César y decir, llévenme ante el César. Y él iba con un objetivo claro y directo, él quería predicarle el Evangelio al César, porque sabía que al predicarle al César, esto podía permearse en todo el Imperio Romano. Así que en este momento que él toma esto, lo toman y se lo llevan a Roma a ser encarcelado.
+
+Dura un tiempo este viaje porque tienen un accidente, se detienen, pero eventualmente llegan a Roma, y es ahí, es en este momento, en donde él escribe las cartas que estudiaremos en esta clase. Es ya habiendo pasado a través de tres viajes misioneros, y no tres viajes misioneros sencillos, sino tres viajes en donde fue a abrir camino, donde nadie había abierto un camino. Fue a predicar el Evangelio a los que nadie lo habían predicado, a los que probablemente lo iban a rechazar, y lo hicieron. Lo apedrearon, lo metieron a la cárcel, todo lo que le pudo haber pasado le sucedió. Y él iba firme y caminando, haciendo discípulos, plantando iglesias.
+
+Estas iglesias ya estaban creciendo, estas iglesias ya estaban teniendo problemas. Y de ahí inician estas cartas. En la siguiente sesión estaremos viendo cómo tiene esta estructura, inicia dando un reporte desde la cárcel, y iniciaremos con el primero de nuestros temas de teología. Y de teología veremos misión, y luego vida práctica. Acompáñame en la siguiente sesión.

@@ -1,0 +1,57 @@
+---
+title: 'Cartas desde la cárcel: teología, misión y vida práctica'
+seo_title: ''
+slug: cartas-desde-la-carcel-introduccion-teologia-mision-y-vida-practica
+description: Lo que estaremos viendo en esta clase es cuatro diferentes cartas que escribe Pablo en un mismo momento.
+date: 2023-10
+series: Cartas de Pablo desde la cárcel
+part: 1
+tipo: Clase
+campus: Intensivo Convivencia en línea
+lugar: ''
+video: https://www.youtube.com/watch?v=KJNGC3XJ1vE
+video_title: Cartas de Pablo desde la cárcel — 01 - Introducción
+video_start: ''
+video_private: false
+canal: Daniel Lira (@danielliraserhan)
+video_duration: null
+video_upload_date: ''
+manuscript: false
+combina: ''
+keywords:
+- cartas de Pablo
+- cartas desde la cárcel
+- Efesios
+- Filipenses
+- Colosenses
+- Filemón
+- apóstol Pablo
+- panorama
+- teología
+- misión
+- vida práctica
+image: ''
+published_month: 2026-10
+published: true
+orden: 15
+id: KJNGC3XJ1vE
+---
+## Bienvenida a la clase
+
+Hola a todos, bienvenidos a esta clase de Cartas de Pablo desde la cárcel. Quiero primero que nada felicitarlos por tomárselo el tiempo de estudiar la Biblia, de profundizar en la Palabra de Dios, porque realmente nuestro objetivo principal en todo esto es conocer más a Cristo. Queremos conocerlo a Él, queremos conocerlo de verdad, queremos conocer su historia, su ministerio, su mensaje y queremos también vivir ese mensaje. Lo que estaremos viendo en esta clase es cuatro diferentes cartas que escribe Pablo en un mismo momento. Ahora, esta clase tiene como intención ser un panorama y es importante aclarar esto desde el inicio porque al ser un panorama hay varias cosas en las que no vamos a poder profundizar, pero sí vamos a tocar y el objetivo es que tú puedas desde este panorama tener una gran historia de lo que hizo Pablo al menos durante este tiempo en la clase.
+
+## Un panorama, no un estudio exhaustivo
+
+¿Cuál era su intención? ¿Cuál era su intención en este tiempo? Y que luego tú te lleves estos conceptos y puedas profundizar. Te recomiendo ampliamente que puedas tomar más de nuestras clases, que puedas tal vez si te interesa la doctrina, entrar a la de doctrinas fundamentales, o si quieres más panorama y quieres abrir más tu mente sobre la gran historia de la Biblia, que también tomen nuestras clases de panorama del Antiguo Testamento, panorama de los profetas, los cuatro evangelios, vida enseñanza de Jesús, en fin, hay bastantes. Y la estructura que tenemos ahora en el intensivo es así, panorama, doctrina y práctica. Estas son de panorama, así que vamos a hablar de cuatro diferentes libros que escribe, cuatro diferentes cartas que escribe Pablo, y estas cuatro cartas las escribe desde la cárcel.
+
+## Cuatro cartas escritas desde la cárcel
+
+Pero antes de eso quiero tocar quién era Pablo, cómo llegó a la cárcel, cuál era su mensaje, de dónde salió Pablo, en qué momento conoció de esta historia de Jesús, del Evangelio, y cómo es que tenía un celo tan fuerte por llevarlo a todas las naciones. La estructura que tendremos en esta clase es, iniciaremos un poco con historia, de quién es Pablo y cómo llega a la cárcel. De ahí nos pasaremos un poco a estas ideas que tiene de un reporte desde la cárcel. Estas cartas de alguna manera inician como este reporte de lo que está sucediendo en la cárcel, y la manera en la que escribe Pablo, y cómo vamos a estudiar sus cartas, es que lo vamos a dividir en tres.
+
+## Teología, misión y vida práctica
+
+Una vez entendiendo su historia, entendiendo lo que reporte desde la cárcel, agarraremos tres temas importantes. El primero, teología, el segundo, la misión, y el tercero, la vida práctica. Y de esta manera estaremos viendo estos cuatro libros y a través de ellos cómo Pablo está ejemplificando su teología, quién es Dios, cuál es el plan, cuál es el propósito, cuál es nuestro rol, cuál es este proceso en el que entramos una vez que él nos da una nueva identidad. En nuestra misión, sobre cómo él decía vivir es Cristo y morir es ganancia. En el ministerio de la encarnación, de la reconciliación, y el tema de la unidad y diversidad de la iglesia en el cuerpo de Cristo.
+
+## Encarnación, reconciliación y nueva naturaleza
+
+Y por último, vamos a ver cómo esta nueva naturaleza, esta nueva identidad, tiene una manera práctica de moverse. Cómo todo esto es anclado cuando tenemos la mirada fija en Cristo y mientras estamos luchando en esta carrera de la fe, sin temor. Así que vamos a iniciar con esta clase y esta es la introducción. En la siguiente sesión iniciaremos con la historia de Pablo, quién es él y cómo llega a la cárcel. Gracias y nos vemos en la siguiente sesión.

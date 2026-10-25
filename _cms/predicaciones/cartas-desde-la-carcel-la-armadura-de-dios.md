@@ -1,0 +1,95 @@
+---
+title: 'La armadura de Dios: una nación de sacerdotes'
+seo_title: ''
+slug: cartas-desde-la-carcel-la-armadura-de-dios
+description: Así que lo que yo creo que les estaba diciendo, Pablo, es que ustedes no son como los romanos, sino que son como los sacerdotes, una nación de sacerdotes.
+date: 2023-10
+series: Cartas de Pablo desde la cárcel
+part: 12
+tipo: Clase
+campus: Intensivo Convivencia en línea
+lugar: ''
+video: https://www.youtube.com/watch?v=2Dmb0ya9qBE
+video_title: Cartas de Pablo desde la cárcel — 12 - La armadura de Dios
+video_start: ''
+video_private: false
+canal: Daniel Lira (@danielliraserhan)
+video_duration: null
+video_upload_date: ''
+manuscript: false
+combina: ''
+keywords:
+- armadura de Dios
+- Efesios 6
+- guerra espiritual
+- sacerdotes
+- Isaías 59:17
+- coraza de justicia
+- calzado del evangelio
+- Isaías 52:7
+- pies descalzos
+- casco de la salvación
+- Santidad al Señor
+- espada del Espíritu
+- Palabra de Dios
+image: ''
+published_month: 2026-10
+published: true
+orden: 34
+id: 2Dmb0ya9qBE
+---
+## Del amor en sumisión a la batalla espiritual
+
+Tomamos este último punto práctico como la manera en la que podemos vivir y practicar el amor de Dios en el sometimiento de unos a otros. Y ahora vamos a pasar a algo que es un poco más espiritual en un sentido de guerra espiritual. Ya lo vimos en cómo vivirlo en carne y hueso con las relaciones personales, pero Pablo también al terminar Efesios termina dando algo en lo que está hablando de una guerra espiritual dado que, si se acuerdan, hablábamos de este plan, que es poner a Cristo sobre todas las cosas y que toda rodilla se doble ante él. La iglesia cumple su propósito siendo testimonio no sólo en la tierra, sino también a las autoridades invisibles, a las potestades, a los ángeles y a los demonios y al diablo y a todo lo que existe, a toda la creación realmente.
+
+Y por lo tanto al final nos deja, Pablo, al final de Efesios nos deja una manera de estar firmes espiritualmente, firmes contra estos temas invisibles en los que tú y yo no entendemos tanto cómo relacionarnos porque no lo vemos, pero que son reales. Igual de reales que carne y hueso, es exactamente la misma realidad. Les decía que una de las filosofías que más nos ha invadido es la filosofía griega. La filosofía griega separa lo espiritual y lo terrenal como si fueran dos cosas completamente distintas, pero la filosofía o la cosmovisión hebrea y bíblica lo habla como una misma creación, una misma creación que interactúa.
+
+Y de esta misma manera en que interactúa, Pablo nos deja una armadura para que podamos estar firmes en el Señor. Dice, por lo demás, fortalézcanse en el Señor y en el poder de su fuerza. Revístanse con toda la armadura de Dios para que puedan estar firmes contra las insidias del diablo. Porque nuestra lucha no es contra sangre y carne, sino contra principados, potestades, contra los poderes de este mundo de tinieblas, contra las fuerzas espirituales de maldad en las regiones celestiales. Por tanto, tomen toda la armadura de Dios para que puedan resistir en el día malo y habiéndolo hecho todo, estar firmes. Pablo nos habla de esta armadura de Dios y específicamente nos está hablando de la armadura de Dios para estar firme en contra de las artimañas del diablo y de los poderes del aire, de las potestades y de las tinieblas.
+
+## Estar firmes
+
+Así que sí está hablando de una guerra espiritual de una manera. Y quiero ser bien claro en esto, yo sé que ha habido muchas maneras de ejemplificar esta armadura de Dios, y creo que hay realmente dos interpretaciones que le podemos dar. Les voy a platicar rápidamente la primera, pero es en la segunda en la que yo creo que la palabra realmente se está enfocando. La primera y más cotidiana es que hace una similitud a la armadura romana. Los romanos usaban casco, los romanos usaban cinto, los romanos usaban una coraza, los romanos usaban una espada y era algo en lo que en ese momento la iglesia de Éfeso y las demás iglesias, todas las iglesias en general y todos los creyentes se encontraban contra personas que querían dominarlos y que tenían una armadura.
+
+Y aunque puede tener sentido y cada una de estas cosas le podamos dar este sentido, hay algo que a mí se me hace mucho más interesante y es que lo que dice es, por tanto, tomen toda la armadura de Dios. No dice tomen toda la armadura romana, dice tomen toda la armadura de Dios. Y indagando en esto, estudiando en esto, meditando en esto, me preguntaba, ¿cuál será la armadura de Dios? ¿Y por qué dijo armadura? Y no dijo vestimenta de Dios o naturaleza de Dios, como lo hemos venido mencionando, porque habla de un nuevo cuerpo, habla de una nueva naturaleza. Y sí creo que la realidad es que usó la palabra armadura para que en la mente de las personas, de los lectores de ese momento, en ese contexto, sí pensaran en la armadura romana, porque era algo cotidiano, era algo que veían todos los días.
+
+## Lo que Pablo quería decir
+
+Sin embargo, también existía algo que ellos tenían y sabían. Recuerda que inicialmente eran judíos y era la vestimenta de un sumo sacerdote, que es ejemplificada en Éxodo 28 al 30. Tú puedes meterte y leerla y vas a empezar a ver muchas similitudes con lo que voy a decir hoy. Así que lo que yo creo que les estaba diciendo, Pablo, es que ustedes no son como los romanos, sino que son como los sacerdotes, una nación de sacerdotes. Y les está indicando, ustedes no deben de vestirse como los romanos, sino que se pueden vestir de la nueva naturaleza que es la naturaleza de Cristo. En resumen, vístanse de Cristo.
+
+¿Cuál es la armadura de Dios? Es Cristo Jesús. Es vestirnos de Cristo Jesús. Y muchos de sus elementos son ejemplificados en la vestimenta del sumo sacerdote. Y otros serán ejemplificados en las profecías, en los profetas, como Isaías. Así que, aunque puede funcionar que ejemplifiquemos todo esto con una armadura romana, el día de hoy quiero tomar el tiempo para ejemplificarlo con esta vestimenta de un sumo sacerdote o la vestimenta de Cristo. Entonces, iniciamos con el cinturón. Bueno, estén, pues, firmes, ceñida su cintura con la verdad. Punto número uno es el cinturón de la verdad. Y hay un momento en donde esto se menciona antes, que es Isaías 11 e Isaías 59.
+
+Es decir, la justicia y la fidelidad. Él viene con justicia y con fidelidad. Y en Isaías 59 dice, su justicia es quien lo sostiene. ¿Cuál es el cinturón de la verdad? ¿O cómo ceñimos nuestra cintura con la verdad? La ceñimos de la justicia y fidelidad de Cristo. Esa es la manera en la que lo hacemos. En el sumo sacerdote tenían una vestimenta que representaba diferentes cosas y era un cinto el que lo mantenía todo unido. Es la verdad que nos sostiene. Y la verdad es que Cristo es fiel a su palabra. Que él hará lo que dijo que va a hacer. Lo que prometió en Génesis 3:15.
+
+## La coraza de la justicia
+
+Prometió a Noé. Prometió a Abraham. Prometió a Jacob. Prometió a Isaac. Prometió a Moisés. Prometió a David. Prometió y prometió a los profetas en el nuevo pacto. Él es fiel para cumplir sus promesas. Y eso es lo que nos mantiene unidos. Es nuestra cintura ceñida con la verdad. Y la verdad es Cristo, su justicia y su fidelidad. Y de ahí naturalmente pasa a la segunda parte. Pónganse la coraza de la justicia. Revestidos de la coraza de la justicia. La cintura de la verdad y la coraza de la justicia. De nuevo, Isaías 59:17 habla: su justicia lo sostiene. Y se pone esa justicia como coraza. Si nos vamos también a la vestimenta de los sacerdotes.
+
+Ellos tenían en la coraza doce piedras preciosas. Y cada una de esas piedras representaba una de sus tribus. ¿Y por qué eran así? Porque representaban su hermosura. Su belleza. La belleza de la elección de Dios. Y recordar el pueblo elegido de Dios nos hace recordar la fidelidad de Dios y su justicia provista en Jesús. Así que estos dos elementos forman parte de un mismo mensaje en el que nos está diciendo, manténganse ceñidos de la verdad. ¿Cuál verdad? La justicia y fidelidad de Dios. Y recuérdenla. Pónganla sobre su corazón. Vístanse con esta hermosura de que Dios eligió a un pueblo y va a redimir ese pueblo.
+
+Que es fiel con un pueblo y va a ser fiel con ese pueblo. ¿Cuánto más nosotros que hemos sido injertados en ese pueblo podremos disfrutar de esa belleza y esa hermosura? Y sí, de esta justicia provista por Cristo. Porque estas doce tribus no podrán regresar o no podrán llegar a Dios si no es a través de la justicia de Jesús, de la vestimenta de Jesús de cada una de ellas, de la misma manera que tú y yo nos vestimos de justicia cuando nos vestimos de Cristo Jesús. El punto número dos dice, revestidos con la coraza de justicia. Y el tres dice, calzados los pies con la preparación para el evangelio de la paz.
+
+## El calzado y los sacerdotes descalzos
+
+Es bien importante esto porque incluso en Reina Valera tú lo puedes encontrar como el calzado de la paz. Y en esta traducción, como la preparación para anunciar el evangelio de la paz. Inicialmente cuando hablamos de la armadura romana hablábamos de estos tenis, zapatos o calzados, algo que usaban en los pies que tenía como unos ciertos picos en las puntas que te ayudaban a estar siempre preparado, siempre defendido porque te ayudaban a anclarte en la tierra para que cuando te pegaran o te trataran de mover tuvieras más fuerza de sostenerlo. Y tiene sentido que nos anclemos en la paz. Sin embargo, cuando tú vas a Éxodo y te das cuenta de que a los que se les llamaba los levitas, que son eventualmente este pueblo de sacerdotes, Éxodo 3:5 dice, iban descalzos porque siempre estaban en tierra santa, siempre estaban en la presencia de Dios.
+
+Y Isaías lo une diciendo, Isaías 52:7, hermosos son los pies que anuncian la paz. ¿Qué está tratando de decir entonces con pónganse el calzado, con la preparación de anunciar el evangelio de la paz? Es estén siempre descalzos. Y no lo está hablando literalmente, está usando figuras en este momento, sino estén siempre recordando que están ante la presencia de Dios. Y dentro de la presencia de Dios, siempre lleven y anuncien la paz. Porque hermosos son los pies descalzos que anuncian que el Señor está cerca, que está aquí. Así que el calzado de la paz nos habla de que siempre estamos preparados para compartir el evangelio, porque siempre sabemos que estamos ante la presencia de Dios.
+
+Y esto lo sabemos, porque tú y yo hemos sido sellados y llenados por el Espíritu Santo. Después de estos tres, cambia a hablar ahora del escudo de la fe. Dice, sobre todo, tomen el escudo de la fe con el que podrán apagar todos los dardos encendidos del maligno. Salmos 84:11 nos dice, Él es nuestro escudo. Cristo venció y la fe en esa victoria nos defiende del engaño del enemigo. Acuérdense que en todo esto no estamos hablando de una guerra humana, sino de una guerra espiritual. Entonces, es el recordar que nuestra fe, ¿qué es la fe? La certeza. Es la certeza de que Él venció y, por lo tanto, Él regresará y Él cumplirá en fidelidad sus promesas.
+
+## La certeza de la salvación
+
+Y Él nos ha provisto de justicia, por lo tanto, usen eso como escudo. Cuando el enemigo venga con mensajes que engañan, con pensamientos que engañan, con cosas que engañan, con cosas difíciles de afrontar, recuerda tu fe, tu certeza. No tu fe ciega, porque eso no es real. Eso va en contra de su propia definición. Recuerda la certeza que tenemos de que Cristo Jesús vino a esta tierra. Históricamente, eso es comprobable. Él murió por ti y por mí en una cruz, comprobable científicamente, y Él resucitó. Hay una tumba vacía y esto es comprobable, que esa tumba estuvo vacía al tercer día. Cumpliendo entonces nuestra fe. Y ningún engaño, ninguna artimaña del diablo puede atacarnos cuando estamos firmes ahí.
+
+El punto número cinco habla del casco de la salvación y el punto número seis de la espada del Espíritu Santo. Primeramente, el casco de la salvación o la salvación como casco. Usen la salvación como casco. Nuestra salvación habla de nuestra identidad. Esto que hablamos de la brecha, de que pasamos de muerte a vida, de esto habla. Cuando tú te pones algo en la cabeza para proteger tu cabeza, es porque estás tratando de proteger tu identidad. Y eso es lo que generalmente usamos como la armadura romana. Sin embargo, cuando tú lo comparas con la vestimenta sacerdotal, los sacerdotes utilizaban un cierto tipo de gorra, el sumo sacerdote específicamente, en el que venía inscrita una palabra hebrea que significaba santidad ante Dios o santo para el Señor.
+
+Esta identidad es la que está diciendo pónganse la salvación como casco, no como los romanos que tienen que proteger su cabeza de un ataque, sino que ustedes pónganse su identidad de santos ante Dios. Ustedes son santos ante Dios, han sido separados ante Dios para una obra específica. Y eso es tu identidad principal. Cumplimos un propósito dentro de un plan con una nueva naturaleza y nuestra identidad es que somos santos para Dios. Y por último, esta espada del Espíritu Santo.
+
+## La espada del Espíritu: la Palabra
+
+Principalmente quiero notar que la espada no es tuya y no es mía. La espada no es nuestra. La palabra no puede ser usada por nosotros como una espada que ataca y que hiere al otro. No, la espada es del Espíritu Santo. Por lo tanto, quien usa la espada es el Espíritu Santo. ¿Y cuál es la espada del Espíritu Santo? La palabra de Dios. Nuestro trabajo entonces es estar inmersos en la palabra de Dios, conocer la palabra de Dios para que el momento que el Espíritu Santo quiera utilizarlo como espada, lo pueda utilizar. No para nosotros ir diciendo versículos a todo el mundo tratando de juzgarlos, sino que al revés, que el Espíritu Santo desde un amor va a protegernos.
+
+Y de nuevo, no es para carne y hueso, sino para esta protección y este sentimiento de protección, que sabemos que el Espíritu Santo tiene una espada para defendernos del maligno. Lo podemos ver en Apocalipsis 1:16, de que habla esta espada. Y podemos descansar también en que un día Él regresará. Y de su boca salía una espada aguda de dos filos. De la boca de Jesús saldrá una espada aguda de dos filos que cortará hasta el último corazón, trayendo salvación. Juan 6 nos habla de que es el Espíritu el que da vida. Y la palabra que Jesús ha hablado son espíritu y son vida.
+
+La espada, a diferencia de la espada del romano, que es usada para matar y para asustar, la espada del Espíritu Santo es palabra de vida. Él atraviesa corazones con la palabra de Dios, no para matar o para juzgar, sino porque al ser utilizado, el resultado es vida. Así que, en resumen, Pablo, al final de la carta a los Efesios, está dando esta imagen diciendo, no se vistan como los romanos, no conquisten como los romanos, que tienen armaduras y cascos y espadas y escudos, sino que vístanse como sacerdotes. Vístanse entonces del carácter de Cristo, de su justicia, de su fidelidad, de su paz. Anden siempre como si estuvieran ante la presencia de Dios, identificados como suyos, como santos, para el Señor, con un escudo fuerte y firme de la certeza de que Él ha vencido.
+
+Y sabiendo que en el momento adecuado el Espíritu Santo traerá y recordará las palabras adecuadas para utilizar, para romper corazones, para que puedan tener vida eterna.

@@ -1,0 +1,139 @@
+---
+title: 'Tetelestai: ecos de la cruz'
+seo_title: ''
+slug: tetelestai-ecos-de-la-cruz
+description: Nosotros presentamos Tetelestai, consumado es, presentamos la cruz de Cristo y le decimos a las personas, no tienes por qué vivir así.
+date: 2025-05
+series: Ecos de la cruz
+part: null
+tipo: Predicación
+campus: Campus Cumbres
+lugar: ''
+video: https://www.youtube.com/watch?v=WofZ3kFGSUk
+video_title: 'Tetelestai: Ecos de la Cruz | Ps. Daniel Lira | Campus Cumbres'
+video_start: ''
+video_private: false
+canal: Convivencia Monterrey (@ConvivenciaMty)
+video_duration: 2042
+video_upload_date: '2025-05-25'
+manuscript: false
+combina: ''
+keywords:
+- tetelestai
+- consumado es
+- Juan 19
+- cruz
+- Día de la Expiación
+- Levítico 16
+- Génesis 22
+- vergüenza
+- miedo
+image: ''
+published_month: 2026-10
+published: true
+orden: 57
+id: WofZ3kFGSUk
+---
+## Ecos de la cruz
+
+El día de hoy quiero voltear a ver la cruz. Hay muchas veces que pierdo de vista la cruz por meterme en las ramas de lo que eso produce, pero eventualmente el centro de nuestra adoración, el centro de nuestras vidas, el punto más importante de toda la humanidad, es el momento en el que Cristo fue a la cruz. Ahora yo me imagino que en este momento, para ti y para mí sucedió hace dos mil años, pero para el Padre, el Hijo y el Espíritu Santo, desde la creación, desde la eternidad pasada, antes de la creación, ellos estaban dándose gloria, alabanza, deleitándose uno con el otro y en un momento dicen: hagamos al hombre a nuestra imagen y semejanza.
+
+Hagamos a un ser capaz de conocernos, de amarnos, de sentir lo que nosotros sentimos cuando estamos juntos. Y entonces, digamos, hagamos al hombre y a la mujer. Solo había una pequeña cosa. Ellos no podían ser Dios. Tú y yo no somos Dios. Al crear algo, había un componente que tiene que salirse de la esfera de ser un Dios y había una posibilidad de ser imperfectos y de que todo saliera mal. Y yo creo que mientras platicaban y decían, ¿Valdrá la pena esto? Alguien tendría que pagar. ¿Cómo haríamos para restaurarlos? Y yo me imagino al Hijo levantando la mano y diciendo, yo pagaré el precio.
+
+Y desde ese momento, yo me imagino que la Trinidad, Dios mismo estaba en sí mismo creando la historia que tú y yo apenas estamos viviendo. Y desde ese momento vieron la cruz. Y desde la cruz crearon todo lo demás. A esto me refiero cuando hablo de ecos de la cruz, que es el título del mensaje. Es el momento central que impacta el presente, el pasado y el futuro. Como cuando dejas caer una piedra en una alberca o en el mar o en un cuerpo de agua, lo que hace es que hacia todos los lados impacta. Es lo que haces cuando te vas abajo de una montaña o de un surco o de lo que sea y gritas, ¡Hola!
+
+Y hace un eco, ¡Hola! ¡Hola! ¡Hola! ¡Hola! Y empieza, mientras más cerca estés, más fuerte se escucha. Pero no significa que no haya un impacto eterno. Y desde ahí es que echan a andar toda la humanidad. Y desde ahí comienza a crear. Y comienza el día uno y comienza el día dos hasta el momento en el que llegan a crear al hombre y a la mujer. Pero, ¿qué sucede en la cruz? ¿Qué sucede en la cruz que impacta absolutamente toda la historia de la humanidad pasada, presente y futura? Lo podemos encontrar en medio de las palabras que Jesús proclama en la cruz. Él dice siete palabras, siete diferentes frases que dice Jesús en la cruz.
+
+## Las palabras de Jesús en la cruz
+
+Y nos vamos a centrar hoy en solo una, pero se las quiero mencionar rápidamente. La primera es que estando en la cruz exclama, ¡Padre! ¡Perdónalos porque no saben lo que hacen! La segunda, volteando a ver a aquel que está crucificado, al ladrón, al lado de él, le dice, ciertamente hoy estarás conmigo en el paraíso. La tercera es volteando a ver a su madre. Le dice, mujer, ahí tienes a tu hijo. Y le dice a Juan, ahí tienes a tu madre. Son momentos muy hermosos donde Jesús con todo el sufrimiento, aún ahí, está volteando a ver a la humanidad. Y dice, perdónalos, no saben lo que hacen.
+
+Da una esperanza al que está perdido. Y habla a la mujer, ve a su mamá con una compasión. Y le dice, yo me voy, pero aquí te dejo a un hijo. La siguiente frase, es una frase que hace un eco o está en el corazón incluso del rey David cuando escribe el Salmo 22. Dice, Eli, Eli, lama sabachthani. Y el Salmo 22, versículo 1, literalmente inicia con las mismas palabras. Eli, Eli, lama sabachthani. Dios mío, Dios mío, ¿por qué me has abandonado? Este es el peso de la cruz. Este es el precio de la cruz. No es el dolor, aunque era inmenso. No es la sangre, aunque era derramada por completo.
+
+Era el momento en el que el hijo iba a ser abandonado por un momento por el Padre. En el que iba a sentir el peso del pecado. Iba a ser por un momento volteado para luego resucitar. La siguiente palabra es antes de exhalar, en donde nos vamos a centrar. Jesús dice, tengo sed. Y Juan 19 dice, entonces Jesús, cuando hubo tomado el vinagre, porque en vez de agua le entregan vinagre, dijo, consumado es, e inclinando la cabeza, entregó el espíritu. La palabra en la que nos vamos a centrar hoy es, consumado es. ¿Qué logró Jesús?
+
+## *Tetelestai*: hecho una vez y para siempre
+
+¿Qué terminó Jesús? ¿Qué obra completó? ¿Qué fue consumado? Y esa palabra, en el griego original, es una sola palabra. No son dos, no es consumado es, no es hecho está, es tetelestai. Una sola palabra que contiene más significado que todas las palabras que existen en el universo. Dice Charles Spurgeon que esta palabra es como una gota, es una sola palabra que contiene un mar de significado. Se necesitarían todas las demás palabras del mundo para poder explicar esta. Tetelestai, consumado es. ¿Qué logró Jesús? ¿Y por qué tuvo que ir a la cruz? ¿Por qué tuvo que ser abandonado? ¿Por qué tuvo que sufrir lo que sufrió?
+
+Tetelestai es una palabra que rápidamente metiéndome en gramática, odio la gramática, bueno, odiaba la gramática cuando estaba en primaria. ¿A alguien le gustaba? A mi esposa le sabe a todos los acentos y el predicado y el pretérito y no sé, yo no sé nada de eso. Pero he ido aprendiendo. Y en el griego esta palabra está en el, no sé si lo voy a decir bien, en el tiempo perfecto, indicativo, pasivo. Está raro. ¿Pero qué significa eso? Perfecto es cuando, es la característica de una palabra cuando se ha hecho una vez y para siempre.
+
+Indicativo habla de que es real, que es completamente real, que no hay una duda de que esto sea real. Y pasivo significa que alguien lo hizo en mi lugar, que alguien lo hizo por mí. Yo no tuve ninguna participación. Es como cuando estabas en la universidad y alguien hizo el proyecto, ¿no? Tú no trabajaste, tú no trabajaste, tú no hiciste nada y alguien lo presenta y en vez de quitar tu nombre, lo presenta por ti. Te da el crédito, te deja participar, no hiciste nada.
+
+Tetelestai es una palabra que representa que Cristo vino y completó la obra del Padre una vez y para siempre. Que lo hizo de una manera completamente real, no hay duda de ella, y que lo hizo por ti y por mí. Que no tenemos nada que agregar a la obra. Que no hay nada que tengamos que hacer para ganarnos el favor del Hijo, del Padre, del Espíritu Santo. Que no hay absolutamente nada. Él hizo toda la obra y puso tu nombre para darte el crédito. Cuando el Padre nos ve, cuando el Padre te ve, detrás de la palabra Tetelestai, dice: ahí está mi Hijo amado. Ahora, esta palabra hace un eco tan fuerte que repercute en toda la humanidad.
+
+Y las leyes y las ceremonias que hacía Israel, todas tenían un sentido en el que hacían eco, un resueno de esta realidad. ¿Qué es un eco? Algo que resuena. Algo que hace temblar. Algo que mueve, que representa tu vida y la mía, cuando la vivimos detrás de las palabras consumado es, tetelestai, deben de ser y deben de funcionar como un eco de la cruz. No nada más es, es que todo se trata de Jesús. Tu vida, mi vida hace un eco de Jesús. Mientras tú caminas a los lugares a los que tú entras, en el trabajo, en la familia, en la universidad, donde sea que tú entras, debe de haber un eco.
+
+Que la gente se sorprenda, que diga, ¿qué está pasando? ¿Qué te hiciste? ¿Qué pasó contigo? ¿Te cortaste el pelo? ¿Te pusiste pupilentes de color? No sé, ¿no? ¿Te cambiaste la ropa? ¿Qué hiciste? He visto la cruz y mi vida ha sido transformada. Ahora, estos ecos los podemos ir encontrando poco a poco en el Antiguo Testamento. Y el fundamento del Antiguo Testamento son los primeros cinco libros. ¿Y de qué se tratan? De decirnos cuál es la obra por la que Jesús tendría que venir. Una de ellas la encuentras en un festival que se llamaba el Día de la Expiación. En donde todo Israel tenía que subir a Jerusalén.
+
+## El eco en el Día de la Expiación
+
+Y en medio de ahí había una ceremonia en donde el sumo sacerdote conseguía dos chivos. Y ante estos dos chivos, uno de ellos iba a ser llamado el chivo expiatorio, al que le echan la culpa. ¿Sabes? Como cuando alguien, así como alguien hizo tu trabajo por ti, cuando alguien hizo algo malo y no lo hiciste, pero te juntaste con él, eres el chivo expiatorio, al que castigan para no castigar a los demás. Y el otro iba a ser sacrificado. Lo que hacían era... déjenme se los leo.
+
+El primero de ellos, escogían a uno, y el primero de ellos iba a ser sacrificado. Iba a ser el que tenía que pagar el precio. Dice Levítico 16:15. Degollará el macho cabrío de la ofrenda por el pecado, que es por el pueblo, y llevará su sangre detrás del velo. La rociará sobre el propiciatorio y delante del propiciatorio. Hará expiación por el lugar santo a causa de las impurezas de los israelitas, a causa de sus transgresiones por todos sus pecados. Así hará también con la tienda de reunión que permanece con ellos en medio de sus impurezas. ¿Qué hacía el chivo sacrificado? El chivo sacrificado era este chivo que iba a limpiar los efectos del pecado que tú y yo cometimos.
+
+¿Sabes? Cuando caímos, cuando Adán y Eva caen, cuando cada uno de nosotros cometemos cualquier transgresión, le hemos dado un arma al diablo para poder ir con Dios y acusarnos. Y entonces el diablo va con Dios y nos comienza a acusar. Pero desde antes de la creación del mundo, el Señor tenía en mente que iba a quitarle el poder al diablo. ¿Y cómo lo iba a hacer? Con la sangre inocente de un cordero. Y esta sangre limpia el pecado. Por lo tanto, cuando el diablo va con Dios y le dice, mira tus hijos, mira tu creación, mira cómo te han manchado. Están hechos a tu imagen y semejanza y la han hecho corrupta.
+
+Dios puede decir, esto está limpio. Yo no veo ninguna mancha, yo no veo ninguna corrupción. Ha sido limpiada, ha sido lavada por el cordero. Tetelestai significa que ante Dios no hay ningún pecado que te disminuya. Tetelestai significa que no hay acusación que se le pueda dar a Dios sobre tu vida. No hay nada que tenga que oprimirte o limitarte a entrar al trono de Dios. Pero el otro chivo, al otro chivo lo reunían y el pueblo, los sacerdotes, el sumo sacerdote sobre todo, ponía sus manos sobre la cabeza, sobre el animal y confesaban las transgresiones del pueblo. En ese momento, todo el pecado del pueblo era transferido a este chivo.
+
+Luego lo tomaban y una persona preparada para ello iba al desierto y lo soltaba para siempre. Esto representaba que los pecados del pueblo habían sido borrados, completamente borrados. Tú vas a encontrar en Levítico mil cosas y si usas un traje de seda y de no sé qué, deberíamos de ser apedreados. Y deberíamos de no sé qué, y deberíamos de... y hay una enorme ley detrás de esa ley que exige el pago justo. Hay un chivo que se los llevaría por completo. De tal manera que cuando el diablo viene contigo, no tiene poder para acusarte. ¿Qué logró Jesús en la cruz? Cuando dijo Tetelestai, consumado es, borró completamente el pecado y limpió el lugar que había sido manchado.
+
+Venció al diablo porque le quitó todo poder de acusación que tiene contra ti y contra mí. ¿Qué significa esto? Que tal vez tú vienes el día de hoy. Tal vez tú en tu vida pasada no conocías a Cristo. Antes de conocerlo, cualquier cosa pudo haber sucedido. Y tú puedes venir y mucha gente se acerca a la iglesia y dicen, pero si supieran. Una vez, esto no estaba en las notas, una vez conocimos a un indigente. Y yo estaba llegando a Cristo, estábamos leyendo Mateo 25, literalmente. Y un indigente pasa por fuera de mi casa. Y Mateo 25 habla de cuando lo hiciste al menor de esto, lo hiciste a mí.
+
+## «Dios no me va a perdonar»
+
+Y estamos leyendo y es la primera vez que lo leo. Y estoy con un amigo y decimos, wow, esto es increíble, qué bonito. Hasta que pasa un indigente afuera de tu casa. Y nos dice, tengo hambre. Tengo hambre y me diste de comer. Tengo hambre y me diste de comer. Señor, bueno, fui por pan y le dimos de comer. Y luego nos dice, oye, pero me quiero bañar. Error, ese fue un gran error. No lo hagan, no lo repitan. Dios nos cubrió con su gracia, pero entró a nuestra casa.
+
+No lo debimos haber bañado, pero se bañó. Porque una persona que lleva meses bebiendo alcohol, le puede dar una embolia. No lo intenten en casa. Pero el punto de todo esto es decir que llega un momento en el que empieza a llorar. Estábamos predicando el Evangelio y me dice, es que Dios no me va a perdonar. Dios no me va a perdonar. Dios no me va a perdonar. Dios, pues, ¿qué hiciste? Esa es la parte más gacha de toda la historia. Nos confiesa sus pecados. Era una persona que venía huyendo de Honduras porque había matado a dos personas. Y ahí estaba en mi casa, ahí estaba en mi carro, porque luego lo llevamos a Cristo vive.
+
+Entonces, no lo intenten en casa. Jóvenes, no hagan caso a lo que estoy diciendo. El punto es que nos decían, no me va a perdonar. No sabes lo que hice, no sabes lo que hice. Y nos confiesa el pecado, nos dice lo que sucedió. Sabes lo que Dios voltea a ver y dice, Tetelestai, consumado es. Tu pecado ha sido borrado. No hay nada. Oye, pero Dios, ¿De qué me hablas? Y el diablo llega con Dios y le dice, pero él mató a dos personas. ¿De qué me hablas? Y puede ir con él y decirle, hey, pero tú mataste. ¿De qué estás hablando? El pecado ha sido completamente borrado.
+
+Tetelestai era una palabra que se usaba en el comercio. Y cuando alguien adquiría una deuda y terminaba de pagarla, había un sello. Se sellaba el documento y decía, la deuda está cancelada. La deuda está borrada. Eres libre. Tetelestai significa que cualquier pecado con el que tú vengas el día de hoy ha sido borrado por la sangre de Cristo. Cargada en su cuerpo. Ha sido molida y ha sido olvidada por completo. Ante Dios, ante el diablo, ante lo que tú quieras. No hay acusación sobre tu vida. Eres libre. Hecho está.
+
+## El carnero en el monte Moriah
+
+Tetelestai. Ahora, el pago real para cubrir esa deuda era la muerte. Alguien tenía que morir. Alguien tenía que pagar por la muerte. Y ese es el momento en el que podemos regresar al Antiguo Testamento. Irnos hasta Génesis y vemos cuando Dios le pide al hijo de la promesa. A Isaac, a Abraham. Le dice, dame a tu hijo, a tu único hijo, porque él debe morir. Es mío. Me pertenece como pago del pecado. Es mío. Y lo lleva al monte Moriah. Y estando ahí, cuando está a punto de sacrificarlo, se abren los cielos. Escucha una voz y dice, Abraham, detente. Porque ahora sé que temes al Señor.
+
+Y cuando levantan la mirada, hay un carnero. Un carnero que es tomado y es sacrificado en sustitución. ¿Qué nos habla esto? ¿Cuál era el plan que Dios quería revelar desde antes de la fundación del mundo? Era que alguien tenía que pagar. Pero que ese alguien podía ser sustituido por la sangre de un inocente. Tú y yo somos humanos. Y como humanos hemos pecado. Y la paga del pecado era la sangre. Sin sangre no hay expiación del pecado. Así que Dios, teniendo los privilegios divinos, el Hijo se hizo carne. Y caminó entre nosotros. Y dio su vida en rescate de nosotros. Así como alguien tenía que pagar con su sangre.
+
+Él tenía que venir. Y él fue completamente inocente. Completamente inocente con todas las tentaciones. Completamente hombre. Pero completamente inocente. Y es su sangre inocente que al ser entregada en la cruz sustituye tu vida por la suya. ¿Qué es lo que logró Jesús? Cuando dice Tetelestai, consumado es. Venció a la muerte. Venció por completo a la muerte. Le quitó su poder. Porque el que está en Cristo Jesús tiene una esperanza viva. La resurrección de los muertos. Al mismo tiempo que Isaac fue sustituido. Cristo también tuvo una vida nueva. Fue resucitado de alguna manera. Es nuestra esperanza viva. Cuando tú vives una vida detrás de la palabra Tetelestai.
+
+Detrás de la palabra consumado es. Detrás de la cruz, tus pecados son borrados. Pero tu vida no tiene miedo. No tiene temor de la muerte. Dice 1 Tesalonicenses que no lloramos como aquel que no tiene esperanza. Sino que sabiendo la esperanza futura, echamos mano de la vida eterna. Tú y yo, cuando caminamos en la vida con esta realidad. Yo no sé si tú has pasado por la muerte de algún ser querido. Es un tema difícil. Es un tema doloroso. A nosotros nos tocó pasar por la muerte de un sobrino hace no mucho. De seis meses. Es un tema muy fuerte. Hay gente que ha perdido a su mamá, a su papá.
+
+Nos toca recibir a tantos jóvenes. Pero cuando tú vives una vida detrás de la cruz. Tú puedes voltear a ver a la muerte y decirle. Oh muerte, ¿dónde está tu aguijón? Porque Cristo Jesús murió para que yo tuviera vida eterna. Y un día lo volveremos a ver. En ese momento no hay palabras de consuelo. Más que estar con las personas. Pero llega un momento en el que Dios a través del Espíritu Santo nos da un consuelo eterno. Un día lo volverás a ver.
+
+Si tú has perdido a alguien hace poco, llévate esa Palabra. Un día lo volverás a ver, un día va a resucitar de entre los muertos. Lo vas a volver a abrazar, la vas a volver a abrazar. Van a volver a caminar juntos. Va a haber una eternidad para seguirse disfrutando. La muerte no tiene poder sobre ti y sobre mí. Alguien tenía que morir. Y el mensaje que Dios da en la historia de Abraham e Isaac es si alguien va a morir por el pago del pecado, si alguien tiene que entregar a su hijo, no sería Abraham, no serías tú y no sería yo. El único que entregaría a su hijo sería el Padre Eterno.
+
+Es una promesa que estaba sellando en el corazón de Abraham antes de iniciar toda la historia de redención. Sustituyó mi vida por la tuya, por la suya y sustituyó su vida por la mía. Tú y yo vivimos sin miedo, sin miedo a la muerte. Pero hay una última cosa que logró Jesús. Vimos que Él borró las consecuencias legales. Ya no hay acusación, ya no hay deuda que pagar, ya no hay nada que tengas que hacer de transacción. Hay gracia, es completamente libre y gratuito para ti entrar con Dios. Vemos que nuestra eternidad está sellada en Cristo Jesús por el Espíritu Santo en la cruz. Pero el pecado da fruto.
+
+## Vergüenza y miedo
+
+Y ese fruto podemos verlo desde el inicio de la humanidad. En Génesis 3 vemos que Adán y Eva toman del fruto que Dios les había dicho que no tomaran. Y cuando eso sucede, lo primero que pasa es que abren sus ojos. Y lo que antes estaba desnudo y sin vergüenza, ahora al abrir sus ojos, el hombre y la mujer se dan cuenta que están desnudos. Y comienzan a avergonzarse. Y se esconden de Dios y se aíslan. El miedo los cubre por completo. La vergüenza llega a su corazón y comienzan a vivir de esa manera.
+
+Sabes que todo lo que está mal en ti es vergüenza y miedo. Todo lo que está mal en mí es por vergüenza y miedo. Los jóvenes, adolescentes comienzan a probar las drogas por vergüenza y miedo. ¿Qué van a decir de mí? ¿Y si no tengo amigos? ¿Y si no encajo? ¿Y si soy el raro? Pero lo mismo va pasando más adelante. Y es un ciclo en el que caemos y caemos. Y no podemos salir de ellos porque la vergüenza y el miedo se apoderan de nosotros. Hemos visto la maldad. Oye, pero ante Dios estás completamente limpio. Pero ha dado fruto en mí. Y muchos de los comportamientos que tenemos como seres humanos nacen de vergüenza y miedo.
+
+Pero Cristo Jesús en la cruz dijo, Tetelestai, consumado es. Mientras Adán y Eva se escondían y se avergonzaban, Dios los buscó. Los buscó, los sacó de su aislamiento y se presenta como un padre bueno. Les da una promesa de restauración y los cubre con pieles de un animal. A mí me gusta pensar que este pequeño animal era un corderito. No sabemos, la Biblia no lo habla, pero los cubre con sus pieles. De alguna manera era un eco, que tal vez era muy difícil de percibir aún, pero es un eco muy profundo de la cruz, de lo que Cristo logró en la cruz. Tetelestai: venció al pecado, quitándole todos sus efectos.
+
+Tú y yo no tenemos que vivir con esa vergüenza y con ese miedo. Por eso la palabra dice, confiésense los pecados unos a los otros. No hay condenación para el que está en Cristo Jesús. Muchas de las cosas que estamos hablando en la serie de Necesito Terapia, nacen por vergüenza y miedo. Nacen porque no queremos voltear a la cruz y decir, consumado es. Tetelestai, ha sido borrado, ha sido pagado, no tiene efecto sobre mí, pero vivimos con ella, la vivimos guardando. Y construimos comportamiento tras comportamiento que comienzan a hacer algo. ¿Sabes? La mayoría de los jóvenes que están en pornografía, se mantienen en pornografía por no confesar.
+
+No sé qué es lo que piensan, que cuando vienen los vamos a condenar, los vamos a avergonzar, no sé. Pero una vez que vienen son libres. Porque el diablo ya no puede acusarte, el pecado ya no tiene efecto. Pero tú mismo, cuando lo guardas, cuando lo tienes, cuando le das vueltas, comienzas a producir ansiedad. Qué miedo del futuro. ¿Qué va a pasar conmigo? Tengo ansiedad porque qué va a pasar mañana, qué va a pasar en la escuela, qué si no consigo trabajo, qué si no...
+
+Lo peor que te puede pasar es que te mueras. Pero Cristo Jesús venció a la muerte y nos dio vida eterna. Venciendo la ansiedad, venciendo el miedo. La mayoría de las cosas que producen la depresión es la vergüenza. La vergüenza de no querer hablar que nos hace aislarnos. Y cuando tú te aíslas del mundo, las adicciones entran a suplir algo que no has suplido con relaciones. Porque fuimos hechos para relacionarnos. La vergüenza y el miedo son una mentira. No es un ataque del enemigo porque no tiene poder. Son una mentira que tú y yo nos decimos a nosotros mismos. Si tú estás en Cristo Jesús, si tú te has vestido de Cristo Jesús, tú hueles a Jesús, tú caminas como Jesús, tú tienes el Espíritu Santo, tu vida es un resueno de la vida de Cristo Jesús.
+
+Ya está hecho. No tienes nada que agregar. No tienes nada más que hacer. No confiesas para que te ganes la salvación. Ya la tienes y es gratis. Cuando hablamos y confesamos, cuando nos arrepentimos, cuando caminamos cargando esa cruz. Nosotros simplemente estamos disfrutando de lo que Cristo ya logró por ti y por mí. Ese es el poder de su cruz. De la misma manera que Tetelestai era una palabra usada por los comerciantes para pagar la deuda. También era usada por los siervos, por los esclavos. Pero no cualquier esclavo. Había esclavos que amaban a sus amos. Que dándoles la libertad, ellos preferían quedarse por amor. Una vez que esto sucedía, cualquier tarea que se les encomendaba, ellos regresaban contentos y felices con su amo.
+
+Y le decían, Tetelestai, consumado es, ya lo cumplí, hecho está. Quiero agradarte, padre, hecho está lo que me mandaste a hacer, ya lo logré. Era usado por los artistas cuando hacían una obra maestra. Y pasaban tiempo y tiempo tratando de terminarla y eventualmente la presentaban y decían, Tetelestai, hecho está. Dice Efesios que tú y yo somos la obra maestra de Dios. Cuando Cristo estaba en la cruz y exclamó, Tetelestai, padre, he completado la tarea que me diste. He aquí tu obra maestra. Estaba pensando en ti, estaba pensando en mí. Tú eres la obra maestra de Dios. Él se agrada de ti, Él está satisfecho con tu vida.
+
+## La obra maestra de Dios
+
+Él, que tú estés aquí, te permite entrar confiadamente al trono. Cristo Jesús es el sumo sacerdote que llegó con su misma sangre y entró al templo y entró al lugar secreto, llegó al lugar santísimo y rasgó el velo para que tú y yo hoy podamos entrar a su presencia. No hay nada que tengas que hacer, pero tienes el privilegio de hacerlo todo. Tienes el privilegio de levantarte y leer la palabra de Dios y conocer a este Dios, que dio su vida por ti y por mí, que borró mis pecados, que limpió sus efectos, que limpió la mancha que habíamos causado al nombre de Dios, que venció a la muerte dándonos una esperanza, que venció al pecado cubriéndonos de nuestra vergüenza y de nuestro miedo.
+
+Hoy tú y yo tenemos un espíritu no de temor, sino de coraje, de valentía para proclamar el Evangelio. Allá afuera, en casa, en la universidad, en el trabajo, en la familia, la gente muere de miedo y se oculta en su vergüenza. Nosotros presentamos Tetelestai, consumado es, presentamos la cruz de Cristo y le decimos a las personas, no tienes por qué vivir así. Hay alguien que pagó el precio de tu pecado, tu deuda está cancelada, pero no sabes lo que hice, maté a dos personas. Tu deuda está cancelada, pero no sabes cómo he vivido en homosexualidad. Tu deuda está cancelada. Has sido pagada por la sangre de Cristo, pero no sabes la pornografía, que no has sido salvado y sanado.
+
+Tu deuda está completamente cancelada. No tienes por qué vivir en depresión. No tienes por qué vivir en ansiedad. No tienes por qué vivir aislado. Entra al trono de la gracia de Dios. Y lo que podemos hacer tú y yo, de manera muy práctica, es buscar dónde en tu vida hay vergüenza, dónde en tu vida hay miedo, dónde en tu vida te has aislado, dónde hay algo, y decirle: Señor, expón mi corazón, examina mi alma, trae a la luz lo que he estado ocultando. Y cuando eso suceda, mira a los ojos al diablo y dile: no tienes poder para acusarme. Mira a los ojos a la muerte y dile: ¿dónde está tu aguijón?
+
+Y mira a los ojos a tu vergüenza y tu miedo. Y dile: he sido cubierto, mi desnudez ha sido cubierta por el cuerpo de mi Salvador. Atraviésalo, encuéntralo, porque Él venció. Él venció a la muerte, al pecado, al diablo e hizo un espectáculo. Lo que el diablo creía que era la victoria fue su derrota. Lo que tú piensas que es tu derrota es su victoria. Dice Pablo: quítame este aguijón, bástate mi gracia. Mira la cruz de Jesús. Es lo único que necesitas. No necesitas terapia. Probablemente ya hay toda una serie. Cuándo sí, cuándo no, no me voy a meter en eso.
+
+No necesitas más que voltear a la cruz y entender. Pero tetelestai fue hecho una vez y para siempre. Es real, es tangible. Hubo sangre derramada. Lo practicamos cada vez que decimos en memoria de Él: tomamos el pan y lo quebramos, cuando tomamos la sangre, cuando tomamos la comunión. Hecho está y fue hecho por mí. Solo. Vive dentro de esa gracia. Entrega tu vida y lo único que te tiene como ser humano no es ni el diablo ni la muerte. Son tus propios pensamientos, que puedes rendir a la cruz y decir: si esto me avergüenza, si esto me tiene aislándome de otro, si esto me llena de miedo y de temor, llévalo a la cruz.
+
+Tetelestai, hecho está. No hay nada, no hay nadie, no hay acusación que te pueda separar del amor de Dios. Para terminar, quiero que oremos para que Dios nos ayude en este sentido, como diría Efesios 4 —una prédica sin Efesios no es prédica—: que sean renovados en el espíritu de su mente, que se vistan del nuevo hombre en el cual, en la semejanza de Dios, ha sido creado en la justicia y la santidad de la verdad.

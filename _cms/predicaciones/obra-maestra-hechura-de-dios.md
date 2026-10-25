@@ -1,0 +1,158 @@
+---
+title: 'Obra maestra: la belleza de ser hechura de Dios'
+seo_title: ''
+slug: obra-maestra-hechura-de-dios
+description: Eres la máxima expresión de belleza cuando te entregas a las manos del alfarero.
+date: ''
+series: Efesios (Estudio 12:2)
+part: null
+tipo: Predicación
+campus: ''
+lugar: ''
+video: ''
+video_title: Obra maestra (manuscrito)
+video_start: ''
+video_private: false
+canal: sin video
+video_duration: null
+video_upload_date: ''
+manuscript: true
+combina: ''
+keywords:
+- obra maestra
+- Efesios 2:10
+- hechura de Dios
+- belleza
+- gloria de Dios
+- imagen y semejanza
+- alfarero
+- identidad en Cristo
+- adoptado
+- redimido
+- sellado
+image: ''
+published_month: 2026-10
+published: true
+orden: 11
+id: sv-obra-maestra
+---
+- Qué somos
+- Qué hacemos
+- A qué venimos
+- Por qué existimos
+- Honestamente son las preguntas de todo ser humano
+- Algunas de las que muchos de ustedes vienen a responder
+- Como náufragos a la deriva buscando tierra
+- El mundo feliz de la trinidad
+- Creó todo y todo es bueno
+- La gran mentira del mundo: la verdad, lo que es bueno, lo que es bello
+- Los dos árboles: Vivimos según Sus palabras que dan vida o nuestro conocimiento que trae muerte
+- Identidad líquida vs identidad firme
+- Sexualidad es un espectro
+- La verdad es relativa
+- Tengo libertad para cambiar lo que soy (terians)
+- La belleza está en quien la mira
+
+José
+
+Efesios 1:
+
+- La obra del Padre
+- La obra del Hijo
+- La obra del Espíritu Santo
+- Efesios + Juan 15
+
+Aunque estábamos rotos… en Cristo
+
+- Nos dio
+- Identidad en Efesios
+- Adoptados, más allá de cómo creciste. Él es tu papá
+- Redimido, más allá de lo que has hecho. Él te limpió
+- Sellado, más allá de toda inseguridad. Él te garantiza vida eterna.
+- Nos trasladó
+- Esclavos del: Diablo, del mundo y de tu carne
+- Hijos del Rey: Palabra, Espíritu su Iglesia
+- Nos unió
+- Somos uno.
+- Nos envió
+- Efesios 2:10 que es su obra maestra
+- Todo lo hermoso
+- Para toda buena obra.
+
+=
+
+## Obra maestra
+
+- ¿Cuándo piensas en una obra qué piensas?
+- ¿Fotografía?
+- ¿Pintura?
+- ¿Este paisaje increíble?
+- ¿La naturaleza?
+- ¿Un momento en la historia del deporte?
+- produce deleite y satisfacción al experimentarlo.
+- La verdadera belleza tiene el poder de atravesar tu corazón y traer a la luz lo que es bueno y verdadero
+- La verdadera belleza primero te atrapa, te transforma y te envía
+
+——>
+
+¿Qué es la belleza?
+
+La expresión de la gloria de Dios
+
+La máxima expresión de la gloria de Dios en la creación son los humanos
+
+¡A su imagen y semejanza!!!
+
+Eres la máxima expresión de belleza cuando te entregas a las manos del alfarero.
+
+- Él recuperará lo perdido
+- Él restaurará lo dañado
+- Él embellecerá lo corrupto
+- Él te tomará en sus manos para irradiar belleza al mundo entero
+
+No importa si el mundo no lo quiere reconocer
+
+El mundo no puede contener tanta belleza
+
+Pero los hijos de Dios la reconocen
+
+- Aroma agradable
+- Imagen radiante
+- Semejanza divina
+- Hechura de Dios
+
+## Obra maestra
+
+Ese eres, esa eres.
+
+La belleza está en el ojo que la ve.
+
+Dios te ha visto
+
+Dios te ve
+
+Dios siempre te verá
+
+La obra de Dios que más exalta su gloria
+
+- Hacerte a ti
+- Adoptarte a ti
+- Redimirte a ti
+- Habitar en ti
+
+La obra de Dios que más lo deleita
+
+Eres tú.
+
+Su obra maestra.
+
+Vive en la identidad firme
+
+- Eres adoptado
+- Eres redimido
+- Eres sellado
+- Eres la obra maestra
+- Para irradiar la gloria de Dios
+- Experimentar la alegría de seguir a Cristo
+- Deleitarte en lo que él diseñó en ti
+- Y lo que él te ha invitado a vivir

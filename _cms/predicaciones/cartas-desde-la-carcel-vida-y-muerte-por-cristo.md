@@ -1,0 +1,98 @@
+---
+title: Vida y muerte por Cristo
+seo_title: ''
+slug: cartas-desde-la-carcel-vida-y-muerte-por-cristo
+description: Nuestra misión es clara y es que al hacerlo, consideremos todo como basura, porque estamos corriendo una carrera y esta carrera tiene una meta.
+date: 2023-10
+series: Cartas de Pablo desde la cárcel
+part: 7
+tipo: Clase
+campus: Intensivo Convivencia en línea
+lugar: ''
+video: https://www.youtube.com/watch?v=KKAI7a6Jutk
+video_title: Cartas de Pablo desde la cárcel — 07 - Vida y muerte por Cristo
+video_start: ''
+video_private: false
+canal: Daniel Lira (@danielliraserhan)
+video_duration: null
+video_upload_date: ''
+manuscript: false
+combina: ''
+keywords:
+- Filipenses 1
+- Filipenses 3
+- vivir es Cristo
+- morir es ganancia
+- conocer a Cristo
+- todo por basura
+- proseguir a la meta
+- misión
+- ministerio de la reconciliación
+- Colosenses 1:20
+image: ''
+published_month: 2026-10
+published: true
+orden: 21
+id: KKAI7a6Jutk
+---
+## Transición a la misión
+
+Bienvenidos a esta siguiente sesión en donde estaremos ya transicionando a la misión. Ahora hemos visto como Pablo, entendiendo cuál es su propósito y misión real, hace un cambio completo de su vida y se dirige hacia eso con un corazón ardiente y corriendo directamente, luchando. Y es importante entender esto porque cuando entendemos para qué fuimos creados, podemos entender cuál es la misión y entonces vivirla a tope. Y hemos visto ya entonces como Dios nos amó y nos adoptó, nos redimió en Cristo y nos selló el Espíritu Santo, todo para la gloria y alabanza de Dios. Y que su plan para que todo le dé gloria y alabanza a Dios de manera eterna es poner a Cristo sobre todas las cosas, administrando los cielos y la tierra en la era venidera.
+
+Mientras tanto, nosotros podemos entrar ante su autoridad a través del Espíritu Santo, como esta garantía que nos ha dado, para seguirlo, para vivirlo, para ser guiados por él y para vivir bajo la autoridad de Cristo. Y una manera sencilla de hacerlo es entendiendo esta brecha entre la antigua identidad y la nueva identidad. Entendiendo todo esto, entonces podemos pasar a decir ahora, ¿cuál es entonces la misión? ¿Cómo vivimos la misión? Y cuando tú entiendes todo lo que ha pasado y que podemos dividir esta historia de la humanidad en dos, una era actual y la era venidera, y que esta era está dominada por tinieblas y que la nueva era, o la era por venir, está dominada por Cristo, que nosotros, aún viviendo en esta era, tenemos la ciudadanía y la autoridad de Cristo, podemos desechar el mundo, las pasiones, la carne y al diablo, y podemos entonces empezar a vivir en la autoridad de Cristo.
+
+Y ahí es lo que Pablo entiende, y de ahí salen las famosas palabras que dicen, para mí el vivir es Cristo y el morir es ganancia. El vivir es Cristo porque mi vida acá ya no tiene sentido sin él, porque de qué sirve ganar el mundo si pierdo a Cristo, y de qué sirve todo lo que haga y acumule en este lugar si en la vida eterna el administrador es Cristo. Por lo tanto, el día de hoy viviré por Cristo, porque para mí vivir es Cristo, y morir es ganancia porque estaría con él. Entonces Pablo entra toda una dinámica en la que dice, bueno, si morir es bueno y es ganancia y es mejor porque estoy con Cristo ya, ¿por qué sigo vivo?
+
+## La razón de quedarse: la iglesia
+
+Tú dices, oh, esto se está poniendo deprimente y difícil y tiene temas existenciales. No, porque justo él mismo en esta plática, él revela la razón de quedarse. Y la razón es a causa de ustedes, iglesia. Dice, es a causa de todos ustedes que hay mucho trabajo y hay mucha labor, no solo los actuales, sino los que han de conocer a Cristo por medio de la predicación a los gentiles. Por medio de la predicación a quienes no conocen, a donde nadie más ha ido. Y él hace de esto su misión, y por lo tanto, todo lo demás es considerado como basura. Esta es la primera parte que vamos a ver.
+
+Y la segunda es que luego dice, pero es que yo no lo he alcanzado, sino que hay una carrera de la fe que sigo corriendo. Después de esto vamos a tocar un poco el tema del ministerio de la reconciliación. Así que vamos a leer primero en Filipenses, toda esta primera parte de Filipenses de nuevo, y luego vamos a terminar con Colosenses, hablando del ministerio de la reconciliación, que lo encuentras en más lugares, pero por temas prácticos lo hablaremos solamente ahí. Entonces, si me acompañas a Filipenses 1:18, vamos a ver, y lo leímos hace rato, pero vamos a recordarlo. Luego, está Pablo, del 18 al 25 más o menos, está Pablo prácticamente hablando de que se está predicando el evangelio en la prisión, de que su situación está siendo predicada y está dando fruto aún en sus prisiones.
+
+Y entonces cambia y empieza a hablar de esta esperanza que tienen, que resultará librado en Cristo. Y en el 20 dice: vamos a leer rápido desde el 20 solo para tener el contexto. Dice: conforme a mi anhelo y esperanza en que nada seré avergonzado, sino que con toda confianza, y esa es la parte importante, aun ahora, aun ahora en la cárcel, aun ahora en mis dificultades, como siempre lo he hecho, Cristo será exaltado en mi cuerpo, ya sea por vida o por muerte. ¿Por qué Cristo será exaltado? Recuerda, el propósito es darle gloria y alabanza a Dios. Y la gloria, alabar la gloria de Dios es exaltar sus atributos.
+
+Y la vida de Pablo está dedicada a exaltar los atributos de Dios, representando a Cristo como un embajador, apuntando siempre a Él, ya sea en vida, en muerte, en libertad o en esclavitud. Y entonces entra en esta dinámica, dice, pues para mí el vivir es Cristo y el morir es ganancia, pero si el vivir en la carne significa una labor fructífera, entonces no sé cuál escoger. ¡Oh, qué dilema! El morir es ganancia, por fin estaré con Cristo, estaré con Él, estaré viviendo con Él ante su presencia, esperando simplemente la redención de todas las cosas, sin embargo vivir el día de hoy es una labor que da fruto y que trae fruto.
+
+## Morir es ganancia, vivir es Cristo
+
+Es algo, es un fruto que puedo entregarle a Cristo en el fin de la era. Entonces, ¿cuál escojo? Porque de ambos lados me siento apremiado, teniendo el deseo de partir y estar con Cristo, porque eso es mucho mejor. Sin embargo, y se convence el mismo, dice, sin embargo, continuar en la carne es más necesario. Aunque vivir con Cristo me traerá satisfacción y plenitud completa, yo sé que algún día lo tendré eternamente. Y vivir en la carne el día de hoy es más necesario por causa de ustedes, filipenses, por causa de ustedes, iglesia, por causa de ustedes. Y convencido de esto, sé que permaneceré y continuaré con todos ustedes para su progreso y su gozo en la fe.
+
+Guau, el corazón de Pablo, de decir, tengo las dos opciones, de rendir mi vida y decir, estoy listo, mátenme, porque estaba en la cárcel y estaba prácticamente sentenciado a muerte. O resistir en la cárcel y decir, seguiré, porque esto es una labor fructífera y es necesaria a causa de ustedes para su gozo y su progreso en la fe. Para que él pudiera decir esto y pudiera aguantar todo esto, tiene esta otra parte, este otro mensaje súper famoso que encontramos en mismo Filipenses, pero ahora 3:7. En Filipenses 3:7.
+
+Está hablando prácticamente de lo mismo, de dejar la antigua naturaleza, de la nueva naturaleza, él entendiendo la visión de que ahora vivo por Cristo. Esto solo va a funcionar con esto que va a decir. Todo lo que para mí era ganancia, lo he estimado como pérdida por amor a Cristo. El vivir por Cristo llevó a Pablo a estimar todo lo demás como pérdida. No es necesario. Lo puedo perder, lo puedo ganar, lo puedo entregar, lo puedo tener, no importa, porque es por amor y es para Cristo. Dice, aún más, yo estimo como pérdida todas las cosas en vista del incomparable valor de conocer a Cristo Jesús de nuevo.
+
+## Todo lo considero basura
+
+Pablo tenía la vida resuelta. Era el fariseo de fariseos, el estudioso, el pródigo que estaba siendo ascendido a ser el líder. Dice, todo esto es una basura comparado a la riqueza de conocer a Cristo Jesús. Por él lo he perdido todo y lo considero como basura. A fin de ganar a Cristo y ser hallado en él. Hay otras versiones que transmiten este corazón diciendo, quiero conocer a Cristo. Quiero conocer a él y ser lleno de él. A fin de conocerlo más profundamente. Y lo repite en el versículo 10. Y conocerlo a él, el poder de su resurrección, y participar en sus padecimientos, llegando a ser como él en su muerte, a fin de llegar a la resurrección de los muertos.
+
+Pablo, Pablo que llevaba tantos viajes misioneros, había dado tanto fruto, había estado aprendiendo de Jesús. Dice, quiero conocerte más. Este es el anhelo de nuestro corazón. Jesús, quiero conocerte más. Todo lo que tengo, lo entregaría en un segundo para conocerte más. Y es como si el día de hoy yo dijera, oye, tengo 100 pesos, te los regalo, son tuyos, los quieres, sí. Buen tema, ándale. Y luego llego yo y digo, oye, ¿sabes qué? Tengo mil pesos, pero para dártelos, necesito ver que tires los 100 a la basura. Pues los tiras. No puedes comparar mil con 100, realmente no perdí nada, listo, 100. Aparte de que no tenías nada inicialmente y ahora tienes mil pesos.
+
+Y luego yo llego y te digo, oye, ¿sabes qué? Tengo 100 mil pesos, pero necesito que tires los 2 mil a la basura. ¿Los tirarías? Yo creo que sí. Lo considerarías como que son mil pesos a comparación de 100 mil. ¿Qué pasaría si te hablo de un millón de pesos? Y luego de un billón de pesos. Y luego te empiezo a... Te pongo este ejemplo para que entiendas que en un abrir y cerrar de ojos tirarías un millón de pesos por 100 millones de pesos. Lo tirarías en un segundo. Es basura. No es nada cuando lo comparas y lo comparas, y lo comparas y lo comparas.
+
+Pablo estima todas las cosas como basura. En vista del incomparable valor de conocer a Cristo y ser hallado en Cristo en la resurrección de los muertos, al final en la consumación de los tiempos, resucitar juntamente con él y vivir eternamente con él. El mundo de ahora, todo lo que es, todo lo que somos, todo lo que podemos ganar y acumular y vivir y experimentar es una basura comparado con todo lo demás. Pablo no está diciendo que tu carrera es una basura, que tu familia es una basura; no está diciendo eso, está diciendo que si lo comparo con Cristo no es nada. Así que él direcciona su vida y su misión para llegar a la meta de la carrera que es la resurrección de los muertos porque ahí viviremos en un cuerpo glorificado con Cristo, ante él, ante su presencia de una manera perfecta conviviendo de manera eterna.
+
+## No que ya lo haya alcanzado
+
+Esto es el corazón de Pablo en esta misión. Y lo más importante y lo más hermoso es que si tú sigues leyendo, te vas a dar cuenta que él no considera haberlo alcanzado ya. Dice, es que no es que ya lo haya alcanzado, en el versículo 3:12. O que haya llegado a ser perfecto, sino que sigo adelante a fin de poder alcanzar aquello para lo cual también fui alcanzado por Cristo Jesús. Hermanos, yo mismo no considero haberlo alcanzado, pero una sola cosa hago, olvidando lo que queda atrás, extendiéndome para adelante, prosigo hacia la meta para obtener el premio del supremo llamamiento de Dios en Cristo Jesús, la resurrección de los muertos.
+
+La vida eterna, el perdón de los pecados, una vida diseñada por Dios para estar en intimidad completa con nosotros. Esta es la carrera de la fe. Nuestra misión es vivir por Cristo y morir por Cristo. Nuestra misión es clara y es que al hacerlo, consideremos todo como basura, porque estamos corriendo una carrera y esta carrera tiene una meta. Nuestra misión es correr la carrera de la fe. Y lo menciona ahí mismo, es la carrera de la fe. Y en Filipenses 1:27, antes de llegar a esto, él ya lo había introducido.
+
+Y dice, solamente compórtense de una manera digna del Evangelio de Cristo, de modo que ya sea que vaya a verlos o que permanezca ausente, pueda oír que ustedes están firmes en un mismo espíritu, luchando unánimes por la fe y de ninguna manera aterrorizados por sus adversarios, lo cual es señal de perdición para ellos y de salvación para ustedes. Filipenses, iglesia, voy corriendo una carrera para alcanzar a conocer a Cristo, seguirlo conociendo, ganar el supremo llamamiento y resucitar junto con Él. Ustedes también esténse firmes en un mismo espíritu, luchando unánimes por la fe del Evangelio y sin temor. Esta es la carrera de la fe. Corran firmes, luchando sin temor, aun cuando haya sufrimiento por la causa de Cristo.
+
+## ¿Cómo camino?
+
+Y todo esto lo hacemos para un mismo propósito, que toda rodilla se doble, para la gloria y alabanza de Dios. Nuestra vida es por Cristo, nuestra muerte es por Cristo y vamos corriendo una carrera de la fe. ¿Y qué hago en esta carrera? ¿Cómo se corre la carrera? ¿Cómo camino? ¿Qué zapatos? ¿Qué tenis? ¿Qué vestimenta me pongo? Eso es lo que vamos a seguir viendo. Porque algo nos habla Dios en esta brecha que hablábamos de reconciliación. En la historia de Pablo, que les hablaba, toda la historia habla de reconciliación. Génesis 3:15, la humanidad se separa de Dios y Dios promete reconciliarla. Génesis en adelante, la humanidad se separa y Dios promete reconciliarla.
+
+La torre de Babel, las naciones se separan y a través de Israel, Dios promete que va a reconciliarla. Y es a través de Jesús que Él reconcilia a la humanidad entre ellos y consigo mismo. Y luego nos brinda a nosotros el ministerio de la reconciliación. ¿Cuál es una de nuestras misiones? El ministerio de la reconciliación. Ahora pasando a Colosenses, vamos a ver esto que ha hecho Dios. De nuevo vamos a iniciar desde el 16, Colosenses 1:16, viene del contexto que hablábamos de la brecha que nos trasladó de muerte a vida, del reino de las tinieblas al reino de Dios. Y ahora empieza diciendo:
+
+Él es el principio, el primogénito de entre los muertos, a fin de que en Él tenga toda la primacía. Y todo esto lo dice porque agradó al Padre que en Él habitara la plenitud y por medio de Él reconciliar todas las cosas consigo, habiendo hecho paz por medio de la sangre de su cruz, por medio de Él, repito, las cosas de la tierra o las cosas que están en el cielo. Y repite, ustedes antes estaban muertos, alejados, eran de ánimo hostil, pero Dios los reconcilió en Cristo, en su cuerpo de carne, mediante su muerte, a fin de presentar los santos sin mancha e irreprensibles delante de Él.
+
+## Reconciliados por adopción y por relación
+
+Esto Él hará si en verdad permanecen en la fe, corriendo la carrera de la fe, bien cimentados, constantes, sin moverse de la esperanza del Evangelio que han oído, que fue proclamado en toda la creación debajo del cielo, del cual yo, Pablo, fui hecho ministro. El ministerio de la reconciliación es muy sencillo. Y tú lo puedes ver también en 2 Corintios 5:18, no lo vamos a leer el día de hoy, pero en Cristo se cerró esta brecha de la que hablábamos. Nos reconcilió por adopción con Él, por redención y nos reconcilia por relación. Y en el fin de los tiempos nos reconciliará por matrimonio. Por eso habla de la esposa y el esposo, por eso habla de presentarla pura y sin mancha.
+
+Está asemejando este pacto matrimonial que hacemos nosotros aquí en la tierra, como diciendo, esta reconciliación será de por vida. Y tú y yo, humanidad y Cristo, humanidad, seremos uno solo. Así como en el matrimonio, el hombre y la mujer, esposo y esposa, se vuelven uno solo. Pero ¿cómo esto se vuelve nuestra misión? Que de ahora en adelante nuestra principal tarea es la reconciliación. Nuestra principal tarea es emular a Cristo y morir por otros, de manera figurativa o literal si es necesario, para reconciliarlos con Dios y con los demás. Dios reconcilió a sí mismo, la relación de Dios con el hombre se había roto y Él la reconcilió por medio de Jesús.
+
+Y la relación del hombre con hombre, hermano con hermano, humanidad, también se rompió y Dios la reconcilió. Y nuestra tarea es hacerlo. De manera práctica esto se ve igual en las relaciones. Poner la reconciliación sobre mi propia razón, la reconciliación sobre el miedo, la reconciliación sobre el rechazo, la reconciliación sobre mi ofensa. Y volvernos inofendibles de la manera que Jesús en la cruz, desnudo, se volvió inofendible diciendo, perdónalos porque no saben lo que hacen. Nuestra misión principal es reconciliar a todos los que podamos de este lado del mundo para que en la era venidera podamos vivir con ellos de una manera armoniosa, íntima y perfecta.
+
+Y es por eso que Dios nos ha dado este ministerio de la reconciliación. En la siguiente sesión estaremos viendo cómo este ministerio de reconciliación produce dos cosas, unidad y diversidad. Hemos sido llamados a unidad, un solo cuerpo, un solo espíritu, una sola esperanza, un solo Señor, una sola fe, un solo bautismo, un solo Padre, uno solo. Pero también nos ha dado diferentes dones y talentos y nos ha diseñado de diferentes maneras, con diferentes personalidades, para llevar a cabo esta misión de manera diversa. La unidad grita al mundo que somos sus hijos y la diversidad lleva al mundo el evangelio del amor de Dios. Nos vemos en la siguiente sesión.

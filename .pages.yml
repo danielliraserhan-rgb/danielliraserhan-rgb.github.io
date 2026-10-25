@@ -1,0 +1,52 @@
+# Configuración de Pages CMS (https://app.pagescms.org)
+media:
+  input: imagenes
+  output: /imagenes
+  rename: safe
+  categories: [image]
+content:
+  - name: predicaciones
+    label: Predicaciones
+    type: collection
+    path: _cms/predicaciones
+    format: yaml-frontmatter
+    filename: '{fields.slug}.md'
+    view:
+      fields: [title, date, series]
+      primary: title
+      sort: [date, title]
+      order: desc
+    operations:
+      delete: false
+    fields:
+      - { name: title, label: Título, type: string, required: true }
+      - { name: date, label: Fecha (año-mes), type: string, description: 'Formato AAAA-MM, por ejemplo 2025-12. Déjalo vacío si no se conoce: no se mostrará fecha.', pattern: { regex: '^(\d{4}(-\d{2})?)?$', message: 'Usa AAAA-MM, por ejemplo 2025-12' } }
+      - { name: series, label: Serie, type: string }
+      - { name: part, label: Parte (número dentro de la serie), type: number }
+      - { name: video, label: Video de YouTube (URL), type: string, description: 'Vacío si no hay video publicado.' }
+      - { name: description, label: Descripción (para Google y redes), type: text }
+      - { name: image, label: Imagen para redes (opcional), type: image, description: 'Si la dejas vacía se usa la imagen automática con el título.' }
+      - name: body
+        label: Texto
+        type: rich-text
+        options:
+          format: markdown
+          media: false
+      - { name: tipo, label: Tipo, type: select, options: { values: [Predicación, Clase, Conversación] } }
+      - { name: campus, label: Campus o evento, type: string }
+      - { name: lugar, label: Lugar (opcional), type: string }
+      - { name: video_title, label: Título original del video, type: string }
+      - { name: keywords, label: Palabras clave, type: string, list: true }
+      - { name: seo_title, label: Título SEO (opcional), type: string }
+      - { name: published, label: Publicado, type: boolean, default: true, description: 'Desmárcalo para ocultar el artículo en la próxima publicación.' }
+      - { name: slug, label: Dirección web, type: string, required: true, pattern: { regex: '^[a-z0-9-]+$', message: 'Solo minúsculas, números y guiones' }, description: 'Parte final de la URL (daniellira.com/predicaciones/...). No la cambies en artículos ya publicados.' }
+      - { name: video_start, type: string, hidden: true }
+      - { name: video_private, type: boolean, hidden: true }
+      - { name: canal, type: string, hidden: true }
+      - { name: video_duration, type: number, hidden: true }
+      - { name: video_upload_date, type: string, hidden: true }
+      - { name: manuscript, type: boolean, hidden: true }
+      - { name: combina, type: string, hidden: true }
+      - { name: published_month, type: string, hidden: true }
+      - { name: orden, type: number, hidden: true }
+      - { name: id, type: string, hidden: true }
