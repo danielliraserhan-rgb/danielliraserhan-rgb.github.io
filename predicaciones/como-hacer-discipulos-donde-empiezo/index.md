@@ -27,7 +27,7 @@ Hay un mensaje muy profundo que cuando nosotros lo revelamos antes de que el Esp
 
 ## El Dios que quiere habitar con nosotros
 
-Así que cuando ustedes lean, lo que te animaría es hacer como, cuando tú abres tu Biblia, asume que todo lo que es hacia la derecha no existe aún, y todavía no lo conoces, pero todo hacia la izquierda ya lo conociste. ¿A qué voy con esto? Cuando llegues a Éxodo, tú puedes tomar de Génesis para continuar la historia, pero no te puedes ir a los evangelios, sí puedes irte, la recomendación es que no lo hagas, sino que esperes pacientemente a que ellos pregunten, ¿Esto será como Jesús? No sé, tú dime, ¿Qué de esto te suena a Jesús? ¿Qué de esto te suena al evangelio? Y ellos son los que vayan entrando, pero tú asume que no existe nada más que la parte anterior de la historia.
+Así que cuando ustedes lean, lo que te animaría es hacer como, cuando tú abres tu Biblia, asume que todo lo que es hacia la derecha no existe aún, y todavía no lo conoces, pero todo hacia la izquierda ya lo conociste. ¿A qué voy con esto? Cuando llegues a Éxodo, tú puedes tomar de Génesis para continuar la historia, pero no te puedes ir a los evangelios, sí puedes irte, la recomendación es que no lo hagas, sino que esperes pacientemente a que ellos pregunten, ¿Esto será como Jesús? No sé, tú dime, ¿qué de esto te suena a Jesús? ¿Qué de esto te suena al evangelio? Y ellos son los que vayan entrando, pero tú asume que no existe nada más que la parte anterior de la historia.
 
 ## ¿Qué de esto te suena al evangelio?
 

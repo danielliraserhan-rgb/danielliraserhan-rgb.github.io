@@ -25,7 +25,7 @@ O sea, cambiar de camino y entrar al reino de los cielos. Es rechazar todo lo qu
 
 ## Hacer el llamado cuando lo preguntan
 
-Sin embargo, este llamado lo hacemos cuando ellos lo preguntan. Así como Pablo, después de predicar, le preguntan, entonces, basado en todo lo que acabas de decir, Pedro, perdóname, cuando Pedro lo predica después de hechos, cuando recibe el Espíritu Santo y dice, basado en esto que acabas de decir, ¿Cómo o debemos de responder? Y Pedro, de una manera muy sencilla, dice, arrepiéntanse y vuelvan a Dios. Entonces, en el fundamento de la verdad, de que hay redención en Cristo y la accesibilidad del reino de los cielos, llamamos a las personas a dejarlo todo para acceder a este reino. El precio de la entrada al reino es enorme, es muy difícil de pagar, pero ya fue pagado.
+Sin embargo, este llamado lo hacemos cuando ellos lo preguntan. Así como Pablo, después de predicar, le preguntan, entonces, basado en todo lo que acabas de decir, Pedro, perdóname, cuando Pedro lo predica después de hechos, cuando recibe el Espíritu Santo y dice, basado en esto que acabas de decir, ¿cómo o debemos de responder? Y Pedro, de una manera muy sencilla, dice, arrepiéntanse y vuelvan a Dios. Entonces, en el fundamento de la verdad, de que hay redención en Cristo y la accesibilidad del reino de los cielos, llamamos a las personas a dejarlo todo para acceder a este reino. El precio de la entrada al reino es enorme, es muy difícil de pagar, pero ya fue pagado.
 
 ## Un precio ya pagado
 

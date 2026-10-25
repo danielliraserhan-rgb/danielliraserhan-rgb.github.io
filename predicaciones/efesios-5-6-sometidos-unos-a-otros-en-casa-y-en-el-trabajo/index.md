@@ -31,7 +31,7 @@ Todos sabemos que hay dolor, todos sabemos que hay enfermedad, todos sabemos que
 
 Y sométanse unos a otros en el temor de Cristo”.
 
-Y con esa última frase es que Pablo quiere resumir cómo vivimos entre iglesia, cómo vivimos entre nosotros, cómo vivimos en nuestras comunidades. Y da tres ejemplos. El primero de ellos es el más largo, porque incluso incluye el misterio de la iglesia. Y el primero es el matrimonio. El matrimonio. Entonces, ¿Cómo nos sometemos unos a otros? Primeramente, la palabra “someterse” —y ojo, antes de hablar del matrimonio dice “sométanse unos a otros”. Está hablando ya de un sometimiento mutuo.
+Y con esa última frase es que Pablo quiere resumir cómo vivimos entre iglesia, cómo vivimos entre nosotros, cómo vivimos en nuestras comunidades. Y da tres ejemplos. El primero de ellos es el más largo, porque incluso incluye el misterio de la iglesia. Y el primero es el matrimonio. El matrimonio. Entonces, ¿cómo nos sometemos unos a otros? Primeramente, la palabra “someterse” —y ojo, antes de hablar del matrimonio dice “sométanse unos a otros”. Está hablando ya de un sometimiento mutuo.
 
 ## ¿Qué significa obedecer con confianza o de alguna manera obedecer automáticamente?
 
@@ -55,7 +55,7 @@ El hombre entrega su vida por la mujer. Y entonces la mujer, que se sabe amada, 
 
 Pero, de nuevo, es a medida que el hombre se parece a Cristo, que tomamos de Cristo. Y es por eso que el versículo 25 dice: “maridos, amen a sus mujeres como Cristo amó a la iglesia y se dio a sí mismo por ella, para santificarla, habiéndola purificado por el lavamiento del agua con la palabra, a fin de presentársela a sí mismo, una iglesia en toda su gloria, sin mancha, sin arruga ni cosa semejante, sino que fuera santa e inmaculada”. Muchos maridos queremos correr a los primeros versículos sin darnos cuenta que los siguientes versículos son incluso más amplios, en donde dicen: ¿Has dado tu vida por tu mujer?, ¿Has dado tu vida para que no tenga arruga ni mancha?, ¿Has dado tu vida de tal manera para lavarla con la palabra de Dios?, ¿La has dado?
 
-El día que me iba a casar, cuando le mencioné a uno de mis mentores que me iba a casar con una mujer que se llamaba Lili, me dijo: hay una historia bien bonita en donde un hombre estaba paseando en un jardín, y en medio de ese jardín había una flor, y en esa flor Dios le decía —es como un sueño, es un relato— esta flor era una Lili, un lirio. Y esta Lili estaba muerta. Cuando el hombre voltea y dice “Dios, ¿Por qué me diste una flor muerta?”, le dijo: “es que es tu trabajo hablar vida. Y conforme tú hables vida, y conforme tú la laves con la palabra, conforme tú te la presentes sin arruga y sin mancha, esta flor cobrará vida”. Y me dijo: este es tu rol como esposo. No está hablando de la condición de la flor o no.
+El día que me iba a casar, cuando le mencioné a uno de mis mentores que me iba a casar con una mujer que se llamaba Lili, me dijo: hay una historia bien bonita en donde un hombre estaba paseando en un jardín, y en medio de ese jardín había una flor, y en esa flor Dios le decía —es como un sueño, es un relato— esta flor era una Lili, un lirio. Y esta Lili estaba muerta. Cuando el hombre voltea y dice “Dios, ¿por qué me diste una flor muerta?”, le dijo: “es que es tu trabajo hablar vida. Y conforme tú hables vida, y conforme tú la laves con la palabra, conforme tú te la presentes sin arruga y sin mancha, esta flor cobrará vida”. Y me dijo: este es tu rol como esposo. No está hablando de la condición de la flor o no.
 
 ## Tal vez Dios te entregó una flor llena de vida
 

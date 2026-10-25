@@ -321,7 +321,7 @@ Hoy somos atletas incansables porque eternamente recibiremos descanso en el Rein
 - Cielos nuevos y tierra nueva.
 - IGLESIA, Avivemos nuestra fe, fortalecidos en su gracia.
 - Enfoquémonos en las escrituras y en su presencia para ser preparados…
-- 2 2 Timoteo 3:16-17
+- 2 Timoteo 3:16-17
 - Toda escritura es inspirada por Dios
 
 y útil para enseñar, para reprender, para corregir, para instruir en justicia.

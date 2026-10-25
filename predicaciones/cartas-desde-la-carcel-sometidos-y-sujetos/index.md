@@ -35,7 +35,7 @@ Y de la misma manera damos testimonio del amor de Dios cuando uno y el otro est�
 
 ## Honra a tu padre y a tu madre
 
-Y padres no provoquen a ir a sus hijos. Críenlos en la disciplina e instrucción del Señor. De nuevo, hijos, ¿Por qué obedeces a tu padre? ¿Por qué honras a tu padre y a tu madre? Porque hay una protección que viene incluso de Dios. Que cuando tú honras a tu padre y a tu madre tendrás larga vida sobre la tierra y en todo te irá bien. Si tú supieras que la clave del éxito en la vida es honrar a tu padre y a tu madre y pudieras ver cómo la historia de tu vida va a llevar a un punto y que te va a ir bien solo por hacerlo, Lo harías.
+Y padres no provoquen a ir a sus hijos. Críenlos en la disciplina e instrucción del Señor. De nuevo, hijos, ¿por qué obedeces a tu padre? ¿Por qué honras a tu padre y a tu madre? Porque hay una protección que viene incluso de Dios. Que cuando tú honras a tu padre y a tu madre tendrás larga vida sobre la tierra y en todo te irá bien. Si tú supieras que la clave del éxito en la vida es honrar a tu padre y a tu madre y pudieras ver cómo la historia de tu vida va a llevar a un punto y que te va a ir bien solo por hacerlo, Lo harías.
 
 Agarrarías el paraguas cuando tú sabes que estar debajo de él te va a evitar que te mojes. Y lo mismo, los padres no crían en ira y en enojo, sino que más bien se entregan por sus hijos para proteger, para proveer y para servirlos. Y por último da este último ejemplo de siervos y de amos. Ahora, cuando hace esto, Pablo no está diciendo que está bien tener esclavos, sino remóntate al éxodo. ¿De dónde sacó Dios a Israel? De la esclavitud. Dios no está buscando ni está aprobando la esclavitud.
 

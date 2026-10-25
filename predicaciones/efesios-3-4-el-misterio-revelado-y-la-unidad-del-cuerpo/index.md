@@ -27,7 +27,7 @@ Y Pablo entonces comienza a dar esta idea y empieza a decir: estaban excluidos, 
 
 Y entonces Pablo dice: “Dios me eligió para revelar este misterio que aún no habíamos entendido”. De nuevo, el fariseo diciendo: yo, que lo sabía todo, hay algo que no había entendido, y que ahora en Cristo Jesús he entendido: que el evangelio, que la gracia, está disponible tanto para judío como para gentil. Es algo que viene en todo el Antiguo Testamento, pero sin embargo en su momento no tenían la revelación. Era un misterio para los fariseos. Y en el momento que viene Cristo y abre las manos en esa cruz, podemos entender: siempre fue el plan, el misterioso plan de Dios, reinar sobre toda la tierra, incluyendo a todas las naciones. Y él, Pablo, lo considera un privilegio: “ahora tengo el privilegio de poder servirlos, de poder mostrarles, de poder mostrar la gloria de Dios”.
 
-Ahora, ¿Cuál es este evangelio, de nuevo? Que todos tenemos acceso al reino. Que a través de Cristo, Dios ha abierto la puerta a todos. En el versículo 6 lo dice claramente:
+Ahora, ¿cuál es este evangelio, de nuevo? Que todos tenemos acceso al reino. Que a través de Cristo, Dios ha abierto la puerta a todos. En el versículo 6 lo dice claramente:
 
 > “A saber, que los gentiles son coherederos y miembros del mismo cuerpo, participando igualmente de la promesa en Cristo Jesús, mediante su buena noticia’ —mediante el evangelio de que Él reinará” (Efesios 3:6 NBLA)
 
