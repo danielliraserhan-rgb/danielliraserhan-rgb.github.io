@@ -322,3 +322,4 @@ footer .legal .wrap{display:block;padding-top:16px;padding-bottom:18px;color:#9c
 
 /* auditoria2: lectura móvil e índice */
 @media (max-width:860px){.article p,.article li,.article blockquote p{font-size:17px}.list-hero{padding-bottom:12px}.list-hero .wrap>p:last-child{margin-bottom:0}.list-hero+.crumbs{padding-top:8px;padding-bottom:8px}}
+@media (max-width:860px){.hero.list-hero{padding-bottom:6px!important}.hero.list-hero .wrap>*:last-child{margin-bottom:0!important}.hero.list-hero+.crumbs{padding-top:6px!important}}
