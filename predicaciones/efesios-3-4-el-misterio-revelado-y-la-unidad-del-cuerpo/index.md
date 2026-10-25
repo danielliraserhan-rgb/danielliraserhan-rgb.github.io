@@ -19,7 +19,7 @@ Y luego nos pone en nuestro rol como cuerpo de Cristo, como embajadores de Dios,
 
 Ahora son un solo cuerpo, ahora tienen una sola misión, ahora son un solo representante. No perdemos nuestra identidad, no perdemos nuestra etnia, no perdemos nuestra diversidad, pero ahora vivimos en unidad. De esto se tratan los siguientes capítulos. Ahora Pablo comienza a dar el ejemplo de esto en su propia vida: el ejemplo de una persona que encontró identidad en Cristo, que se halló en la gracia de Cristo y que fue llamado —llamado para un plan eterno, para una misión eterna, para un evangelio. Y da su ejemplo Pablo durante el capítulo 3, en donde, por amor a los gentiles, Dios lo escogió y le dio un evangelio. Regresamos a Abraham: Abraham, por amor a las naciones, fue escogido por Dios, bendecido para bendecir.
 
-## Lo que hace es: comienza diciendo “yo Pablo, prisionero de Cristo”
+## Comienza diciendo “yo Pablo, prisionero de Cristo”
 
 Y Pablo entonces comienza a dar esta idea y empieza a decir: estaban excluidos, estaban muertos, pero ahora han sido encontrados, ahora ha sido revelado. Entonces lo que hace es: comienza diciendo “yo Pablo, prisionero de Cristo”. Pablo encontró su identidad en Cristo, aunque esta carta la escribe desde la cárcel —es literalmente prisionero de Roma. Él dice: “yo no soy prisionero de Roma, yo soy prisionero por la causa de Cristo. Yo soy prisionero en Cristo, de Cristo, para Cristo”. Y su vida es completamente en Cristo.
 
@@ -29,7 +29,9 @@ Y entonces Pablo dice: “Dios me eligió para revelar este misterio que aún no
 
 Ahora, ¿cuál es este evangelio, de nuevo? Que todos tenemos acceso al reino. Que a través de Cristo, Dios ha abierto la puerta a todos. En el versículo 6 lo dice claramente:
 
-> “A saber, que los gentiles son coherederos y miembros del mismo cuerpo, participando igualmente de la promesa en Cristo Jesús, mediante su buena noticia’ —mediante el evangelio de que Él reinará” (Efesios 3:6 NBLA)
+> “A saber, que los gentiles son coherederos y miembros del mismo cuerpo, participando igualmente de la promesa en Cristo Jesús, mediante su buena noticia” (Efesios 3:6 NBLA)
+
+Mediante el evangelio de que Él reinará.
 
 Todos tenemos acceso. Y ahora tú y yo tenemos acceso y podemos entrar libremente a la presencia de Dios. Él mora en nosotros. Y somos libres del reino del mundo, de las tinieblas, del diablo, de Satanás, de las corrientes, de nuestros propios deseos pecaminosos.
 
@@ -45,21 +47,21 @@ Inescrutables riquezas: las incontables, las tantas riquezas que son imposibles 
 
 Y al ser prisionero de Cristo, es mi misión revelarle a toda persona gentil, a todas las naciones, a toda persona que no sea israelí, que no conoce los misterios de su gracia, los pactos y las promesas de Dios, que son bienvenidos —que son bienvenidos en casa, que papá los está esperando, que los brazos están abiertos, que son coherederos de un reino y de unas riquezas insondables, inalcanzables, inescrutables. Imagínate a Pablo mientras está escribiendo esto. Hay algo que lo llena. Y lo que lo llena probablemente es el Espíritu Santo, que golpea esta realidad en él mismo. Y dice: “pues entonces doblo de rodillas”. Me imagino que cae de rodillas y comienza a orar. Y en el Espíritu Santo él empieza a entender.
 
-Y dice: “por lo tanto, ruego que sean fortalecidos con poder por el Espíritu en su Espíritu interior, de manera que Cristo habite en sus corazones; y que, arraigados y cimentados en amor, sean capaces de comprender con todos los santos cuál es la anchura, la longitud, la altura, la profundidad, y de conocer el amor de Cristo que sobrepasa todo conocimiento, para que sean llenos hasta la medida de la plenitud de Dios”. Nos regresa al punto. “Quiero que entiendan”, dice Pablo, “quiero que entiendan esta increíble invitación de que Dios los ama con una anchura, una profundidad, una longitud que no podemos comprender”. El objetivo principal de toda la creación es conocer y amar a Dios, y saberte conocido y amado por Dios. Y es por medio de Cristo Jesús que podemos experimentar el deleite del amor de Cristo.
+Y dice: “por lo tanto, ruego que sean fortalecidos con poder por el Espíritu en su espíritu interior, de manera que Cristo habite en sus corazones; y que, arraigados y cimentados en amor, sean capaces de comprender con todos los santos cuál es la anchura, la longitud, la altura, la profundidad, y de conocer el amor de Cristo que sobrepasa todo conocimiento, para que sean llenos hasta la medida de la plenitud de Dios”. Nos regresa al punto. “Quiero que entiendan”, dice Pablo, “quiero que entiendan esta increíble invitación de que Dios los ama con una anchura, una profundidad, una longitud que no podemos comprender”. El objetivo principal de toda la creación es conocer y amar a Dios, y saberte conocido y amado por Dios. Y es por medio de Cristo Jesús que podemos experimentar el deleite del amor de Cristo.
 
 Dice: por lo tanto, que eso los fortalezca, que eso los vivifique, que eso los llene, que eso los arraigue. Porque hay una misión que cumplir: darle toda la gloria a Él, ponerlo a Él sobre todas las cosas, predicar el Evangelio en un mundo que está en tu contra, pero arraigado en su amor. Entonces podemos ser llamados prisioneros de Cristo, como Pablo —Pablo en medio de la cárcel, conociéndose amado, conociendo a Dios y deleitándose en Él. Dice: fortalézcanse, porque el Evangelio está siendo predicado. En su carta a los Filipenses, esto es lo que dice: algunos de esta cárcel se burlan de mí, algunos se burlan del Evangelio, algunos están en mi contra; sin embargo, el Evangelio está siendo predicado, las personas están conociendo a Dios, y el fruto se está viendo. Es en este momento que exalta a Dios y nos recuerda algo.
 
 Dice:
 
-> “Aquel que es poderoso para ser todo mucho más abundante de lo que pedimos o entendemos, según el poder que obra en nosotros, a Él sea la gloria en la iglesia y en Cristo Jesús, por todas las generaciones, por los siglos de los siglos” (Efesios 3:20 NBLA)
+> “Aquel que es poderoso para hacer todo mucho más abundante de lo que pedimos o entendemos, según el poder que obra en nosotros, a Él sea la gloria en la iglesia y en Cristo Jesús, por todas las generaciones, por los siglos de los siglos. Amén” (Efesios 3:20-21 NBLA)
 
-Amén”. Conocer a Dios produce alabanza y exaltación. Produce un deleite incalculable, en donde dice: “no yo, sino Cristo. Ahora vivo yo. Ahora no vivo yo.
+Conocer a Dios produce alabanza y exaltación. Produce un deleite incalculable, en donde dice: “no yo, sino Cristo. Ahora vivo yo. Ahora no vivo yo.
 
 Ahora vive Cristo en mí. Ahora soy de Cristo”. Y Pablo voltea a ver, probablemente, a la iglesia a través de estas letras que escribe. Dice:
 
 > “Pues prisionero del Señor, les ruego: vivan de una manera digna de la vocación con la que han sido llamados” (Efesios 4:1 NBLA)
 
-Has sido llamado. Muchas personas preguntan: ¿Y cuál es mi llamado?, ¿Y cómo sé si estoy llamado? O tratamos de delegar esta misión a otras personas, a los pastores, a los estudiosos. Quiero decirte algo: tú fuiste llamado. Pablo le está escribiendo a toda la comunidad de creyentes, a los fieles y santos en Cristo Jesús. Vive una vida digna del llamado de Dios. Conoce a Cristo y dalo a conocer. Arráigate en su amor profundo. Arráigate en tu identidad como hijo de Dios. Que sepas que eres un hijo de Dios. No hay nada que alguien pueda decirte para cambiar tu identidad.
+Has sido llamado. Muchas personas preguntan: ¿y cuál es mi llamado?, ¿y cómo sé si estoy llamado? O tratamos de delegar esta misión a otras personas, a los pastores, a los estudiosos. Quiero decirte algo: tú fuiste llamado. Pablo le está escribiendo a toda la comunidad de creyentes, a los fieles y santos en Cristo Jesús. Vive una vida digna del llamado de Dios. Conoce a Cristo y dalo a conocer. Arráigate en su amor profundo. Arráigate en tu identidad como hijo de Dios. Que sepas que eres un hijo de Dios. No hay nada que alguien pueda decirte para cambiar tu identidad.
 
 ## Has sido sellado y lleno del poder del Espíritu Santo
 
@@ -71,7 +73,7 @@ Somos llamados uno: un cuerpo, somos una familia, y actuamos como tal en el Evan
 
 Y a cada uno de nosotros se nos dio una diversidad de dones. En la iglesia se le dio una diversidad de vocaciones, de funciones, de regalos. Vivimos en unidad, pero no en uniformidad. No es el objetivo de la iglesia que todos nos vistamos iguales, que todos hablemos igual, que todos practiquemos la fe de la misma manera. El objetivo es que todos apuntemos a un solo Señor, a un solo Dios, a una sola alianza, a una sola fe, a un solo bautismo. En Cristo, en Dios, es uno solo.
 
-## Los festejos que hacen— todos ellos apuntan ahora a Cristo Jesús
+## Todos ellos apuntan ahora a Cristo Jesús
 
 Pero la expresión de la iglesia es multiforme, es diversa, de manera corporal y de manera individual. Tú vas a ver, a través de la iglesia global, diferentes expresiones de fe. Vas a tener a la iglesia mesiánica, que son los judíos que han entendido que Jesús es el Mesías. Y ellos no abandonan su etnia, ellos no abandonan sus tradiciones, ellos continúan; pero ahora estas tradiciones, esta etnia, todo lo que han hecho —el día de descanso, los festejos que hacen— todos ellos apuntan ahora a Cristo Jesús, apuntan a una sola fe. Y de hecho, nos bendicen al revelar ciertos misterios que no conocemos.
 

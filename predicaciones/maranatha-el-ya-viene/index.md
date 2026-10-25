@@ -38,13 +38,13 @@ Puntos:
 
 ## La iglesia del primer siglo - Anhelo por su regreso
 
-- ¿Porque la iglesia del primer siglo amó hasta la muerte?
+- ¿Por qué la iglesia del primer siglo amó hasta la muerte?
 - Esteban, Matías → Apedreados
 - Pedro, Andrés, Felipe → Crucificados
 - Bartolomé →Despellejado vivo
 - Santiago, Tadeo → A espada
 - Tomás, Mateo → A lanza
-- Jacobo → A Golpes
+- Jacobo → A golpes
 - Simón → Cortado vivo
 - Juan → Hervido en aceite sobrevive hasta su vejez
 - Habían entendido que:
@@ -84,8 +84,8 @@ Por ese tiempo comenzaron los hombres a invocar el nombre del Señor.
 
 - MARANATHA
 - VEN SEÑOR, VEN PAPÁ
-- Como un bebe que llora por su madre
-- Un vació se apoderó de la humanidad
+- Como un bebé que llora por su madre
+- Un vacío se apoderó de la humanidad
 - Desde entonces Dios ha revelado Su Plan para regresar a casa.
 - Por miles de años nos ha apuntado a los tiempos venideros
 - A los tiempos de hoy.
@@ -111,10 +111,10 @@ Mateo 24:3-4 y le preguntaron: «Dinos, ¿cuándo sucederá esto, y cuál será 
 - Y tú lo herirás en el talón».
 - El termómetro es Israel
 - El sistema de Satanás y del Anti-Cristo es el Anti-Semitismo
-- Odirán a Israel
-- Odiaran a Su Mesías
+- Odiarán a Israel
+- Odiarán a Su Mesías
 
-Es el aumento del antisemitismo que nos indica que quien esta obrando no es solamente el mundo, o la carne si no Satanas en un “espiritu” Anti-Cristo
+Es el aumento del antisemitismo que nos indica que quien está obrando no es solamente el mundo o la carne, sino Satanás en un “espíritu” Anti-Cristo
 
 El Apocalipsis nos revela que este sistema ha operado siempre a través de reinos, específicamente 7.
 
@@ -155,7 +155,7 @@ Así también ustedes, cuando vean todas estas cosas, sepan que Él está cerca,
 - No hay manera de saber si es el tiempo hasta que
 - Veamos el evangelio en todo el mundo
 - Veamos la abominación de desolación
-- Que quita los sacrificios 3 años y medio después de el acuerdo que los permite
+- Que quita los sacrificios 3 años y medio después del acuerdo que los permite
 
 Lo que voy a presentar hoy es tan solo una posibilidad y postura.
 
@@ -164,7 +164,7 @@ Sin embargo, es claro que la serpiente está actuando una vez más.
 - Que el espíritu del Anticristo se está propagando
 - Así como sucedió con Hitler
 - No fue el fin aunque
-- Incremento el antisemitismo y se metio poco a poco en el mundo
+- Incrementó el antisemitismo y se metió poco a poco en el mundo
 - Pero nunca vimos las señales certeras ni la abominación.
 - Así está sucediendo.
 
@@ -177,7 +177,7 @@ tan fuerte como el hierro. Y así como el hierro desmenuza y destroza todas las 
 
 Daniel 7:7-8
 
-## y vi una cuarta bestia, terrible, espantosa y en gran manera fuerte.
+Y vi una cuarta bestia, terrible, espantosa y en gran manera fuerte.
 
 - Tenía enormes dientes de hierro y devoraba, desmenuzaba y pisoteaba los restos con sus pies.
 - Era diferente de todas las bestias que la antecedieron y tenía diez cuernos.
@@ -186,15 +186,15 @@ Daniel 7:7-8
 
 Y ante este reino, solo habrá UNO quien lo detenga
 
-Seguí mirandoHasta que se establecieron tronos,Y el Anciano de Días se sentó.Su vestidura era blanca como la nieve,Y el cabello de Su cabeza como lana pura,Su trono, llamas de fuego,Y sus ruedas, fuego abrasador.
+Seguí mirando / Hasta que se establecieron tronos, / Y el Anciano de Días se sentó. / Su vestidura era blanca como la nieve, / Y el cabello de Su cabeza como lana pura, / Su trono, llamas de fuego, / Y sus ruedas, fuego abrasador.
 
-Un río de fuego corría,Saliendo de delante de Él.Miles de millares le servían,Y miríadas de miríadas estaban en pie delante de Él.El tribunal se sentó,Y se abrieron los libros.
+Un río de fuego corría, / Saliendo de delante de Él. / Miles de millares le servían, / Y miríadas de miríadas estaban en pie delante de Él. / El tribunal se sentó, / Y se abrieron los libros.
 
 11 »Entonces yo seguí mirando a causa del ruido de las palabras arrogantes que el cuerno decía. Seguí mirando hasta que mataron a la bestia, destrozaron su cuerpo y lo echaron a las llamas del fuego…
 
-Seguí mirando en las visiones nocturnas,Y en las nubes del cieloVenía uno como un Hijo de Hombre,Que se dirigió al Anciano de DíasY fue presentado ante Él.
+Seguí mirando en las visiones nocturnas, / Y en las nubes del cielo / Venía uno como un Hijo de Hombre, / Que se dirigió al Anciano de Días / Y fue presentado ante Él.
 
-Y le fue dado dominio,Gloria y reino,Para que todos los pueblos, naciones y lenguasLe sirvieran.Su dominio es un dominio eternoQue nunca pasará,Y Su reino unoQue no será destruido.
+Y le fue dado dominio, / Gloria y reino, / Para que todos los pueblos, naciones y lenguas / Le sirvieran. / Su dominio es un dominio eterno / Que nunca pasará, / Y Su reino uno / Que no será destruido.
 
 - Este mensaje no se trata de posturas, ni de amarillismo.
 - Ni siquiera del anticristo
@@ -203,15 +203,15 @@ Y le fue dado dominio,Gloria y reino,Para que todos los pueblos, naciones y leng
 - La Gloria de Dios
 - La esperanza viva
 - La razón de perseverar
-- La unica respuesta
+- La única respuesta
 - …
-- ES EL.
+- ES ÉL.
 
 ## HOY
 
-- Anti-semitismo está aumentando mas que nunca
-- El peligro a Israel esta aumentando mas que nunca
-- EL tiempo está más cerca que nunca
+- Anti-semitismo está aumentando más que nunca
+- El peligro a Israel está aumentando más que nunca
+- El tiempo está más cerca que nunca
 - Juan 15:16-17
 
 16 »Ustedes no me escogieron a Mí, sino que Yo los escogí a ustedes, y los designé para que vayan y den fruto, y que su fruto permanezca….
@@ -225,7 +225,7 @@ Juan 15:20-21
 20 En verdad les digo, que llorarán y se lamentarán, pero el mundo se alegrará; ustedes estarán tristes, pero su tristeza se convertirá en alegría. 21 Cuando la mujer está para dar a luz, tiene aflicción, porque ha llegado su hora; pero cuando da a luz al niño, ya no se acuerda de la angustia, por la alegría de que un niño haya nacido en el mundo.
 
 - Jesús está por regresar
-- El lo arreglara todo
+- Él lo arreglará todo
 - Y te ha escogido para dar fruto
 - Por lo tanto…
 - Derrama tu vida
@@ -241,7 +241,7 @@ Apocalipsis 22:3-4
 
 Apocalipsis 22:12
 
-12 «Por tanto, Yo vengo pronto, y Mi recompensa está conmigopara recompensar a cada uno según sea su obra.
+12 «Por tanto, Yo vengo pronto, y Mi recompensa está conmigo para recompensar a cada uno según sea su obra.
 
 Apocalipsis 22:17
 

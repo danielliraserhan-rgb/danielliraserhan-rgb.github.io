@@ -15,7 +15,7 @@
 
 En las primeras dos sesiones alcanzamos a estudiar el capítulo número uno de Efesios. ¿Y qué es lo que descubrimos? El plan eterno de Dios es poner a Jesús sobre todas las cosas. Esto es a lo que llamamos el reino de Dios. Y puedes escucharlo o leerlo en los evangelios como el evangelio del reino de Dios o el reino de Jesucristo. Este es el punto, este es el objetivo de todo. Él es el rey. Él es el que había sido prometido, y Él es el que anunció y reveló la gracia de Dios y la invitación a todos a este reino. Ese es el evangelio del reino. Conocimos también el propósito eterno de Dios, que ha sucedido desde la eternidad pasada y continuará hacia la eternidad futura —si es que podemos llamarla así—, que es la alabanza de la gloria de Dios.
 
-En términos más familiares, y como lo mencionamos en la clase de Orígenes en Génesis, es conocer y amar a Dios para poder irradiar a Dios. Y en esta combinación, la gloria de Dios es alabada. Y entendimos también que el rol de la iglesia, el rol nuestro de cada uno de nosotros, es participar de este plan al ser los embajadores de Jesús. De alguna manera, es ser el cuerpo de Cristo, ser los pies de Cristo, ser las manos de Cristo en la tierra, ser sus representantes —como los representantes de un reino. Así como los embajadores de cualquier país representan al país y viven de acuerdo a ese país, bajo su cultura y bajo cualquiera de sus leyes, de la misma manera el pueblo de Dios o la iglesia somos el cuerpo de Cristo. Caminamos conforme a Cristo y representamos a Cristo.
+En términos más familiares, y como lo mencionamos en la clase de orígenes en Génesis, es conocer y amar a Dios para poder irradiar a Dios. Y en esta combinación, la gloria de Dios es alabada. Y entendimos también que el rol de la iglesia, el rol nuestro de cada uno de nosotros, es participar de este plan al ser los embajadores de Jesús. De alguna manera, es ser el cuerpo de Cristo, ser los pies de Cristo, ser las manos de Cristo en la tierra, ser sus representantes —como los representantes de un reino. Así como los embajadores de cualquier país representan al país y viven de acuerdo a ese país, bajo su cultura y bajo cualquiera de sus leyes, de la misma manera el pueblo de Dios o la iglesia somos el cuerpo de Cristo. Caminamos conforme a Cristo y representamos a Cristo.
 
 ¿Cómo lo hacemos? Siguiendo a Jesús. Él es la cabeza, es el principal de todas las cosas. Dios ha puesto a Jesús como cabeza de la iglesia. No nos lideramos unos a otros: el liderazgo que seguimos es el de Jesús. Leemos la palabra, lo conocemos a Él, y entonces al conocerlo a Él actuamos más como Él, nos edificamos, nos convertimos, nos parecemos más a Él. Y la segunda cosa es que somos acompañados —o guiados, mejor dicho— por el Espíritu Santo. Es lo que leímos justo al final del primer capítulo: que el mismo Espíritu que levantó a Cristo de los muertos vive en ti. Y es este Espíritu que nos ha sellado con una garantía y con poder, en el que, en oración, en intimidad, en conocerlo a Él, podemos caminar y ser guiados por el Espíritu Santo.
 
@@ -49,7 +49,7 @@ Ahora tú y yo, como naciones gentiles, podemos tomar del fruto. Y todos quienes
 
 Pero Dios proveyó una nueva semilla, y todo aquel que toma de ella ahora tiene vida. En Cristo está sentado en lugares celestiales. En Cristo tiene sobreabundancia de las riquezas de la herencia de Dios y de las bendiciones en Cristo Jesús. Y todo esto, dice el versículo 8:
 
-> “Es por gracia han sido salvados, por medio de la fe, y no por obras, porque somos hechuras suyas, creados en Cristo Jesús para hacer buenas obras, las cuales Dios preparó de antemano para que anduviéramos en ellas” (Efesios 2:10 NBLA)
+> “Es por gracia han sido salvados, por medio de la fe, y no por obras, porque somos hechuras suyas, creados en Cristo Jesús para hacer buenas obras, las cuales Dios preparó de antemano para que anduviéramos en ellas” (Efesios 2:8-10 NBLA)
 
 Entonces, de nuevo: Dios proveyó a Cristo, tomamos de Cristo, y Dios comienza en nosotros una nueva obra. Una obra maestra. Una obra maestra que tiene una intención: mostrar en los siglos venideros —mostrar en el resto de tu vida, y de los siglos que vengan, y para toda la eternidad— la sobreabundante riqueza de Dios; es decir, mostrar su gloria a todo poder, dominio y autoridad. ¿A través de qué? De apuntarte a ti. Si tú eres padre, o tienes hijos, o si eres hijo —creo que al menos eres hijo—, tú sabes que la gloria de un papá está en su hijo. No sé si me estoy dando a entender: la gloria de un padre está en su hijo.
 
@@ -73,7 +73,11 @@ Y ahora esto se presenta en Cristo. En Cristo, Dios derribó esta pared que pare
 
 Y ahora las naciones nos unimos junto con ellos para representar a Cristo. Porque
 
-> “Por medio de Cristo los unos y los otros tenemos nuestra entrada al Padre en un mismo Espíritu’. De nuevo, la Trinidad: es por medio de Cristo tenemos entrada al Padre, somos adoptados por el Padre en el Espíritu Santo. ‘Así ya no son extraños, sino que son conciudadanos, son familia de Dios, con el fundamento de los apóstoles y de los profetas, siendo Cristo Jesús la piedra principal, la piedra angular, en quien todo edificio viene a ser un templo santo” (Efesios 2:18-20 NBLA)
+> “Por medio de Cristo los unos y los otros tenemos nuestra entrada al Padre en un mismo Espíritu” (Efesios 2:18 NBLA)
+
+De nuevo, la Trinidad: es por medio de Cristo que tenemos entrada al Padre, somos adoptados por el Padre en el Espíritu Santo.
+
+> “Así ya no son extraños, sino que son conciudadanos, son familia de Dios, con el fundamento de los apóstoles y de los profetas, siendo Cristo Jesús la piedra principal, la piedra angular, en quien todo edificio viene a ser un templo santo” (Efesios 2:19-21 NBLA)
 
 Lo que quiero decir con estos versículos es que tú y yo fuimos trasladados del reino de las tinieblas al reino de Cristo Jesús. Y en este reino de Cristo Jesús, Dios nos redefinió las cosas. Nos unimos a la misión de Israel.
 

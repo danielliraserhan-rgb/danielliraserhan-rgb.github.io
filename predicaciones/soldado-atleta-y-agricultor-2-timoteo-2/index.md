@@ -30,7 +30,7 @@ Buenas noches iglesia, es un honor y privilegio estar con ustedes un miércoles 
 
 Así que gracias, gracias por tomarse el tiempo e inspirarnos al ver su fe certera y firme.
 
-Me presento, Mi nombre es Daniel Lira. Dirijo del programa de discipulado de esta iglesia llamado Intensivo. Y junto con mi esposa coordinamos dos grupos de jóvenes cauce y vertice.
+Me presento, mi nombre es Daniel Lira. Dirijo el programa de discipulado de esta iglesia llamado Intensivo. Y junto con mi esposa coordinamos dos grupos de jóvenes, Cauce y Vértice.
 
 ## Miércoles Crecer
 
@@ -42,19 +42,19 @@ Y justo de eso quiero hablarles hoy, de avivar nuestra fe y ser fortalecidos en 
 
 El avivamiento y su presencia, aunque la encontramos muy comúnmente en la oración, también la encontramos al abrir las escrituras y encontrarnos con Jesús.
 
-Así que hoy quiero que me acompañen a estudiar la última carta de Pablo. 2 de timoteo.
+Así que hoy quiero que me acompañen a estudiar la última carta de Pablo. 2 de Timoteo.
 
-## Intro: La ultima carta de pablo
+## Intro: La última carta de Pablo
 
 Pablo escribe esta carta sabiendo que está a punto de morir en la cárcel para pasar su autoridad o misión a la siguiente generación, a Timoteo.
 
-- Imagina la importancia de está carta.
+- Imagina la importancia de esta carta.
 - ¿Cuál sería tu última carta?
 - ¿Cuál sería tu legado pasado a la siguiente generación?
 
-¿En tu lecho de muerte, que dejarías, qué consejo darías, a quién le escribirías?
+¿En tu lecho de muerte, qué dejarías, qué consejo darías, a quién le escribirías?
 
-Pablo podría haberle hablado del amor, podría haber hablado de la adopción, podría haber hablado de la fé.
+Pablo podría haberle hablado del amor, podría haber hablado de la adopción, podría haber hablado de la fe.
 
 Sin embargo, en sus primeros versículos Pablo nos deja claro que Timoteo ya es un hijo amado.
 
@@ -65,16 +65,16 @@ Inicia su carta diciendo Hijo amado. Así como lo hizo en su primera carta afirm
 - 2 Timoteo 1:2
 - A Timoteo, Hijo amado…
 - 2 Timoteo 1:5
-- Porque tengo presente la fe sincera que hay en tí…
-- Timoteo, Hijo Amado, tu fé es sincera. Por lo tanto te dejo mi legado,
-- VEN A MI en mis prisiones, aprende y continúa la misión
+- Porque tengo presente la fe sincera que hay en ti…
+- Timoteo, Hijo Amado, tu fe es sincera. Por lo tanto te dejo mi legado,
+- VEN A MÍ en mis prisiones, aprende y continúa la misión
 - Iglesia, Son Hijos Amados por Dios.
 - Salvados por su gracia y misericordia.
 - Adoptados y redimidos por La Sangre de Cristo.
-- Su fé es sincera.
+- Su fe es sincera.
 - Por lo tanto…
 - Vayamos a las Escrituras, Aprendamos juntos
-- Avivemos el fuego de la fé, fortalezcamonos en la gracia.
+- Avivemos el fuego de la fe, fortalezcámonos en la gracia.
 - Y Continuemos la misión, terminemos la misión.
 - 1 Timoteo 1:2
 - Él nos ha salvado y llamado con un llamamiento santo.
@@ -88,10 +88,10 @@ Inicia su carta diciendo Hijo amado. Así como lo hizo en su primera carta afirm
 
 O entregar mi vida como un soldado a Aquel que la entregó primero.
 
-Yo quiero ser un soldado que lucha la batalla de la fé por Cristo justamente por eso mismo, Nos espera una eternidad de Hijos.
+Yo quiero ser un soldado que lucha la batalla de la fe por Cristo justamente por eso mismo, Nos espera una eternidad de Hijos.
 
 - 2 Timoteo 2:1
-- Tu pues, Hijo mío, fortalécete en la gracia que hay en Cristo Jesús
+- Tú pues, Hijo mío, fortalécete en la gracia que hay en Cristo Jesús
 - Tal vez no sea fácil pero en Su Gracia nos fortalecemos.
 - Pablo compara el llamado de Cristo a 3 cosas
 - Un Soldado
@@ -111,10 +111,10 @@ Yo quiero ser un soldado que lucha la batalla de la fé por Cristo justamente po
 - 2 Timoteo 2:2-6
 - Lo que has oído de mí, eso encarga
 - Sufre las penalidades conmigo, como buen soldado de Cristo Jesús.
-- El soldado en servició activo no se enreda en los negocios de la vida diaria
+- El soldado en servicio activo no se enreda en los negocios de la vida diaria
 - A fin de poder agradar a aquel quien lo reclutó
 
-También el que compite como atleta no gana el premió si no compite de acuerdo a las reglas.
+También el que compite como atleta no gana el premio si no compite de acuerdo a las reglas.
 
 El labrador que trabaja debe ser el primero en recibir su parte de los frutos.
 
@@ -122,9 +122,9 @@ El labrador que trabaja debe ser el primero en recibir su parte de los frutos.
 - .
 - .
 - Y el mayor ejemplo de ello es Cristo.
-- Por amor al padre y amor a nosotros, sufrió la crucificción.
-- Ahora pablo sufre en la cárcel
-- Llama a timoteo a sufrir las penalidades
+- Por amor al padre y amor a nosotros, sufrió la crucifixión.
+- Ahora Pablo sufre en la cárcel
+- Llama a Timoteo a sufrir las penalidades
 
 Y a su vez Timoteo nos llama a nosotros, hombres fieles a seguirlo e inspirar a otros.
 
@@ -161,7 +161,7 @@ Viven y mueren por sus hermanos. Hay una hermandad con un mismo propósito.
 
 Hay un ejercicio que hacen para prepararse antes de salir a una misión llamada equipo rojo y equipo azul.
 
-El equipo azul es el encargado de crear el plan y la estrategía.
+El equipo azul es el encargado de crear el plan y la estrategia.
 
 Se dedican a estudiar profundamente el terreno, el enemigo, los recursos del equipo, la historia etc…
 
@@ -192,7 +192,7 @@ Cada soldado está preparado para obedecer de manera inmediata a su comandante.
 
 Ha estudiado y ha aprendido a confiar en su comandante.
 
-El soldado puede estar mirando el peligro de frretne, o la aparente victoria a su alcance.
+El soldado puede estar mirando el peligro de frente, o la aparente victoria a su alcance.
 
 PERO no puede huir, no puede atacar a menos que escuche la voz de su comandante.
 
@@ -200,17 +200,17 @@ No tomas la alternativa, la decisión a menos que el comandante la tome primero.
 
 En la mentalidad de un soldado entiendo que yo solo puedo ver una parte de la historia cuando es el comandante quien la ve toda.
 
-Por lo tanto me preparo, conozco sus planes y estrategias, construyo una relación para que en el día de la batalla pueda confiar completamente en el.
+Por lo tanto me preparo, conozco sus planes y estrategias, construyo una relación para que en el día de la batalla pueda confiar completamente en él.
 
 - Escuchar su voz y obedecer inmediatamente.
 - Con tal de agradar a aquel que me recluta.
 - 2 Timoteo 2:1-4
-- Tu pues, Hijo mío, fortalécete en la gracia que hay en Cristo Jesús
+- Tú pues, Hijo mío, fortalécete en la gracia que hay en Cristo Jesús
 - …
 - Sufre las penalidades conmigo, como buen soldado de Cristo Jesús.
-- El soldado en servició activo no se enreda en los negocios de la vida diaria
+- El soldado en servicio activo no se enreda en los negocios de la vida diaria
 - A fin de poder agradar a aquel quien lo reclutó
-- 2 timoteo 2:15
+- 2 Timoteo 2:15
 - Procura con diligencia presentarte a Dios aprobado,
 - como obrero que no tiene de qué avergonzarse.
 - Que maneja con precisión la palabra de verdad
@@ -218,19 +218,19 @@ Por lo tanto me preparo, conozco sus planes y estrategias, construyo una relaci�
 - No nos enredemos en la vida civil, en cambio
 - Conozcamos con diligencia las escrituras.
 
-Dediquémonos a conocer los propósitos de Dios, su plan y sus estrategías.
+Dediquémonos a conocer los propósitos de Dios, su plan y sus estrategias.
 
 Y levantemos la mano como soldados para pelear por la batalla de la fe.
 
 - A Los jóvenes, prepárense para salir al campo de batalla en las universidades
-- A los trabajadores, preparense como enviados a transformar corazones desde adentro
+- A los trabajadores, prepárense como enviados a transformar corazones desde adentro
 - Familias, preparémonos para lanzar a nuestros hijos como flechas
 
 Dueños de negocio, preparémonos para no solo dar vida económica sino vida eterna.
 
 ## El Atleta vive según su deporte
 
-- Hay un premió por el cual vivir, luchar y morir.
+- Hay un premio por el cual vivir, luchar y morir.
 - De la misma manera vive un atleta
 - El atleta mantiene un estilo de vida “Separado”
 
@@ -238,7 +238,7 @@ Disciplinado en su vida diaria para ir un día al juego, para ganar el premio fi
 
 Conoce el juego profundamente y no solo lo entiende mentalmente.
 
-Modifica su estilo de vida de acuerdo a su deporte, su misión, ganar el premió.
+Modifica su estilo de vida de acuerdo a su deporte, su misión, ganar el premio.
 
 Pero de nada le servirá jugar si no conoce cómo se juega.
 
@@ -250,14 +250,14 @@ Correr fórmula 1 con un go-kart porque tiene llantas y un motor.
 
 ## El Atleta, Conoce y sigue las reglas del juego
 
-De la misma manera hay reglas en cada juego y no podemos ganar el premió si no las conocemos.
+De la misma manera hay reglas en cada juego y no podemos ganar el premio si no las conocemos.
 
-Podemos tener excelentes estrategías, jugar en el campo correcto, tener habilidades extraordinarias…
+Podemos tener excelentes estrategias, jugar en el campo correcto, tener habilidades extraordinarias…
 
 - pero si rompemos las reglas afectamos a todo el equipo.
 - ¿Qué pasa si en la Fórmula 1 no dejas pasar a tu contrincante en una vuelta peligrosa? Te penaliza
 
-Es una excelente estrategia para ganar, pero esta estrategía puede llevar hasta la muerte.
+Es una excelente estrategia para ganar, pero esta estrategia puede llevar hasta la muerte.
 
 ¿O en el fútbol americano si le pegas al QB directo en la cabeza?
 
@@ -268,13 +268,13 @@ Tal vez gritarle a tus hijos suena que es una buena idea…
 
 Tal vez decir esa mentira que no afecta a nadie es una excelente idea…
 
-Tal vez argumentar y pelear cuando tu si tienes la razón es una excelente idea….
+Tal vez argumentar y pelear cuando tú sí tienes la razón es una excelente idea….
 
 - Pero la palabra dice:
-- Amense unos a otros
+- Ámense unos a otros
 - Pongan la otra mejilla.
-- Cuando tus papas dicen algo y “tu sabes mejor”
-- Pero la palabra dice: honraras a tu padre y a tu madre
+- Cuando tus papás dicen algo y “tú sabes mejor”
+- Pero la palabra dice: honrarás a tu padre y a tu madre
 
 Cuando puedes copiar en el examen, hacer trampa en las finanzas, robarle el cliente a tu compañero…
 
@@ -284,17 +284,17 @@ Pero de nada sirve ganar un premio de un juego que hemos inventado.
 
 Y a su vez, saber las reglas puede llevarte a utilizarlas a tu favor.
 
-- Amense unos a otros
+- Ámense unos a otros
 - Oremos sin cesar
 - Estén siempre agradecidos
 - Atesorar tesoros en el cielo
-- Llenemonos de coronas para entregarlas ante el trono de Cristo
+- Llenémonos de coronas para entregarlas ante el trono de Cristo
 - Iglesia… conozcamos el juego
 
-Cual es el juego, de que se trata la vida, a donde voy y quien soy.
+Cuál es el juego, de qué se trata la vida, a dónde voy y quién soy.
 
-- ¿Cual es el tablero del juego, como se juega?
-- Cual es el propósito y el plan para ganarlo
+- ¿Cuál es el tablero del juego, cómo se juega?
+- Cuál es el propósito y el plan para ganarlo
 - No es algo que haga porque me guste o no
 - Amo el juego y por eso juego conforme a las reglas.
 
@@ -305,12 +305,12 @@ LA CARRERA DE LA FE
 ## El Agricultor
 
 - Y todo lo hacemos como agricultores.
-- Habiendo que cada semilla…
+- Sabiendo que cada semilla…
 - Cada gota de sudor
 - Cada Palabra, Cada perdón,
 - Cada abrazo al que no merecía
 - Cada acción de obediencia es como esa semilla plantada
-- Seguros que dara fruto algun día.
+- Seguros que dará fruto algún día.
 - Hoy podemos ser soldados porque eternamente seguiremos siendo Hijos
 
 Hoy somos atletas incansables porque eternamente recibiremos descanso en el Reino de Dios.
@@ -326,37 +326,37 @@ Hoy somos atletas incansables porque eternamente recibiremos descanso en el Rein
 
 y útil para enseñar, para reprender, para corregir, para instruir en justicia.
 
-- A fun de que el hombre de Dios sea perfecto,
+- A fin de que el hombre de Dios sea perfecto,
 - Equipado para toda buena obra.
 - Y así al final de nuestros días. Poder escribir una carta en la que digamos:
 - 2 Timoteo 4:7
 - [Como soldado] He peleado la buena batalla.
 - [Como Atleta] He terminado la carrera, he guardado la fe.
 
-[Como agricultor] En el futuro me está reservada la corona de justicia que el Señor, Juez justo, me entregará a mi.
+[Como agricultor] En el futuro me está reservada la corona de justicia que el Señor, Juez justo, me entregará a mí.
 
-Y no solo a mi, también a TODOS los que aman su venida.
+Y no solo a mí, también a TODOS los que aman su venida.
 
 Tenemos una esperanza segura.
 
-Has visto a Cristo Jesús, has visto su cruz y has visto su resurrección!!
+¡Has visto a Cristo Jesús, has visto su cruz y has visto su resurrección!
 
 - Hemos sido seducidos y enamorados por Jesús
 - ¡Qué tengo que hacer Cristo para estar junto a ti!
 - ¿Qué tengo que hacer para seguirte?
-- Quiero más de ti!
-- Mas de ti!
-- Que necesito????!
+- ¡Quiero más de ti!
+- ¡Más de ti!
+- ¿Qué necesito?
 - Amamos su venida y la esperamos ansiosamente….
 - Y mientras tanto…
 
-Concéntrate en las escrituras, es lo más cercano que podemos estár a Jesús. La palabra de Dios.
+Concéntrate en las escrituras, es lo más cercano que podemos estar a Jesús. La palabra de Dios.
 
-Y dejemos que el Espíritu Santo nis recuerde siempre que en todo momento esta con nosotros.
+Y dejemos que el Espíritu Santo nos recuerde siempre que en todo momento está con nosotros.
 
 Iglesia….
 
-Es por esto que hemos creado el programa intensivo y específicamente el Intensivo en Linea.
+Es por esto que hemos creado el programa intensivo y específicamente el Intensivo en Línea.
 
 - Somos soldados, debemos prepararnos con diligencia y no enredarnos en la vida
 - Somos atletas concentrados y devotos a ganar el premio juntos

@@ -42,7 +42,7 @@ Apocalipsis 1:9–19
 - Un Cristo sin Velo. Totalmente revelado.
 - Pero me llama la atención que lo primero que ve son los candelabros.
 - Candelabros que tienen un solo propósito: Mantener la llama viva para alumbrar al que está en el centro.
-- Alumbrar al Rey, A aquel que merece la gloria.
+- Alumbrar al Rey, a aquel que merece la gloria.
 - El único que merece ser visto por todos en la tierra.
 
 El único propósito de los candelabros es mantener la llama viva para alumbrar al
@@ -61,27 +61,25 @@ Apocalipsis 1:20
 
 - Una buena escatología, un buen estudio del fin debe llevarte siempre a una aplicación de HOY.
 - A la misión, a entender tu rol y tu propósito.
-- Creo yo que esta es la respuesta que da Jesús a su iglesia en cada una de las cartas que les escribe en apocalipsis 2 y 3. Hoy no profundizaremos en cada una de las cartas, quiero
-
-tomar solo una. Una que ha rondado por mi corazón los últimos meses. Y que justamente leyeron la semana pasada.
+- Creo yo que esta es la respuesta que da Jesús a su iglesia en cada una de las cartas que les escribe en Apocalipsis 2 y 3. Hoy no profundizaremos en cada una de las cartas, quiero tomar solo una. Una que ha rondado por mi corazón los últimos meses. Y que justamente leyeron la semana pasada.
 
 Apocalipsis 2:1-7
 
-> »Escribe al ángel de la iglesia en Éfeso: “El que tiene las siete estrellas en Su mano derecha, Aquel que and entre los siete candelabros de oro, dice esto:
+> »Escribe al ángel de la iglesia en Éfeso: “El que tiene las siete estrellas en Su mano derecha, Aquel que anda entre los siete candelabros de oro, dice esto:
 > 2 ‘Yo conozco tus obras, tu fatiga y tu perseverancia, y que no puedes soportar a los malos, y has sometido a prueba a los que se dicen ser apóstoles y no lo son, y los has hallado mentirosos.
 > 3 ’Tienes perseverancia, y has sufrido por Mi nombre y no has desmayado.
 
-- Haz hecho todo increíble.
-- Perseveras, eres excelente, has estudiado, buscas la justicia rechazas la maldad.
+- Has hecho todo increíble.
+- Perseveras, eres excelente, has estudiado, buscas la justicia, rechazas la maldad.
 - No te vas de aquí para allá con cada corriente sino que pruebas a quienes dicen ser “enviados de Dios”
 - Excelente Doctrina
 - Eres perseverante y sufres a causa de mi nombre.
-- Wow… Que increíble iglesia. Incansable
+- Wow… Qué increíble iglesia. Incansable
 - Sin embargo… Dios sabe que hay algo que puede apagar su luz.
 - Algo que ha pasado con ellos y quiere llamarlos de regreso.
 - Este Pero… 1. no invalida todo lo bueno …
 
-2. Es una exhortación amorosa de Dios para prevenir que la llama se apague. Porque el sabe que hay algo que puede apagarla.
+2. Es una exhortación amorosa de Dios para prevenir que la llama se apague. Porque Él sabe que hay algo que puede apagarla.
 
 Apocalipsis 2:4-5
 
@@ -95,19 +93,19 @@ Apocalipsis 2:4-5
 
 - Hoy no estoy hablándole a un individuo estoy hablándole a una comunidad.
 - No se trata de TU relación personal con Dios ni de TUS obras.
-- No se trata de que TU estes bien con Dios y que TU si oras, y lees y vienes y estudias.
+- No se trata de que TÚ estés bien con Dios y que TÚ sí oras, y lees y vienes y estudias.
 - Se trata de un pueblo, de un cuerpo de una comunidad.
 - Nos necesitamos unos a otros para poder pararnos alrededor de Cristo como Iglesia.
 - Comenzar a transicionar del yo al nosotros
 
-No nos abandonamos para perseguir experiencias individuales sino que nos acompañamos para conocer a LA PERSONA DE JESUS, juntos.
+No nos abandonamos para perseguir experiencias individuales sino que nos acompañamos para conocer a LA PERSONA DE JESÚS, juntos.
 
-¿A que se refiere Efesios con el Primer Amor y las Obras que hacían al principio?
+¿A qué se refiere Efesios con el Primer Amor y las Obras que hacían al principio?
 
-- Puede ser un termino muy extraño y podemos utilizarlo para justificar cualquier tipo de cosas.
+- Puede ser un término muy extraño y podemos utilizarlo para justificar cualquier tipo de cosas.
 - Y el error es que usualmente creemos que habla a individuos cuando nos está hablando como iglesia.
 - Cuando lo vemos como iglesia esto se torna en:
-- Una comunidad que: Busca a la persona que esta en el centro En Palabra y en Espíritu, sabiendo que si primer amor no es la experiencia sino la persona. En la intimidad de la adoración y lectura que produce obediencia y multiplicación. Una comunidad que adora en Espíritu y Verdad.
+- Una comunidad que: Busca a la persona que está en el centro, en Palabra y en Espíritu, sabiendo que su primer amor no es la experiencia sino la persona. En la intimidad de la adoración y lectura que produce obediencia y multiplicación. Una comunidad que adora en Espíritu y Verdad.
 
 ## Nehemías, Esdras y la comunidad y el segundo templo
 
@@ -115,8 +113,8 @@ Un momento en el que todo un pueblo regresa al primer amor y comienza a hacer la
 
 - Historia de la separación de Israel
 - Historia del regreso de Israel
-- Y es Nehemías quien al ver a su pueblo regresando pero desunidos, sin murallas, sin proteccipon es movido para regresar.
-- La reconstrucción de las murallas en Nehemías representa la unidad de una comunidad que esta siendo restaurada.
+- Y es Nehemías quien al ver a su pueblo regresando pero desunidos, sin murallas, sin protección, es movido para regresar.
+- La reconstrucción de las murallas en Nehemías representa la unidad de una comunidad que está siendo restaurada.
 
 ## Nehemías → Comunidad reunida con un mismo propósito
 
@@ -130,9 +128,9 @@ Esdras → Una casa para Él (una comunidad con Él al centro)
 
 Esdras 3:10-13
 
-> Cuando los albañiles terminaron de echar los cimientos del templo del SEÑOR, se presentaron los sacerdotes en sus vestiduras, con trompetas, y los levitas, hijos de Asaf, con címbalos, para alabar al SEÑOR conforme a las instrucciones del rey David de Israel. 11 Y cantaban, alabando y dando gracias al SEÑORa: «Porque Él es bueno, porque para siempre es Su misericordia sobre Israel». Y todo el pueblo aclamaba a gran voz alabando al SEÑOR porque se habían echado los cimientos de la casa del SEÑOR. 12 Pero muchos sacerdotes y levitas y jefes de casas paternas, que ya eran ancianos y que habían visto el primer templo, cuando se echaban los cimientos de este templo delante de sus ojos, lloraban en alta voz mientras muchos daban gritos de alegría. 13 Así que el pueblo no podía distinguir entre el clamor de los gritos de alegría y el clamor del llanto del pueblo, porque el pueblo grita en voz alta, y se oía el clamor desde lejos.
+> Cuando los albañiles terminaron de echar los cimientos del templo del SEÑOR, se presentaron los sacerdotes en sus vestiduras, con trompetas, y los levitas, hijos de Asaf, con címbalos, para alabar al SEÑOR conforme a las instrucciones del rey David de Israel. 11 Y cantaban, alabando y dando gracias al SEÑOR: «Porque Él es bueno, porque para siempre es Su misericordia sobre Israel». Y todo el pueblo aclamaba a gran voz alabando al SEÑOR porque se habían echado los cimientos de la casa del SEÑOR. 12 Pero muchos sacerdotes y levitas y jefes de casas paternas, que ya eran ancianos y que habían visto el primer templo, cuando se echaban los cimientos de este templo delante de sus ojos, lloraban en alta voz mientras muchos daban gritos de alegría. 13 Así que el pueblo no podía distinguir entre el clamor de los gritos de alegría y el clamor del llanto del pueblo, porque el pueblo grita en voz alta, y se oía el clamor desde lejos.
 
-- Terminan de edificar el templo, lo dedican al señor y justamente cae en Pascua.
+- Terminan de edificar el templo, lo dedican al Señor y justamente cae en Pascua.
 
 Esdras 6:21-22
 
@@ -147,11 +145,11 @@ Esdras 7:9-10
 > la mano bondadosa de su Dios estaba sobre él,
 > 10 Porque Esdras había dedicado su corazón a estudiar la ley del SEÑOR, y a practicarla, y a enseñar Sus estatutos y ordenanzas en Israel
 
-- Y todo el pueblo se reúne y le piden leer las escrituras.
+- Y todo el pueblo se reúne y le piden leer las Escrituras.
 
 Nehemías 8:1
 
-> “Todo el pueblo se reunió como UN SOLO HOMBRE” Leían en voz alta las escrituras desde la mañana hasta la noche Y reinan, festejaban, lloraban y se entristecían llenos de nostalgia Y en medio de la lectura explotaban en adoración.
+> “Todo el pueblo se reunió como UN SOLO HOMBRE” Leían en voz alta las Escrituras desde la mañana hasta la noche. Y reían, festejaban, lloraban y se entristecían llenos de nostalgia Y en medio de la lectura explotaban en adoración.
 
 Nehemías 8:5-8
 
@@ -166,17 +164,17 @@ Nehemías 8:5-8
 
 ## Aplicando y enseñando
 
-- Interpretaban, aplicaban, enseñaban las escrituras.
+- Interpretaban, aplicaban, enseñaban las Escrituras.
 
 ## ¿Cómo mantenemos la llama viva?
 
-Ciclo de Adorar y leer para estar con el que provoca obediencia y multiplicación
+Ciclo de Adorar y leer para estar con Él que provoca obediencia y multiplicación
 
-Encuentros con Él que producen obediencia y multiplicación Lo más hermoso de esto es que el ciclo puede iniciar en cualquiera de las 3. La adoración provoca querer conocer a Cristo Conocer a Cristo provoca unirse como un solo Hombre Y unirse como un solo hombre al rededor de Jesús provoca a su vez adoración.
+Encuentros con Él que producen obediencia y multiplicación Lo más hermoso de esto es que el ciclo puede iniciar en cualquiera de las 3. La adoración provoca querer conocer a Cristo Conocer a Cristo provoca unirse como un solo Hombre Y unirse como un solo hombre alrededor de Jesús provoca a su vez adoración.
 
 El ciclo inicia en cualquier parte y solo necesita a 1 persona para iniciarlo
 
-Nehemías, un tipo de Cristo, reunió a todos como una comunidad bajo un propósito. Esdras, un tipo de Cristo, abrió las escrituras y las leyó.
+Nehemías, un tipo de Cristo, reunió a todos como una comunidad bajo un propósito. Esdras, un tipo de Cristo, abrió las Escrituras y las leyó.
 
 ## Apóstoles
 
@@ -198,23 +196,23 @@ Llamados a dejarlo todo como comunidad para mantener la llama viva y exaltar al 
 - Ustedes son los enviados
 - Conocer a Cristo y parecerte más a él
 - Al finalizar el año
-- Que la gente diga que pasó aquí
+- Que la gente diga qué pasó aquí
 - Quién es esa persona
 - Necesito lo que ellos tienen
-- Necesito a Cristo!!!!!!!
-- Que pasó en Monterrey
-- Que pasó en México
-- Que pasó en ese lugar
+- ¡Necesito a Cristo!
+- Qué pasó en Monterrey
+- Qué pasó en México
+- Qué pasó en ese lugar
 
-No podemos perder de vista nuestro primer amor pero tampoco las obras que eso produce. Primer amor nos llevar a experiencias increíbles, pero puedes estancarte ahí engañado.
+No podemos perder de vista nuestro primer amor pero tampoco las obras que eso produce. Primer amor nos lleva a experiencias increíbles, pero puedes estancarte ahí engañado.
 
 - Jesús sana y alimentaba a las multitudes, pero ellos solo lo seguían por los milagros. Las experiencias
 - Pero los Apóstoles recogían las sobras y subían al monte a seguir conociendo a la PERSONA
 
 Las obras nos pueden llevar a un conocimiento y transformación increíble pero puede volverse legalismo o humanismo.
 
-- El fariseo invita a Jesús a su casa. Pero nunca se preocupo por atenderlo, honrarlo ni ungirlo
-- Solamente queria el beneficio de tenerlo, la experiencia de comer con Él
+- El fariseo invita a Jesús a su casa. Pero nunca se preocupó por atenderlo, honrarlo ni ungirlo
+- Solamente quería el beneficio de tenerlo, la experiencia de comer con Él
 - La mujer, sin importar la experiencia, ni el beneficio derramó todo por Él.
 
 Yo no quiero ser uno de las multitudes, prefiero recoger las sobras para estar con Jesús
@@ -223,4 +221,4 @@ Yo no quiero presumir a Jesús y hacer cosas para Él; quiero ser quien entrega 
 
 ¿Cómo mantenemos la llama ardiente? Arranquemos el velo del legalismo y el velo de la experiencia eterna con Dios. Vayamos a la persona de Cristo en toda su gloria y la verdad de una iglesia que es llamada a dejarlo todo. A seguir a Cristo a la CRUZ para poder experimentar las glorias de la RESURRECCIÓN.
 
-Déjalo todo. Déjalo ahora. Dáselo a él. Entra en su gobierno. Entra en su reino. Entra en su vida. Y deja que tu vida sea solamente un alabastro vacío que será llenado solamente de Él. Derrama todo: tus sueños. Tus anhelos. Tu tiempo. ¡Dáselo a él ahora! Comprométete a una sola cosa: Conocer y ser conocido. Amar y ser amado. ¡Por el único que importa en esta vida! Todo lo demás es basura y vanidad. Todo fuera de este propósito queda en el olvido. Queda en el vacío. Entrega tu vida para Adorarlo, leer, estudiar las escrituras, aplicar las escrituras y enseñar las escrituras. Intensivo. Intensivo en línea. Grupos Conexión. Retiro. Todo eso es porque sabemos que somos una comunidad y no individuos.
+Déjalo todo. Déjalo ahora. Dáselo a él. Entra en su gobierno. Entra en su reino. Entra en su vida. Y deja que tu vida sea solamente un alabastro vacío que será llenado solamente de Él. Derrama todo: tus sueños. Tus anhelos. Tu tiempo. ¡Dáselo a él ahora! Comprométete a una sola cosa: Conocer y ser conocido. Amar y ser amado. ¡Por el único que importa en esta vida! Todo lo demás es basura y vanidad. Todo fuera de este propósito queda en el olvido. Queda en el vacío. Entrega tu vida para adorarlo, leer, estudiar las Escrituras, aplicar las Escrituras y enseñar las Escrituras. Intensivo. Intensivo en línea. Grupos Conexión. Retiro. Todo eso es porque sabemos que somos una comunidad y no individuos.

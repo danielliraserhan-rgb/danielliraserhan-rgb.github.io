@@ -15,7 +15,7 @@
 
 Así que llegamos a la armadura de Dios. Esta armadura que tal vez viste algún día en escuela dominical, la pintaste, la describiste, tal vez hasta te la sabes de memoria. Pero es algo bien importante porque Pablo lleva diciéndonos su teología, la misión que tiene la iglesia, qué es la iglesia, cómo funciona, nos habla de este sometimiento que hay, pero luego termina como diciendo: recuerda esta parte que es bien importante. Y creo que es sumamente importante reconocer esto porque podemos perdernos en los detalles, podemos perdernos en que si lo estoy haciendo, si no lo estoy haciendo, o si lo estoy haciendo para recibir un beneficio, o si lo estoy haciendo para…
 
-¿Por qué lo hago? Entonces nos recuerda, y dice en el versículo número 10 del capítulo 6: “por lo demás, fortalézcanse en el Señor y en el poder de su fuerza.
+¿Por qué lo hago? Entonces nos recuerda, y dice en el versículo número 10 del capítulo 6: “por lo demás, fortalézcanse en el Señor y en el poder de su fuerza”.
 
 > “Revístanse con toda la armadura de Dios para que puedan estar firmes contra las insidias del diablo. Nuestra lucha no es contra sangre y carne, sino contra principados, contra potestades, contra poderes de este mundo de tinieblas, contra las fuerzas espirituales de maldad en las regiones celestes” (Efesios 6:11-12 NBLA)
 
@@ -45,7 +45,7 @@ Sin embargo, la coraza de justicia del sumo sacerdote nos habla de una realidad 
 
 ¿Cuál es el calzado con el que nos revestimos tú y yo? El calzado de la paz —es decir, la presencia del Señor. En cualquier lugar en donde tú y yo estamos está la presencia del Señor. Es tierra santa, es un lugar santo. Y entendiendo esa realidad, el calzado trae paz. No anunciamos guerra, no anunciamos ataques: anunciamos la presencia del Señor, e invitamos a las personas de regreso a casa. Porque la lucha no es contra la persona que tienes enfrente, no es contra tu jefe, no es contra tu esposa o tus hijos, no es contra el que se te metió en el carro, no es contra aquellos que hacen lo malo. Hay algo detrás de ello.
 
-Y cuando nosotros nos presentamos ceñidos con la verdad —es decir, esta es la verdad y no me voy a mover de ella— estoy protegido por quien es Cristo Jesús y por su plan, y vengo a anunciarte la paz. La gente no sabe qué pasa: se desconcierta, no entiende, y comienzan a hacer frases como “quiero eso que tú tienes”, “¿Por qué estás tan tranquilo cuando todo está saliendo mal?”, “¿Por qué?”. Porque hay una realidad espiritual que comienzas a transmitir. Te conviertes, de alguna manera, en un sacramento, en una señal para otras personas, que revela una gracia divina de manera externa.
+Y cuando nosotros nos presentamos ceñidos con la verdad —es decir, esta es la verdad y no me voy a mover de ella— estoy protegido por quien es Cristo Jesús y por su plan, y vengo a anunciarte la paz. La gente no sabe qué pasa: se desconcierta, no entiende, y comienzan a hacer frases como “quiero eso que tú tienes”, “¿por qué estás tan tranquilo cuando todo está saliendo mal?”, “¿por qué?”. Porque hay una realidad espiritual que comienzas a transmitir. Te conviertes, de alguna manera, en un sacramento, en una señal para otras personas, que revela una gracia divina de manera externa.
 
 ## Con el que podrán apagar todos los dardos encendidos del maligno
 

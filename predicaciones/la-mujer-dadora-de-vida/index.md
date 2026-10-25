@@ -48,7 +48,7 @@ Creada no inferior sino a la imagen de Dios.
 
 Creada no para suplir una necesidad sino para hacer bueno lo malo.
 
-Pues fue por una mujer que vendría el salvador
+Pues fue por una mujer que vendría el Salvador
 
 Fue por una mujer que Israel regresó a su tierra y pudo restaurar su reino.
 
@@ -78,7 +78,7 @@ Haciendo cesáreas y operaciones para compartir el amor de Cristo.
 - Es por ellas que vendrá la vida.
 - Es por ella que vendrá la salvación
 - Es por ella que vendría la restauración.
-- Es por ella que vendría el salvador.
+- Es por ella que vendría el Salvador.
 - Pues es la semilla de una mujer quien aplastará la serpiente
 - Y eso hace al diablo temblar
 - Pero nos hemos creído sus mentiras
@@ -109,7 +109,7 @@ Es nuestro trabajo que ninguna mujer tenga que sentirse amenazada por un hombre 
 
 - Como cuando corremos por el paraguas en una tormenta.
 - Yo me mojaré para que tú no te mojes
-- Pues de ti vendrá la vida!
+- ¡Pues de ti vendrá la vida!
 
 ## Es Cristo y su novia la mejor representación
 
@@ -126,7 +126,7 @@ Es Jesús quien se le apareció a Saulo en medio del camino y se tomó la persec
 
 Oh, Saulo, ¿por qué me persigues?
 
-Es Jesús quien tomó la Cruz y recibió el golpe completo para que su novia no tuviera que hacerlo.
+Es Jesús quien tomó la cruz y recibió el golpe completo para que su novia no tuviera que hacerlo.
 
 - De esta misma manera, amamos, protegemos a nuestras mujeres
 - Damos nuestra vida por ellas.

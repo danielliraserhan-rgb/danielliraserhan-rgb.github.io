@@ -13,7 +13,7 @@
 
 ## Dos partes de esta lectura
 
-Hay dos partes de esta lectura. La primera tiene que ver con el contexto en el que estamos. Pedro y Juan ante el concilio por haber sanado a un hombre de 40 años que era paralítico. Ahí predican sin importar las consecuencias y testifican acerca del nombre de Jesús y su obra redentor.
+Hay dos partes de esta lectura. La primera tiene que ver con el contexto en el que estamos. Pedro y Juan ante el concilio por haber sanado a un hombre de 40 años que era paralítico. Ahí predican sin importar las consecuencias y testifican acerca del nombre de Jesús y su obra redentora.
 
 La segunda es cuando el concilio delibera para poner fin a la predicación de los discípulos tratando de intimidarlos. Sin embargo, Pedro y Juan siguen firmes sobre la roca y dejan ver su convicción profunda: ¿A quién debemos, a Dios o a los hombres?
 
@@ -21,7 +21,7 @@ La segunda es cuando el concilio delibera para poner fin a la predicación de lo
 
 - En cualquier oportunidad de predicar el evangelio:
 - ¿Con qué poder han hecho esto?
-- No el nuestro, sino el de Jesús el nazareno
+- No el nuestro, sino el de Jesús el Nazareno
 - Siempre apuntamos a Cristo, testificando su nombre
 - El que murió crucificado y resucitó al tercer día
 - Y a su obra que testifica que Él es el Mesías.
@@ -29,8 +29,8 @@ La segunda es cuando el concilio delibera para poner fin a la predicación de lo
 
 De la misma manera que lo hizo Jesús en el camino a Emaús.
 
-- Citamos La torah, los escritos y/o los profetas
-- De la misma manera lo hizo Pedro las primeras dos predicaciones
+- Citamos la Torá, los escritos y/o los profetas
+- De la misma manera lo hizo Pedro en las primeras dos predicaciones
 
 ## Parte 2: La victoria sobre la intimidación
 

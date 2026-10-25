@@ -24,17 +24,17 @@ Puntos:
 
 ## La barca (Cuando vamos sin Dios)
 
-- Cuando está oscuro y en tormenta… se dan cuenta que Jesús no esta
+- Cuando está oscuro y en tormenta… se dan cuenta que Jesús no está
 - Jesús llega caminando en el agua
 - El milagro es su presencia
-- Práctica su presencia
+- Practica su presencia
 
 Volvernos expertos en relacionarnos con Dios y sentir nuestros momentos, saber si él está ahí antes de subirnos a la barca.
 
-- Moises platicaba con Dios Cara a Cara… Tú también puedes.
+- Moisés platicaba con Dios Cara a Cara… Tú también puedes.
 - Él te ve
 
-Aun cuando nos hemos subido a esa barca, él nos ve. El me vio y me salvó, él te ve. El va contigo. El caminara en el agua si es necesario y te llevará a tierra firme.
+Aun cuando nos hemos subido a esa barca, él nos ve. Él me vio y me salvó, él te ve. Él va contigo. Él caminará en el agua si es necesario y te llevará a tierra firme.
 
 Él es nuestra barca.
 
@@ -42,7 +42,7 @@ Aun cuando nos hemos subido a esa barca, él nos ve. El me vio y me salvó, él 
 
 Algunos de ustedes están trabajando, Muchos se acaban de graduar, felicidades. Y otros están por hacerlo.
 
-Orando y meditando en estos le di muchas vueltas preguntando a Dios que quería transmitirles.
+Orando y meditando en estos le di muchas vueltas preguntando a Dios qué quería transmitirles.
 
 Empecé a recordar esos momentos en mi vida.
 
@@ -56,13 +56,13 @@ El vacío que sentía cuando estaba oscuro y me quedaba solo con la tormenta de 
 
 Sabiendo y pensando que no era suficiente y que nunca lo sería.
 
-Con el miedo a fracasar y luchando día a día sin saber a donde ir o porque lo hacia.
+Con el miedo a fracasar y luchando día a día sin saber adónde ir o por qué lo hacía.
 
-Pero Dios me vio!
+¡Pero Dios me vio!
 
-El me vio en mi condición, vio mi angustia y me encontró, me salvó, me dio dirección y propósito.
+Él me vio en mi condición, vio mi angustia y me encontró, me salvó, me dio dirección y propósito.
 
-Hoy es solo el quien me sostiene.
+Hoy es solo él quien me sostiene.
 
 Dios puso algo en mi corazón y quiero compartirlo desde lo más profundo de mi ser… durante esta temporada de nuevas ambiciones y logros, donde inician nuevos trabajos y nuevas libertades….
 
@@ -71,7 +71,7 @@ Dios puso algo en mi corazón y quiero compartirlo desde lo más profundo de mi 
 - Ustedes son discípulos, Hijos de Dios.
 - Adoptados y redimidos por el creador del universo.
 
-Tu vida, tu identidad, tu llamado y tu propósito se encuentran en el, siempre, en todo momento y toda temporada.
+Tu vida, tu identidad, tu llamado y tu propósito se encuentran en él, siempre, en todo momento y toda temporada.
 
 Colosenses 2:6-11
 
@@ -87,10 +87,10 @@ Como si todo esto fuera a llenar tu vida de propósito, como si esa fuera la dir
 No te dejes engañar, solo en Cristo habita toda la plenitud de Dios.
 
 - Solo en Cristo somos completos.
-- Permanezcan en el!
+- ¡Permanezcan en él!
 
 Si estamos en un “negocio” en el de aprender a caminar con Dios todos los días de nuestras vidas, en toda temporada y en todos los momentos.
 
-Acérquense a Él y El se acercará a ustedes.
+Acérquense a Él y Él se acercará a ustedes.
 
 La barca

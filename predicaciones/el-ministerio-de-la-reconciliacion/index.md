@@ -32,7 +32,7 @@ Juan 17:20-23
 
 ## Separados de Dios y de nuestros hermanos
 
-Así como estos versículos podemos encontrar a través de toda la Biblia este mensaje central. Hemos sido separados de Dios y de nuestros hermanos. Cristo vino, murió y resucitó para que pudiéramos regresar a él, regresar a una relación correcta, reconciliarnos con Él. Pero también vino para que pudiéramos reconciliarnos con nuestros hermanos. Para en esta unidad reflejar a él y dar testimonio de que tal unidad solo viene de él. Y el regresará un día por sus hijos, por su novia y nos ha encargado reunir a sus hijos, a sus ovejas. Nos ha dejado el ministerio de la reconciliación por la cual la iglesia unida pueda llevar a que el mundo se reconcilie con su Padre y con sus hermanos formando así un solo cuerpo. El cuerpo de Cristo.
+Así como estos versículos podemos encontrar a través de toda la Biblia este mensaje central. Hemos sido separados de Dios y de nuestros hermanos. Cristo vino, murió y resucitó para que pudiéramos regresar a él, regresar a una relación correcta, reconciliarnos con Él. Pero también vino para que pudiéramos reconciliarnos con nuestros hermanos. Para en esta unidad reflejar a él y dar testimonio de que tal unidad solo viene de él. Y él regresará un día por sus hijos, por su novia y nos ha encargado reunir a sus hijos, a sus ovejas. Nos ha dejado el ministerio de la reconciliación por la cual la iglesia unida pueda llevar a que el mundo se reconcilie con su Padre y con sus hermanos formando así un solo cuerpo. El cuerpo de Cristo.
 
 Esto lo podemos ver desde Génesis, desde la creación misma y la caída. Adán y Eva, a través del pecado rompen su relación con Dios. Ahora tienen vergüenza de estar frente a él e inclusive se esconden de él. Son desterrados de la tierra que estaba preparada para relacionarse con Dios.
 
@@ -44,7 +44,7 @@ Pero también lo podemos ver con Caín y Abel.
 
 Génesis 4:8
 
-> 8 Cierto día Caín dijo a su hermano: «Salgamos al campo». Mientras estaban en el campo, Caín atacó a su hermano Abel y lo mató.
+> Cierto día Caín dijo a su hermano: «Salgamos al campo». Mientras estaban en el campo, Caín atacó a su hermano Abel y lo mató.
 
 Génesis 4:11
 
@@ -69,10 +69,10 @@ Efesios 2:13-14
 - Hemos sido reconciliados por la sangre de Cristo
 - Ha traído paz entre los hermanos, Judíos y Gentiles.
 
-Efesios 2:15 - 16
+Efesios 2:15-16
 
 > He did this in order to create within Himself one new man from the two groups, making shalom, and to reconcile both to God in one body through the cross—by which He put the hostility to death.
 
-Lo logró al poner fin al sistema de leyes de mandamientos y ordenanzas. Hizo la paz entre judíos y gentiles al crear de los dos grupos un nuevo pueblo en él. 16 Cristo reconcilió a ambos grupos con Dios en un solo cuerpo por medio de su muerte en la cruz, y la hostilidad que había entre nosotros quedó destruida.
+Lo logró al poner fin al sistema de leyes de mandamientos y ordenanzas. Hizo la paz entre judíos y gentiles al crear de los dos grupos un nuevo pueblo en él. Cristo reconcilió a ambos grupos con Dios en un solo cuerpo por medio de su muerte en la cruz, y la hostilidad que había entre nosotros quedó destruida.
 
 Lo hizo para crear en sí mismo un nuevo hombre.

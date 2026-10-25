@@ -11,15 +11,15 @@
 
 ---
 
-- Que somos
-- Que hacemos
+- Qué somos
+- Qué hacemos
 - A qué venimos
-- Porque existimos
+- Por qué existimos
 - Honestamente son las preguntas de todo ser humano
 - Algunas de las que muchos de ustedes vienen a responder
 - Como náufragos a la deriva buscando tierra
 - El mundo feliz de la trinidad
-- Creo todo y todo es bueno
+- Creó todo y todo es bueno
 - La gran mentira del mundo: la verdad, lo que es bueno, lo que es bello
 - Los dos árboles: Vivimos según Sus palabras que dan vida o nuestro conocimiento que trae muerte
 - Identidad líquida vs identidad firme
@@ -32,7 +32,7 @@ José
 
 Efesios 1:
 
-- La obra del padre
+- La obra del Padre
 - La obra del Hijo
 - La obra del Espíritu Santo
 - Efesios + Juan 15
@@ -40,11 +40,11 @@ Efesios 1:
 Aunque estábamos rotos… en Cristo
 
 - Nos dio
-- Identidad en efesios
-- Adoptados, más allá de cómo creciste. El es tu papá
-- Redimido, más allá de lo que has hecho. El te limpio
+- Identidad en Efesios
+- Adoptados, más allá de cómo creciste. Él es tu papá
+- Redimido, más allá de lo que has hecho. Él te limpió
 - Sellado, más allá de toda inseguridad. Él te garantiza vida eterna.
-- Nos traslado
+- Nos trasladó
 - Esclavos del: Diablo, del mundo y de tu carne
 - Hijos del Rey: Palabra, Espíritu su Iglesia
 - Nos unió
@@ -58,7 +58,7 @@ Aunque estábamos rotos… en Cristo
 
 ## Obra maestra
 
-- ¿Cuándo piensas en una obra que piensas?
+- ¿Cuándo piensas en una obra qué piensas?
 - ¿Fotografía?
 - ¿Pintura?
 - ¿Este paisaje increíble?
@@ -80,9 +80,9 @@ La máxima expresión de la gloria de Dios en la creación son los humanos
 
 Eres la máxima expresión de belleza cuando te entregas a las manos del alfarero.
 
-- El recuperarás lo perdido
-- El restaurará lo dañado
-- El embellecerá lo corrupto
+- Él recuperará lo perdido
+- Él restaurará lo dañado
+- Él embellecerá lo corrupto
 - Él te tomará en sus manos para irradiar belleza al mundo entero
 
 No importa si el mundo no lo quiere reconocer
@@ -129,5 +129,5 @@ Vive en la identidad firme
 - Eres la obra maestra
 - Para irradiar la gloria de Dios
 - Experimentar la alegría de seguir a Cristo
-- Deleitarte en lo que el diseño en ti
-- Y lo que el te ha invitado a vivir
+- Deleitarte en lo que él diseñó en ti
+- Y lo que él te ha invitado a vivir

@@ -17,11 +17,11 @@ Puntos:
 
 - Los puntos aleatorios de la vida y la verdad de Dios que le dan sentido
 
-## Desde Adán y Eva hasta apocalipsis, hay una historia de un rey que vendrá a liberar a su pueblo, a su novia.
+## Desde Adán y Eva hasta Apocalipsis, hay una historia de un rey que vendrá a liberar a su pueblo, a su novia.
 
 Disney y el rey/héroe que viene débil pero regresa fuerte y se queda con la chica.
 
-Hoy podemos decir.. Es Él y dejar que el peso de esta realidad consuma nuestras vidas y la convierta en una misión.
+Hoy podemos decir… Es Él y dejar que el peso de esta realidad consuma nuestras vidas y la convierta en una misión.
 
 ## Vida práctica
 
@@ -37,7 +37,7 @@ Vive para su regreso.
 
 ¿Alguna vez has jugado a estos juegos de niños en donde hay puntitos en una página con números y los vas juntando uno por uno hasta formar una imagen?
 
-Bueno… a mí me encantaban y cuando me aburría en clase agarraba una hoja en blanco y una pluma. Cerraba los ojos y bam, bam, bam hace unos 10 puntitos.
+Bueno… a mí me encantaban y cuando me aburría en clase agarraba una hoja en blanco y una pluma. Cerraba los ojos y bam, bam, bam, hacía unos 10 puntitos.
 
 Cuando abría los ojos escogía un punto al azar y empezaba a unir todos los puntitos.
 
@@ -70,7 +70,7 @@ Y a veces terminamos atascados preguntándonos de qué se trata todo esto.
 Cayendo en la trampa de un mundo que nos dice así es la vida.
 
 - Trabajo + trabajo + trabajo.
-- Siempre cansado, Siempre estresado, siempre buscando más dinero
+- Siempre cansado, siempre estresado, siempre buscando más dinero
 
 Se ha vuelto nuestro destino y nuestro propósito. Esta imagen mutante es ahora lo que da sentido e identidad a nuestra vida.
 
@@ -78,17 +78,17 @@ Y nos preguntamos si hay más….
 
 ## La imagen sin sentido
 
-Entre todos estos puntos de verdad y perspectiva el ruido de la vida nos nubla y perdemos de vista los puntos de la imagen verdadera y cuales solo son distracción
+Entre todos estos puntos de verdad y perspectiva el ruido de la vida nos nubla y perdemos de vista los puntos de la imagen verdadera y cuáles solo son distracción
 
-Hoy quiero decirte que SI HAY MÁS
+Hoy quiero decirte que SÍ HAY MÁS
 
-Que estos puntitos a los que llamamos realidad si tienen sentido. Si tienen un diseño y si tienen un propósito.
+Que estos puntitos a los que llamamos realidad sí tienen sentido. Sí tienen un diseño y sí tienen un propósito.
 
 Y cuando alcanzamos a verlo nuestra vida cambia.
 
 Y ahora, cada vez que se te presenta una mancha, una serie de puntos sin sentido. La verdad te informa.
 
-Ahora no puedes dejar de verlo. Ya sabes que la verdad se trata de un novio que baila con su novia. Y en cada mancha, en cada serie de datos que parecen aleatorios, tu que sabes la verdad, empezarás a ver la verdad.
+Ahora no puedes dejar de verlo. Ya sabes que la verdad se trata de un novio que baila con su novia. Y en cada mancha, en cada serie de datos que parecen aleatorios, tú que sabes la verdad, empezarás a ver la verdad.
 
 Apaga el ruido de lo que nosotros hemos inventado como verdad y nos enfoca a lo que verdaderamente importa… Jesús y su novia bailando por la eternidad.
 
@@ -96,7 +96,7 @@ Apaga el ruido de lo que nosotros hemos inventado como verdad y nos enfoca a lo 
 
 Necesitamos ir a la palabra y dejar que transforme nuestra vida, identificar los patrones de verdad que dejó en Su creación, en Su historia.
 
-Hoy quiero contarles un poco de está imagen, patrones que indican un origen, una misión, un propósito y un destino.
+Hoy quiero contarles un poco de esta imagen, patrones que indican un origen, una misión, un propósito y un destino.
 
 Somos hechos a su imagen y semejanza, nacidos de nuevo con un propósito bueno al que Dios nos está llamando a prepararnos.
 
@@ -127,29 +127,29 @@ Será como un arca (Restaurar los cielos y la tierra) Génesis 9:10-13
 
 13 »Pongo Mi arco en las nubes y será por señal de Mi pacto con la tierra.
 
-Vendra de abraham y pagar el precio por romper el pacto (Génesis 15:4-5)
+Vendrá de Abraham y pagar el precio por romper el pacto (Génesis 15:4-5)
 
-4 Pero la palabra del Señor vino a él, diciendo: «Tu heredero no será este, sino uno que saldrá de tus entrañas, él será tu herederoa».
+4 Pero la palabra del Señor vino a él, diciendo: «Tu heredero no será este, sino uno que saldrá de tus entrañas, él será tu heredero».
 
 5 El Señor lo llevó fuera, y le dijo: «Ahora mira al cielo y cuenta las estrellas, si te es posible contarlas». Y añadió: «Así será tu descendencia
 
-Dara su vida en sustitución (isaac) Génesis 22:13
+Dará su vida en sustitución (Isaac) Génesis 22:13
 
 13 Entonces Abraham alzó los ojos y miró, y vio un carnero detrás de él trabado por los cuernos en un matorral. Abraham fue, tomó el carnero y lo ofreció en holocausto en lugar de su hijo.
 
-Pelear junto a Israel (Dime tu nombre) Génesis 31:26-30)
+Pelear junto a Israel (Dime tu nombre) Génesis 31:26-30
 
-26 Entonces el hombre dijo: «Suéltame porque raya el alba». «No te soltaré si no me bendicesa», le respondió Jacob.
+26 Entonces el hombre dijo: «Suéltame porque raya el alba». «No te soltaré si no me bendices», le respondió Jacob.
 
 27 «¿Cómo te llamas?», le preguntó el hombre. «Jacob», le respondió él.
 
 28 Y el hombre dijo: «Tu nombre ya no será Jacob, sino Israel, porque has luchado con Dios y con los hombres, y has prevalecido»
 
-29 Entonces Jacob le dijo: «Dame a conocer ahora tu nombre». «¿Para qué preguntas por mi nombrea?», le respondió el hombre. Y lo bendijo allí.
+29 Entonces Jacob le dijo: «Dame a conocer ahora tu nombre». «¿Para qué preguntas por mi nombre?», le respondió el hombre. Y lo bendijo allí.
 
 30 Y Jacob le puso a aquel lugar el nombre de Peniel, porque dijo: «He visto a Dios cara a cara, y ha sido preservada mi vida»
 
-- De juda vendra el gobernante: Génesis 49:10
+- De Judá vendrá el gobernante: Génesis 49:10
 - 10 »El cetro no se apartará de Judá,
 - Ni la vara de gobernante de entre sus pies,
 - Hasta que venga Siloh,
@@ -157,19 +157,19 @@ Pelear junto a Israel (Dime tu nombre) Génesis 31:26-30)
 
 Engendrado por Dios, Hijo de Dios. 2 Samuel 7:12-14
 
-12 ’Cuando tus días se cumplan y reposes con tus padresa, levantaré a tu descendiente después de ti, el cual saldrá de tus entrañas, y estableceré su reinob.
+12 ’Cuando tus días se cumplan y reposes con tus padres, levantaré a tu descendiente después de ti, el cual saldrá de tus entrañas, y estableceré su reino.
 
-13 ’Él edificará casa a Mi nombrea, y Yo estableceré el trono de su reino para siempreb.
+13 ’Él edificará casa a Mi nombre, y Yo estableceré el trono de su reino para siempre.
 
-14 ’Yo seré padre para él y él será hijo para Mía
+14 ’Yo seré padre para él y él será hijo para Mí».
 
 Isaías 7:14 de una virgen Y lo llamarás Dios con nosotros.
 
-14 »Por tanto, el Señor mismo les dará esta señal: Una virgen concebirá y dará a luz un hijo, y le pondrá por nombre Emmanuela.
+14 »Por tanto, el Señor mismo les dará esta señal: Una virgen concebirá y dará a luz un hijo, y le pondrá por nombre Emmanuel».
 
-- Mateo 1:1: Proveniente de una virgen (mujer) de la ciudad de belén
-- 1 Libro de la genealogía de Jesucristo, hijo de Davida, hijob de Abraham
-- El genesis de Jesucricto: Ben David, Ben Abraham…
+- Mateo 1:1: Proveniente de una virgen (mujer) de la ciudad de Belén
+- 1 Libro de la genealogía de Jesucristo, hijo de David, hijo de Abraham
+- El génesis de Jesucristo: Ben David, Ben Abraham…
 
 ## Y Jesús vino
 
@@ -185,20 +185,20 @@ Jesús, indomable que viene con su caballo blanco entre las nubes con ojos de fu
 
 - Daniel 7:9-14
 - 9 Seguí mirando
-- Hasta que se establecieron tronosa,
+- Hasta que se establecieron tronos,
 - Y el Anciano de Días se sentó.
-- Su vestidura era blanca como la nieveb,
+- Su vestidura era blanca como la nieve,
 - Y el cabello de Su cabeza como lana pura,
 - Su trono, llamas de fuego,
-- Y sus ruedas, fuego abrasadord.
+- Y sus ruedas, fuego abrasador.
 - 10 »Un río de fuego corría,
-- Saliendo de delante de Éla.
+- Saliendo de delante de Él.
 - Miles de millares le servían,
-- Y miríadas de miríadas estaban en pie delante de Élb.
+- Y miríadas de miríadas estaban en pie delante de Él.
 - El tribunal se sentó,
-- Y se abrieron los librosd.
+- Y se abrieron los libros.
 
-11 »Entonces yo seguí mirando a causa del ruido de las palabras arrogantes que el cuerno decía. Seguí mirando hasta que mataron a la bestia, destrozaron su cuerpo y lo echaron a las llamas del fuegoa.
+11 »Entonces yo seguí mirando a causa del ruido de las palabras arrogantes que el cuerno decía. Seguí mirando hasta que mataron a la bestia, destrozaron su cuerpo y lo echaron a las llamas del fuego.
 
 12 »A las demás bestias, se les quitó el dominio, pero les fue concedida una prolongación de la vida por un tiempo determinado.
 
@@ -210,42 +210,42 @@ Jesús, indomable que viene con su caballo blanco entre las nubes con ojos de fu
 - 14 »Y Le fue dado dominio,
 - Gloria y reino,
 - Para que todos los pueblos, naciones y lenguas
-- Le sirvieranb.
+- Le sirvieran.
 - Su dominio es un dominio eterno
-- Que nunca pasarád,
+- Que nunca pasará,
 - Y Su reino uno
-- Que no será destruidoe.
+- Que no será destruido.
 
-## Y vendra
+## Y vendrá
 
 - Y Jesús vendrá y restaurará todo. Pues…
 - Apocalipsis 21:3-7
 
-3 Entonces oí una gran voz que decía desde el trono: «El tabernáculo de Diosa está entre los hombres, y Él habitará entre ellosb y ellos serán Su pueblo, y Dios mismo estará entre ellos.
+3 Entonces oí una gran voz que decía desde el trono: «El tabernáculo de Dios está entre los hombres, y Él habitará entre ellos y ellos serán Su pueblo, y Dios mismo estará entre ellos.
 
-4 »Él enjugará toda lágrima de sus ojosa, y ya no habrá muerteb, ni habrá más duelo, ni clamor, ni dolorc, porque las primeras cosas han pasadod»
+4 »Él enjugará toda lágrima de sus ojos, y ya no habrá muerte, ni habrá más duelo, ni clamor, ni dolor, porque las primeras cosas han pasado»
 
-5 El que está sentado en el trono dijo: «Yo hago nuevas todas las cosas». Y añadió: «Escribe, porque estas palabras son fieles y verdaderasc»
+5 El que está sentado en el trono dijo: «Yo hago nuevas todas las cosas». Y añadió: «Escribe, porque estas palabras son fieles y verdaderas»
 
-6 También me dijo: «Hecho está. Yo soy el Alfa y la Omega, el Principio y el Fin. Al que tiene sed, Yo le daré gratuitamente de la fuente del agua de la vidad.
+6 También me dijo: «Hecho está. Yo soy el Alfa y la Omega, el Principio y el Fin. Al que tiene sed, Yo le daré gratuitamente de la fuente del agua de la vida».
 
-7 »El vencedor heredará estas cosasa, y Yo seré su Dios y él será Mi hijo.
+7 »El vencedor heredará estas cosas, y Yo seré su Dios y él será Mi hijo.
 
-- En génesis entró el dolor, pero apocalipsis nos dice que ya no habrá dolor
+- En Génesis entró el dolor, pero Apocalipsis nos dice que ya no habrá dolor
 - En Génesis entró la muerte y Apocalipsis nos dice que ya no habrá más muerte
 
-En génesis, inició el clamor por su venida, en apocalipsis termina el clamor cuando por fin, el novio responde al Espíritu y la novia que claman VEN!
+En Génesis inició el clamor por su venida; en Apocalipsis termina el clamor cuando por fin, el novio responde al Espíritu y la novia que claman ¡VEN!
 
 ## La pregunta y el clamor
 
-- Durante todo el A.T esa era la pregunta. ¿Quien será?
+- Durante todo el A.T. esa era la pregunta: ¿Quién será?
 - Mientras clamaban, ¡VEN!
 
 Esa es la primera oración registrada, la primera vez que el ser humano clama a Dios, “invocan su nombre” diciendo VEN. Génesis 4
 
 Génesis 4:26
 
-26 A Set le nació también un hijo y le puso por nombre Enósa. Por ese tiempo comenzaron los hombres a invocar el nombre del Señor.
+26 A Set le nació también un hijo y le puso por nombre Enós. Por ese tiempo comenzaron los hombres a invocar el nombre del Señor.
 
 Éxodo 24
 
@@ -271,35 +271,35 @@ Pues sabemos que la creación entera gime y sufre hasta ahora dolores de parto.
 - Ven Señor.
 - Por miles de años este ha sido el clamor.
 
-La pregunta y el clamorUn clamor que el diablo ha apagado y el mundo ha utilizado para su entretenimiento.
+Un clamor que el diablo ha apagado y el mundo ha utilizado para su entretenimiento.
 
 La gran historia que se han robado, desde Disney hasta Marvel.
 
 El débil regresa fuerte para unir a todo un pueblo para la batalla final. Rescata y salva al mundo y se queda con la chica.
 
-Y eso nos conmueve y no es por su genialidad de contar historias. Es por que se la han robado de la GRAN HISTORIA. Jesús quien vino como si fuera débil a morir en la cruz regresará a salvar al mundo y se quedará con la chica.
+Y eso nos conmueve y no es por su genialidad de contar historias. Es porque se la han robado de la GRAN HISTORIA. Jesús quien vino como si fuera débil a morir en la cruz regresará a salvar al mundo y se quedará con la chica.
 
-Y está realidad nos puede inspirar, solo imagina por un momento que este personaje es Jesús.
+Y esta realidad nos puede inspirar, solo imagina por un momento que este personaje es Jesús.
 
-- No nos equivoquemos, Estamos en una guerra
+- No nos equivoquemos, estamos en una guerra
 - Nuestra vida es una misión
 
 El otro lado está luchando y nosotros huyendo para vivir un día más, olvidando la eternidad y al Rey.
 
 - Vivamos para algo mayor
 - Hay una imagen real, y cuando alcanzamos a verla podrás ver
-- A un Jesús glorificafo, y nadie lo podrá detener.
+- A un Jesús glorificado, y nadie lo podrá detener.
 
-El regresará y se va a quedar con la chica, con su novia a la iglesia. Pura santa y sin mancha. Para bailar eternamente.
+Él regresará y se va a quedar con la chica, con su novia, la iglesia. Pura, santa y sin mancha. Para bailar eternamente.
 
-- Y en la espera nos ha llamado como un ejército a tomar nuestras vidas y uniros a su misión
+- Y en la espera nos ha llamado como un ejército a tomar nuestras vidas y unirnos a su misión
 - A prepararnos para el gran día
-- Tu y yo hoy podemos decir… ES EL!!!
+- Tú y yo hoy podemos decir… ¡ES ÉL!
 - Él es El Rey
 - Él es El Redentor
 - Él es por quien claman y gimen los cielos y la tierra
-- Es el a quien esperamos.
-- ES JESUS!!!!
+- Es Él a quien esperamos.
+- ¡ES JESÚS!
 - El peso de la verdad
 - Dejemos que el peso de esta realidad caiga sobre nosotros.
 - Y podamos jurar lealtad al Rey
@@ -314,15 +314,15 @@ Todo lo que hago, todo lo que soy se alinea a la verdad de Jesús, Dios indomabl
 
 Toda la historia está contenida en este hombre que vino y que vendrá.
 
-- Nos guste o no, Nos prospere o no
-- Nos de el trabajo o no
+- Nos guste o no, nos prospere o no
+- Nos dé el trabajo o no
 - Cumpla mis sueños o no
 - Me emocione o no
 - Nos lleve a la prosperidad o a la persecución
 
 HAY UNA VERDAD que es sobre toda verdad y lo crea el mundo o no lo crea….
 
-JESUS ES DIOS, Jesús es el REY glorioso que vendrá a restaurarlo todo.
+JESÚS ES DIOS, Jesús es el REY glorioso que vendrá a restaurarlo todo.
 
 - Y la verdad nos hará libres
 - Y esta verdad es la que nos hace libres
@@ -336,15 +336,15 @@ Es la que alimenta nuestro espíritu y provoca un río de agua viva que transfor
 - El Espíritu y la novia dicen ven
 - Apocalipsis 22:17
 
-17 El Espíritu y la esposa dicen: «Ven». Y el que oye, diga: «Ven». Y el que tiene sed, venga; y el que desee, que tome gratuitamente del agua de la vidad.
+17 El Espíritu y la esposa dicen: «Ven». Y el que oye, diga: «Ven». Y el que tiene sed, venga; y el que desee, que tome gratuitamente del agua de la vida».
 
 Apocalipsis 22:20
 
-20 El que testifica de estas cosasa dice: «Sí, vengo pronto». Amén. Ven, Señor Jesús.
+20 El que testifica de estas cosas dice: «Sí, vengo pronto». Amén. Ven, Señor Jesús.
 
 ORACIÓN Y PRÁCTICA DESPUÉS DE ORAR
 
-Si tu quieres ser parte de esta gran historia y ser preparado y entrenado por Jesús, el Rey…
+Si tú quieres ser parte de esta gran historia y ser preparado y entrenado por Jesús, el Rey…
 
 ## Ve la imagen de Jesús pintada en la palabra de Dios.
 

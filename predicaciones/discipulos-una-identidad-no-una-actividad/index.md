@@ -34,7 +34,7 @@ Puntos:
 ## Los 12 Discípulos
 
 - Apóstoles / Discípulos
-- Discipulo es una identidad
+- Discípulo es una identidad
 - Tradición judía
 - 5 años - 13 Años
 - Edad y llamado de los apóstoles.
@@ -104,7 +104,7 @@ Al pasar, vio a Leví, hijo de Alfeo, sentado en la oficina de los tributos, y l
 
 ## Sustantivo - Identidad
 
-- Qué habían encontrado, que habían entendido:
+- Qué habían encontrado, qué habían entendido:
 - Perla de gran precio
 - Mateo 13:44-46
 
@@ -116,7 +116,7 @@ Al pasar, vio a Leví, hijo de Alfeo, sentado en la oficina de los tributos, y l
 
 Mateo 16:15-19
 
-> “Y ustedes, ¿quién dicen que soy Yo?», les preguntó Jesús.
+> «Y ustedes, ¿quién dicen que soy Yo?», les preguntó Jesús.
 
 16 Simón Pedro respondió: «Tú eres el Cristo, el Hijo del Dios viviente»
 
@@ -126,7 +126,7 @@ Mateo 16:15-19
 
 19 »Yo te daré las llaves del reino de los cielos; y lo que ates en la tierra, será atado en los cielos; y lo que desates en la tierra, será desatado en los cielos».
 
-- ÉL ES EL MESÍAS!!!!
+- ¡ÉL ES EL MESÍAS!
 - Dios, El plan, El todo, El redentor
 - Te conoce por nombre
 - Te llama
@@ -190,7 +190,7 @@ Penetra hasta la división del alma y del espíritu, de las coyunturas y los tu�
 - Cuando no existía ni uno solo de ellos.
 - 17 ¡Cuán preciosos también son para mí, oh Dios, Tus pensamientos!
 - ¡Cuán inmensa es la suma de ellos!
-- 18 Si los contar, serían más que la arena;
+- 18 Si los contara, serían más que la arena;
 - Al despertar aún estoy contigo.
 - …
 - Escudríñame, oh Dios, y conoce mi corazón;
@@ -230,7 +230,7 @@ Toda Escritura es inspirada por Dios y útil para enseñar, para reprender, para
 ## Vive como un discípulo
 
 - No hago nada sin consultar a Dios antes
-- Todo tiene u propósito
+- Todo tiene un propósito
 - Me dejo examinar por la palabra
 - Busco su carácter y modificar el mío para parecerme a Él
 - Cueste lo que cueste

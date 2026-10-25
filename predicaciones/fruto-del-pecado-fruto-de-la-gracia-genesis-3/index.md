@@ -17,20 +17,20 @@ Puntos:
 
 - Los dos frutos
 - El rompecabezas de la Biblia = Estar con papá
-- ¿Como cosecho en el fruto de la gracia?
+- ¿Cómo cosecho en el fruto de la gracia?
 - Material y espiritual es una sola cosa
 - La palabra desnuda tu alma, no para avergonzarte, para purificarte (edificarte)
-- Escucha a Dios y Obedece a Dios
+- Escucha a Dios y obedece a Dios
 - Renueva tu mente
 - Acércate como con papá, escucha a papá, aprende de papá, corrige vive lo que papá enseña
 - INTRO
 - Hebreos 12
 
-Por tanto, puesto que tenemos en derredor nuestro tan gran nube de testigos, despojémonos también de todo peso y del pecado que tan fácilmente nos envuelve, y corramos con paciencia la carrera que tenemos por delante, 2 puestos los ojos en Jesús, el autor y consumador de la fe, quien por el gozo puesto delante de Él soportó la cruz, despreciando la vergüenza, y se ha sentado a la diestra del trono de Dios.
+Por tanto, puesto que tenemos en derredor nuestro tan gran nube de testigos, despojémonos también de todo peso y del pecado que tan fácilmente nos envuelve, y corramos con paciencia la carrera que tenemos por delante, puestos los ojos en Jesús, el autor y consumador de la fe, quien por el gozo puesto delante de Él soportó la cruz, despreciando la vergüenza, y se ha sentado a la diestra del trono de Dios.
 
 ## Las dos semillas
 
-- Las dos semillas (GENESIS 1 y 2) Génesis 2:25 - Génesis 3
+- Las dos semillas (Génesis 1 y 2) Génesis 2:25 - Génesis 3
 - Diseño original: Desnudos y sin vergüenza
 - Corrupción: Vergüenza y miedo
 - Promesa: Fe y esperanza
@@ -45,20 +45,20 @@ Conocer a Dios nos debe dar la certeza y confianza de que Él es un buen padre�
 - La Biblia es como un rompecabezas
 - En Génesis encontramos la base, el fundamento, la imagen
 - Génesis marco del rompecabezas
-- En Éxodo nos damos cuenta que nunca se trato del rompecabezas
-- Papá lo esta armando contigo.
-- Levítico a deut - significado del rompecabezas
+- En Éxodo nos damos cuenta que nunca se trató del rompecabezas
+- Papá lo está armando contigo.
+- Levítico a Deuteronomio - significado del rompecabezas
 - Jesús - la imagen del rompecabezas
 
 Te das cuenta que eres como el niñito pequeño que está haciendo un rompecabezas con ayuda de papá.
 
 - Él ya conoce la imagen
-- Él ya sabe como armarlo
+- Él ya sabe cómo armarlo
 - Pero se ha sentado para armarlo contigo
 - Quiere que tú lo disfrutes
 - Que tú lo descubras
 - Que tú lo compartas
-- Pero mas que el rompecabezas
+- Pero más que el rompecabezas
 - Se trata de estar con papá
 - Se trata de estar con sus hijos
 
@@ -67,19 +67,19 @@ Te das cuenta que eres como el niñito pequeño que está haciendo un rompecabez
 Cuando entendemos esta realidad, entendemos la gracia.
 
 - La gracia es lo que nos habilita a acercarnos a papá
-- Y estar con el nos debe transformar, nos debe guiar, nos debe consolar, nos debe animar
+- Y estar con Él nos debe transformar, nos debe guiar, nos debe consolar, nos debe animar
 - Y la gracia siempre trae 2 frutos
 - Fe
 - Esperanza.
 
-Certeza de que el esta con nosotros hasta el fin del mundo.
+Certeza de que Él está con nosotros hasta el fin del mundo.
 
-- Certeza de que el es un buen padre
-- Certeza de que el cubre nuestra desnudez para con otros
+- Certeza de que Él es un buen padre
+- Certeza de que Él cubre nuestra desnudez para con otros
 - Certeza de que no debemos acercarnos con miedo
-- Certeza de que todo lo que el hace es para ayudarnos a regresar a casa
-- Esperanza de que el hará lo que dice que hará
-- El cubrirnos, el sanarnos, el amarnos nos indica que el regresará.
+- Certeza de que todo lo que Él hace es para ayudarnos a regresar a casa
+- Esperanza de que Él hará lo que dice que hará
+- El cubrirnos, el sanarnos, el amarnos nos indica que Él regresará.
 
 ## La palabra desnuda tu alma
 
@@ -117,7 +117,7 @@ Por lo tanto, de la manera que recibieron a Cristo Jesús como Señor, ahora deb
 
 Arráiguense profundamente en él y edifiquen toda la vida sobre él. Entonces la fe de ustedes se fortalecerá en la verdad que se les enseñó, y rebosarán de gratitud.
 
-Pero Dios no desnuda nuestra alma para avergonzarnos, sino para edificarnos. (el te conoce)
+Pero Dios no desnuda nuestra alma para avergonzarnos, sino para edificarnos. (Él te conoce)
 
 Hebreos 4:15
 
@@ -127,17 +127,17 @@ Hebreos 4:15
 
 - Renueva tu mente
 - Acércate como con un buen padre.
-- Escucha, Aprende, Corrige
+- Escucha, aprende, corrige
 - vive lo que papá enseña
 - PARA ESO DEJÓ A LA IGLESIA
-- Necesitamos retarnos unos a otros!
+- ¡Necesitamos retarnos unos a otros!
 - Romanos 11:33-12:3
 
 Por tanto, hermanos, les ruego por las misericordias de Dios que presenten sus cuerpos como sacrificio vivo y santo, aceptable a Dios, que es el culto racional de ustedes.
 
 Y no se adapten a este mundo, sino transfórmense mediante la renovación de su mente, para que verifiquen cuál es la voluntad de Dios: lo que es bueno y aceptable y perfecto.
 
-Necesitamos retarnos unos a otros!
+¡Necesitamos retarnos unos a otros!
 
 Hebreos 12
 

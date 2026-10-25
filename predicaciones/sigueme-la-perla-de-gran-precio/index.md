@@ -26,7 +26,7 @@ Mateo 13:44–50 (NBLA)
 >
 > El reino de los cielos también es semejante a un mercader que busca perlas finas, y al encontrar una perla de gran valor, fue y vendió todo lo que tenía y la compró.
 >
-> El reino de los cielos también es semejante a una red barredera que se echó en el mar, y recogió peces de toda clase. »Cuando se llenó, la sacaron a la playa; y se sentaron y recogieron los peces buenos en canastas, pero echaron fuera los malos.»Así será en el fin del mundo; los ángeles saldrán, y sacarán a los malos de entre los justos,y los arrojarán en el horno de fuego; allí será el llanto y el crujir de dientes.
+> El reino de los cielos también es semejante a una red barredera que se echó en el mar, y recogió peces de toda clase. »Cuando se llenó, la sacaron a la playa; y se sentaron y recogieron los peces buenos en canastas, pero echaron fuera los malos. »Así será en el fin del mundo; los ángeles saldrán, y sacarán a los malos de entre los justos, y los arrojarán en el horno de fuego; allí será el llanto y el crujir de dientes.
 
 ## La perla de gran precio
 
@@ -64,13 +64,13 @@ Hechos 2:25–33 (NBLA)
 
 > 25 »Porque David dice de Él: “Veía siempre al Señor en mi presencia; Pues está a mi diestra para que yo no sea sacudido. 26 “Por lo cual mi corazón se alegró y mi lengua se regocijó; Y aun hasta mi carne descansará en esperanza; 27 Pues Tú no abandonarás mi alma en el Hades, Ni permitirás que Tu Santo vea corrupción. 28 Me has hecho conocer los caminos de la vida; Me llenarás de gozo con Tu presencia”.
 >
-> 29 »Hermanos, del patriarca David les puedo decir con franqueza que murió y fue sepultado, y su sepulcro está entre nosotros hasta el día de hoy. 30 »Pero siendo profeta, y sabiendo que Dios le había jurado sentar a uno de sus descendientes en su trono, 31 miró hacia el futuro y habló de la resurrección de Cristo, que Ni fue abandonado en el Hades, ni Su carne sufrió corrupción. 32 »A este Jesús resucitó Dios, de lo cual todos nosotros somos testigos. 33 »Así que, exaltado a la diestra de Dios, y habiendo recibido del Padre la promesa del Espíritu Santo, ha derramado esto que ustedes ven y oyen.
+> 29 »Hermanos, del patriarca David les puedo decir con franqueza que murió y fue sepultado, y su sepulcro está entre nosotros hasta el día de hoy. 30 »Pero siendo profeta, y sabiendo que Dios le había jurado sentar a uno de sus descendientes en su trono, 31 miró hacia el futuro y habló de la resurrección de Cristo, que ni fue abandonado en el Hades, ni Su carne sufrió corrupción. 32 »A este Jesús resucitó Dios, de lo cual todos nosotros somos testigos. 33 »Así que, exaltado a la diestra de Dios, y habiendo recibido del Padre la promesa del Espíritu Santo, ha derramado esto que ustedes ven y oyen.
 
 ## ¿Ahora cómo reaccionamos?
 
 Hechos 2:37–42 (NBLA)
 
-> 37 Al oír esto, conmovidos profundamente, dijeron a Pedro y a los demás apóstoles: «Hermanos, ¿qué haremos?». 38 Entonces Pedro les dijo: «Arrepiéntanse y sean bautizados cada uno de ustedes en el nombre de Jesucristo para perdón de sus pecados, y recibirán el don del Espíritu Santo. 39 »Porque la promesa es para ustedes y para sus hijos y para todos los que están lejos, para tantos como el Señor nuestro Dios llame» 40
+> 37 Al oír esto, conmovidos profundamente, dijeron a Pedro y a los demás apóstoles: «Hermanos, ¿qué haremos?». 38 Entonces Pedro les dijo: «Arrepiéntanse y sean bautizados cada uno de ustedes en el nombre de Jesucristo para perdón de sus pecados, y recibirán el don del Espíritu Santo. 39 »Porque la promesa es para ustedes y para sus hijos y para todos los que están lejos, para tantos como el Señor nuestro Dios llame».
 
 - Y Pedro, con muchas otras palabras testifica solemnemente y les exhortaba diciendo: «Sean salvos de esta perversa generación»
 
@@ -93,7 +93,7 @@ Es un llamado a vivir a la luz de la vida eterna.
 - Esperaban al mesías
 - Conocían las señales
 - Escucharon las leyendas
-- Y creían que era El
+- Y creían que era Él
 - Y aunque tardaron en comprenderlo, ellos lo sabían en sus corazones.
 - HAS ENCONTRADO LA PERLA DE GRAN PRECIO…. VEN Y SÍGUELO.
 - Conoce las escrituras
@@ -117,7 +117,7 @@ Grandes multitudes acompañaban a Jesús; y Él, volviéndose, les dijo: «Si al
 
 > Porque, ¿quién de ustedes, deseando edificar una torre, no se sienta primero y calcula el costo, para ver si tiene lo suficiente para terminarla? »No sea que cuando haya echado los cimientos y no pueda terminar, todos los que lo vean comiencen a burlarse de él, diciendo: “Este hombre comenzó a edificar y no pudo terminar”.
 
-Muchos lo siguen pocos lo dejan todo.
+Muchos lo siguen, pocos lo dejan todo.
 
 ## La torre
 
@@ -132,41 +132,41 @@ Muchos lo siguen pocos lo dejan todo.
 - c. ¿Qué falta? Ver a Cristo…..
 - d. Cuenta tu vida como perdida.
 
-Si no lod ejas todo… no vas a poder.. No tienes la habilidad. No vas a aguantar. Te vas a cansar, te va a pesar.
+Si no lo dejas todo… no vas a poder. No tienes la habilidad. No vas a aguantar. Te vas a cansar, te va a pesar.
 
 - No es inicio. Es perseverancia.
-- Muchos lo siguen pero pocos están dispuesto a darlo todo
-- ¿Por quien estas siendo discípulos?
+- Muchos lo siguen pero pocos están dispuestos a darlo todo
+- ¿Por quién estás siendo discípulos?
 
 > "The Internet has discipled your soul to expect immediate answers. You inquire and you are answered—immediately. Three million results in 0.003 seconds; there is no waiting. The saints of ages past would be aghast at that. Waiting was considered formational for the soul. They planted crops in the spring and harvested in the fall; there was no rushing things. If you wanted something from the market, you walked there and then you walked back, moving at a pace of about three miles an hour.
-> "But now, when you turn to Jesús and you are not answered in the way the Internet answers, you feel he isn’t listening or that you can’t hear from him. You sadly believe the two of you are distant from one another, because your soul has been programmed for immediate responses. The notion of lingering before God doesn’t fit with the pace we’ve come to expect."
+> "But now, when you turn to Jesus and you are not answered in the way the Internet answers, you feel he isn’t listening or that you can’t hear from him. You sadly believe the two of you are distant from one another, because your soul has been programmed for immediate responses. The notion of lingering before God doesn’t fit with the pace we’ve come to expect."
 
-John Eldredge, Experience Jesús. Really. 2.
+John Eldredge, Experience Jesus. Really. 2.
 
 - Porque!!!
-- Ya vas a vivirlo. Calcula el costo de tuvida….
-- Calcula el costo de seguir a crist.
+- Ya vas a vivirlo. Calcula el costo de tu vida….
+- Calcula el costo de seguir a Cristo.
 - Carrera, propósito, objetivo. Estrés, ansiedad rechazo…..
 - Porque!!!
 - Por algo que vale la pena
-- ¿Amas la eternidad? Amas el Reino? Lo has encontrado?
+- ¿Amas la eternidad? ¿Amas el Reino? ¿Lo has encontrado?
 - Déjalo todo
 - Deja tu celular
 - Deja minecraft
-- ¿Que haces con tu tiempo?
+- ¿Qué haces con tu tiempo?
 - Sé el mejor en tu escuela.
 - Atrévete a consolar, defender y guiar
 - La Biblia no se trata de ti
 
 Ven y sígueme
 
-¿El quiere ser tu maestro?
+¿Él quiere ser tu maestro?
 
 Juan 16:13–14 (NBLA)
 
 > 13 »Pero cuando Él, el Espíritu de verdad venga, los guiará a toda la verdad, porque no hablará por Su propia cuenta, sino que hablará todo lo que oiga, y les hará saber lo que habrá de venir. 14 »Él me glorificará, porque tomará de lo Mío y se lo hará saber a ustedes.
 
-- Me costara todo, le perdere todo pero ganare a Cristo.
+- Me costará todo, lo perderé todo pero ganaré a Cristo.
 - Perla de gran precio
 - Vale la pena
 - Vamos!!!!
@@ -183,7 +183,7 @@ Romanos 8:18–19 (NBLA)
 
 Pues considero que los sufrimientos de este tiempo presente no son dignos de ser comparados con la gloria que nos ha de ser revelada. Porque el anhelo profundo de la creación es aguardar ansiosamente la revelación de los hijos de Dios.
 
-Es ser discipo a traves de la palabra de Dios.
+Es ser discípulo a través de la palabra de Dios.
 
 Calcula el costo. De su discípulo. Pelea con la palabra. Prueba y ve, escucha y sigue, experimenta y entiende.
 
@@ -191,4 +191,4 @@ Calcula el costo. De su discípulo. Pelea con la palabra. Prueba y ve, escucha y
 - Necesitas a Cristo crucificado y resucitado.
 - Necesitas al Espíritu Santo, consolador, defensor, guía de toda verdad.
 - Necesitas al Padre. Amoroso, adopto, ida identidad, bendecido
-- ¿Estas dispuesto a dejarlo todo?
+- ¿Estás dispuesto a dejarlo todo?

@@ -23,9 +23,9 @@ La pregunta que nos deberíamos hacer: ¿Cuál es el propósito de Dios?
 
 El rompecabezas completo. (Origen y destino)
 
-El plan original y único de Dios. (Dios nos creo con un propósito desde el inicio y es el mismo para la eternidad)
+El plan original y único de Dios. (Dios nos creó con un propósito desde el inicio y es el mismo para la eternidad)
 
-- El “para que” de la creación.
+- El “para qué” de la creación.
 - Debemos entonces entender:
 - propósito de la creación
 - su caída
@@ -42,11 +42,11 @@ Propósito: Establecer el propósito de Dios para haber creado el mundo y la vol
 - Todo era bueno
 - Dios en su perfecta armonía decidió crearnos por amor.
 
-Se entrego completamente a su creación para que su creación pudiera estar en comunión con él.
+Se entregó completamente a su creación para que su creación pudiera estar en comunión con él.
 
 El propósito de Dios = La comunión de la creación con Dios.
 
-Simplemente se dio (amo)
+Simplemente se dio (amó)
 
 Creación que lo exalta, lo desea y lo adora por su propia voluntad.
 
@@ -75,7 +75,7 @@ Un plan dentro del plan para que se cumpla el propósito de Dios.
 
 El propósito de Dios siempre es el mismo: Comunión de su creación con Él.
 
-El sabía que el humano iba/podía pecar y por lo tanto tiene un plan para cumplir ese propósito pase lo que pase.
+Él sabía que el humano iba/podía pecar y por lo tanto tiene un plan para cumplir ese propósito pase lo que pase.
 
 - Parte “A” del plan: Crear la humanidad
 - La creación cae.
@@ -100,7 +100,7 @@ Pues Dios hizo que Cristo, quien nunca pecó, fuera la ofrenda por nuestro pecad
 
 Al elegir a Cristo, aceptar la necesidad que tenemos del estamos aceptando la necesidad de Dios, se está redimiendo el pecado original en el cual rechazamos a Dios.
 
-A través de Cristo podemos regresar al propósito de Dios = comunión con el en la vida eterna.
+A través de Cristo podemos regresar al propósito de Dios = comunión con Él en la vida eterna.
 
 - ¿Pero ya regresamos a ese propósito glorioso de Dios?
 - Parte “B” del plan: Redimir a la humanidad.
@@ -112,7 +112,7 @@ Propósito: Presentar la restauración parcial y la restauración completa del p
 
 - Fin de los tiempos
 - El milenio (restauración de Israel gobernada por Cristo)
-- La vida eterna = Como se ve el diseño original de Dios
+- La vida eterna = Cómo se ve el diseño original de Dios
 - Cumplimiento del propósito original y único de Dios
 
 ## Cierre y llamada a acción práctica
@@ -121,12 +121,12 @@ El propósito de Dios es el mismo desde el inicio hasta la eternidad.
 
 Todo lo que Dios hace es dirigido hacia este propósito, así como todo lo que nosotros hacemos debería de ser dirigido a este propósito.
 
-Al final, entender cuál es el plan de Dios, la razón de todo, el rompecabezas completo, el para que, de Dios, nos da las respuestas a todas las otras preguntas.
+Al final, entender cuál es el plan de Dios, la razón de todo, el rompecabezas completo, el para qué de Dios, nos da las respuestas a todas las otras preguntas.
 
 ¿Cuál es el propósito de Dios?: La comunión de la creación con Dios.
 
 - ¿Cuál es el propósito de la vida?: Ser redimidos por la sangre de Cristo para volver a Dios
-- ¿Cuál es mi propósito?: 2 corintios 5:20
+- ¿Cuál es mi propósito?: 2 Corintios 5:20
 
 Así que somos embajadores de Cristo, Dios hace su llamado por medio de nosotros. Hablamos en nombre de Cristo cuando les rogamos: ¡Vuelvan a Dios!
 
@@ -134,6 +134,6 @@ Así que somos embajadores de Cristo, Dios hace su llamado por medio de nosotros
 - Evangelizar = Proclamar la buena noticia.
 - Todo propósito debe de estar alineado al propósito de Dios
 
-Si tu propósito de vida y tus acciones no se alinean a este, habrá que preguntarnos si ese es realmente para lo que te diseño Dios.
+Si tu propósito de vida y tus acciones no se alinean a este, habrá que preguntarnos si ese es realmente para lo que te diseñó Dios.
 
 ¿Eres la cuchara en el espagueti o en la sopa?

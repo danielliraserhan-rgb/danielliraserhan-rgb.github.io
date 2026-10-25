@@ -17,16 +17,16 @@
 
 - Jesús estaba cansado y sediento
 - Pero había algo más
-- Hacer la voluntad del padre
+- Hacer la voluntad del Padre
 - Padre mi maestro
 - A través de Jesús
 - No solo el hombre sino la palabra
 
-Así que estudiamos las escrituras para poder conocer la voluntad del padre y practicarla.
+Así que estudiamos las Escrituras para poder conocer la voluntad del Padre y practicarla.
 
 - Tú no necesitas a un maestro para entender la voluntad de Dios
 - Necesitas la palabra de Dios.
-- El ejemplo de a Jesús
+- El ejemplo de Jesús
 - Y la presencia del Espíritu Santo
 
 ## Dones para servir a la iglesia
@@ -41,30 +41,30 @@ Mi trabajo como maestro no es enseñarte todo y cada secreto y revelación de la
 
 Mi trabajo es enseñarte de tal manera que cuando tú vayas a la Biblia puedas profundizar. Puedas ir mucho más profundo en entendimiento, puedas ver la voluntad de Dios y vivirla.
 
-Nuestro trabajo como pastor no es cuidar cada rincón de tu vida si no enseñarte a discernir la verdad, escuchar al Espíritu Santo y empujarte a practicar la voluntad del padre.
+Nuestro trabajo como pastor no es cuidar cada rincón de tu vida sino enseñarte a discernir la verdad, escuchar al Espíritu Santo y empujarte a practicar la voluntad del Padre.
 
-Pero si te fijas ninguna de estas será suficiente o ni siquiera efectiva si no vamos a las escrituras.
+Pero si te fijas, ninguna de estas será suficiente o ni siquiera efectiva si no vamos a las Escrituras.
 
-- Si no dejamos que nuestro maestro sea el padre.
+- Si no dejamos que nuestro maestro sea el Padre.
 - Si no dejamos que nuestro pastor sea Jesús
 - Si no dejamos que nuestro profeta sea el Espíritu.
 
-Y es a medida que abrimos las escrituras y dejamos que esto suceda que dejaremos de buscar al gurú y sabio de la palabra.
+Y es a medida que abrimos las Escrituras y dejamos que esto suceda que dejaremos de buscar al gurú y sabio de la palabra.
 
 - A los miles de pastores de YouTube
 - O al gran profeta que revele nuestro futuro.
 
-Si no que iremos a nuestra comunidad a ser edificados mutuamente habiendo sido ya alimentado de la comida sólida y no solo de la leche espiritual.
+Sino que iremos a nuestra comunidad a ser edificados mutuamente habiendo sido ya alimentado de la comida sólida y no solo de la leche espiritual.
 
-Si en comunidad si necesitamos maestros y pastores y cada uno de estos dones.
+Sí, en comunidad sí necesitamos maestros y pastores y cada uno de estos dones.
 
-Pero de nuevo, no es para alzarlos y glorificarlos. Si no para tomar unos a otros del fruto que Dios ha provocado al permanecer en la vid.
+Pero de nuevo, no es para alzarlos y glorificarlos. Sino para tomar unos a otros del fruto que Dios ha provocado al permanecer en la vid.
 
 Es por esto que la palabra dice… nadie da fruto separado de la vid.
 
 ## Mi camino como maestro de la palabra
 
-Mi camino como maestro de la palabra inició cuando alguien me enseñó que había más en las escrituras de lo que había visto
+Mi camino como maestro de la palabra inició cuando alguien me enseñó que había más en las Escrituras de lo que había visto
 
 Me compartió lo que Dios había estado enseñándole y cada vez que abría mi Biblia podía profundizar aún más gracias a ello
 
@@ -77,7 +77,7 @@ Cuando el hambre de conocer su voluntad es mayor al hambre física o al cansanci
 Cuando el simple hecho de conocer más a Cristo hace arder tu corazón.
 
 - Y eso solo sucede cuando te dispones a
-- Estudiar, practicar y enseñar las escrituras.
+- Estudiar, practicar y enseñar las Escrituras.
 
 Ejemplo de las mega conferencias de negocios/emprendimiento/laborales/festivales
 
