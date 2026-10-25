@@ -2,12 +2,12 @@
 
 > En esta sesión breve, Daniel Lira responde a qué llamamos a las personas: a la obra de Cristo en su muerte y resurrección, al arrepentimiento —cambiar de camino— y a la entrada al reino de los cielos. Hacemos el llamado cuando las personas preguntan, sin presión. El precio de entrar al Reino es enorme, pero ya fue pagado por Cristo Jesús.
 
-*Adaptado con ayuda de IA a partir de la transcripción de una predicación.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: https://www.youtube.com/watch?v=bXfLhtk3MkE
+- Video: video aún no público
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-el-traslado-al-reino-de-los-cielos/
 - Idioma: es-MX
 
@@ -23,20 +23,20 @@
 
 ## ¿A qué estamos llamando?
 
-Cuando compartimos el evangelio, ¿a qué invitamos a las personas? No a una religión ni a una iglesia en particular, sino a trasladarse al Reino. Pablo lo dice así: Dios «nos libró del dominio de las tinieblas y nos trasladó al reino de Su Hijo amado» (Colosenses 1:13, NBLA).
+Esta sesión va a ser algo muy puntual y habla acerca del llamado al arrepentimiento, la obra de Cristo y la entrada al reino de Dios. De manera sencilla es, ¿A qué estamos llamando a las personas a las que estamos haciendo discípulos? Y lo voy a tratar de hacer rápido y directo. Hay tres puntos que hacemos. Número uno es la verdad. Hay redención en Cristo a través del pago de su sangre. Ese es el fundamento de todo lo que hablaremos.
 
 ## Muerte y resurrección de Cristo
 
-El centro del llamado es la obra de Cristo: murió por nuestros pecados y resucitó, venciendo la muerte.
+Número dos, hay disponibilidad. A través de esta redención, ahora el reino de Dios está accesible. ¿A través de qué? Su muerte y su resurrección. En la muerte nos redimió y en su resurrección nos empoderó y nos ha invitado a pertenecer a este reino. Y número tres es el llamado al arrepentimiento. Con el fundamento de la verdad y la disponibilidad de la entrada al reino de Dios, lo que nosotros hacemos es llamar a las personas a un cambio de dirección, de arrepentimiento. Ahora recuerda, quien convence de esto es el Espíritu Santo. Tu trabajo y el mío no es llevarlos al arrepentimiento, pero sí es extenderles el fundamento por el cual se pueden arrepentir.
 
 ## Arrepentirse: cambiar de camino
 
-Arrepentirse no es solo sentirse mal. Es cambiar de camino: dejar de caminar bajo nuestra propia autoridad y empezar a caminar bajo la de Jesús.
+O sea, cambiar de camino y entrar al reino de los cielos. Es rechazar todo lo que no es de su reino y caminar hacia su reino. Se puede ver de manera práctica hasta en la vida diaria, cuando alguien se acerca preguntándose qué es lo que está tratando de decir Dios en su palabra o cómo tiene que tomar una decisión. Y nuestro trabajo es bien sencillo. ¿Esa decisión que estás tomando es influenciada por el reino del diablo, del mundo o de tu propia carne? ¿O es influenciada a través del reino de Dios? Si la respuesta es clara, ellos podrán arrepentirse y caminar a través de ellos.
 
 ## Hacer el llamado cuando lo preguntan
 
-No necesitamos forzar el momento. Cuando una persona pregunta qué tiene que hacer, ahí hacemos el llamado con claridad.
+Sin embargo, este llamado lo hacemos cuando ellos lo preguntan. Así como Pablo, después de predicar, le preguntan, entonces, basado en todo lo que acabas de decir, Pedro, perdóname, cuando Pedro lo predica después de hechos, cuando recibe el Espíritu Santo y dice, basado en esto que acabas de decir, ¿Cómo o debemos de responder? Y Pedro, de una manera muy sencilla, dice, arrepiéntanse y vuelvan a Dios. Entonces, en el fundamento de la verdad, de que hay redención en Cristo y la accesibilidad del reino de los cielos, llamamos a las personas a dejarlo todo para acceder a este reino. El precio de la entrada al reino es enorme, es muy difícil de pagar, pero ya fue pagado.
 
 ## Un precio ya pagado
 
-La entrada al reino de los cielos tiene un precio enorme, imposible de pagar por nosotros mismos. Pero ese precio ya fue pagado por Cristo Jesús. Esa es la buena noticia.
+Y fue pagado por Cristo Jesús. Esa es una gran buena noticia. Ahora tú y yo podemos entrar a este reino y Él merece, no solo quiere, sino que merece que entremos, que honremos su reino. Él merece la reconciliación de todas las personas, de todas las naciones, de todas las tribus en su propio reino. Así que nosotros lo llevamos todo a Él. Y el discipulado o el hacer discípulo se convierte en una manera de alabar, de adorar, de honrar y darle la gloria a Cristo.

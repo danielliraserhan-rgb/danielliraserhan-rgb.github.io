@@ -2,11 +2,11 @@
 
 > Todos preguntamos «¿cuál es mi propósito?», pero casi nadie se pregunta cuál es el propósito de Dios. Daniel Lira recorre la historia completa de la Biblia en cuatro movimientos: en la creación, Dios hizo todo bueno y nos diseñó por amor para tener comunión con Él; en la caída, el ser humano tomó del fruto y rechazó el plan de Dios, y la consecuencia fue la separación, la muerte; en la redención, Dios ya tenía un plan dentro del plan, anunciado desde el primer pacto con Adán y cumplido en la cruz, donde un fruto que traía muerte es revertido por uno que trae vida; y en la restauración, Dios llevará su creación de vuelta al diseño original. Con el ejemplo de las cucharas y la sopa, Daniel concluye que nuestro propósito solo tiene sentido alineado al de Dios: ser embajadores de Cristo que ruegan al mundo «¡Reconcíliense con Dios!».
 
-*Adaptado con ayuda de IA a partir de la transcripción de una predicación.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en junio de 2018 en Convivencia Familiar Monterrey (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: 2 de junio de 2018, Convivencia Familiar Monterrey
+- Fecha: junio de 2018, Convivencia Familiar Monterrey
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/el-plan-de-dios-creacion-caida-redencion-restauracion/
 - Idioma: es-MX
@@ -23,46 +23,129 @@
 
 ---
 
-## La pregunta que todos evitan
+Creación, caída, redención y restauración
 
-La pregunta más común que escucho es: «¿Cuál es mi propósito?». Detrás hay otra que casi todos evitamos: «¿Cuál es el propósito de la vida?». Y hay una tercera que en realidad deberíamos hacernos primero: **¿cuál es el propósito de Dios?**
+## Saludo e introducción
 
-Es como tener piezas de un rompecabezas sin la imagen de la caja. Mientras no veamos el rompecabezas completo, el origen y el destino, cada pieza suelta parece no tener sentido. Dios nos creó con un propósito desde el inicio, y ese propósito es el mismo por la eternidad. Para entenderlo hay que ver la historia completa en cuatro movimientos: creación, caída, redención y restauración.
+La pregunta común: ¿Cuál es mi propósito?
 
-## Creación: todo era bueno
+La pregunta que todos evitan: ¿Cuál es el propósito de la vida?
 
-O la materia es eterna, o Dios es eterno. La Biblia empieza con un Dios eterno que crea con intención, y basta ver el diseño del ser humano para notar que no somos un accidente. Una cuchara no está hecha por casualidad: alguien la diseñó para la sopa.
+La pregunta que nos deberíamos hacer: ¿Cuál es el propósito de Dios?
 
-Génesis repite una y otra vez que todo era bueno. Dios, en su perfecta armonía, decidió crearnos por amor. Se entregó por completo a su creación para que su creación pudiera estar en comunión con Él. Ese es el propósito de Dios: **la comunión de la creación con Dios**. Una creación que lo exalta, lo desea y lo adora por su propia voluntad. Y para quien la sigue, la respuesta es plenitud, amor y gozo.
+El rompecabezas completo. (Origen y destino)
 
-Piensa en un robot con conciencia. Su diseñador le dice: «Te diseñé para algo, pero tienes voluntad para elegir si lo haces o no». Si escoge otra cosa, nunca va a ser exitoso; no porque sea malo o esté condenado, sino porque no está «programado» para eso. Así nos hizo Dios: con un diseño y con libertad.
+El plan original y único de Dios. (Dios nos creo con un propósito desde el inicio y es el mismo para la eternidad)
 
-## Caída: rechazar el plan
+- El “para que” de la creación.
+- Debemos entonces entender:
+- propósito de la creación
+- su caída
+- su redención
+- la restauración del reino de Dios.
 
-En el jardín, la voluntad propia del ser humano quedó representada en el fruto. La elección del hombre fue tomar del fruto y seguir su propio camino. **La raíz de todo pecado es el rechazo de Dios y de su plan.** Y la consecuencia es ser separados de Él, que es la muerte.
+## Creación
 
-La luz expulsa a la oscuridad; donde está la luz, la oscuridad no puede quedarse. Al rechazar a Dios, quedamos fuera de la luz, y no hay manera de regresar por nuestra cuenta. (Lo desarrollo con más detalle en [Génesis: la caída y la promesa de la semilla](https://daniellira.com/clases/genesis-la-caida-y-la-promesa-de-la-semilla/).)
+Propósito: Establecer el propósito de Dios para haber creado el mundo y la voluntad que nos da para aceptar este propósito y seguirlo.
 
-Pero en ese mismo momento Dios da a Adán el primer pacto, anunciando el plan de redención: la simiente de la mujer herirá a la serpiente en la cabeza (Génesis 3:15). Es un plan dentro del plan para que el propósito de Dios se cumpla, porque ese propósito nunca cambia. Dios sabía que el ser humano podía pecar, y por eso tenía un plan para cumplir su propósito pasara lo que pasara. Parte «A» del plan: crear a la humanidad. La creación cae. Parte «B»: redimir a la humanidad.
+- Materia eterna o Dios eterno
+- Diseño inteligente del ser humano
+- Ejemplo de las cucharas y la sopa
+- Todo era bueno
+- Dios en su perfecta armonía decidió crearnos por amor.
 
-## Redención: un fruto que da vida
+Se entrego completamente a su creación para que su creación pudiera estar en comunión con él.
 
-La redención no es un parche de último minuto: es parte del plan original. A lo largo de la Biblia, los pactos van anunciando ese plan, y todos apuntan a lo mismo: necesitamos ser justificados, cubiertos, para poder regresar a Dios. Necesitamos ser cubiertos con la luz de Cristo y transformados por el Espíritu Santo.
+El propósito de Dios = La comunión de la creación con Dios.
 
-Eso es la cruz y la resurrección: la «nueva elección», el reverso del fruto prohibido. En el jardín, un fruto trajo muerte; en la cruz, un fruto trae vida. «Al que no conoció pecado, lo hizo pecado por nosotros, para que fuéramos hechos justicia de Dios en Él» (2 Corintios 5:21).
+Simplemente se dio (amo)
 
-Cuando elegimos a Cristo, aceptamos que lo necesitamos, que necesitamos a Dios, y así se redime aquel pecado original en el que lo rechazamos. Por medio de Cristo podemos regresar al propósito de Dios: comunión con Él en la vida eterna.
+Creación que lo exalta, lo desea y lo adora por su propia voluntad.
 
-## Restauración: de vuelta al diseño original
+Da como respuesta plenitud, amor y gozo para el que la sigue
 
-¿Pero ya regresamos por completo a ese propósito glorioso? Todavía no. Hay una parte «C» del plan: restaurar la creación al diseño original. Hoy vivimos una restauración parcial; viene una restauración completa al final de los tiempos, cuando Cristo gobierne y la vida eterna muestre cómo se ve el diseño original de Dios. Ahí se cumplirá su propósito original y único.
+Ejemplo del robot con conciencia (te diseñé para algo, pero tienes la voluntad de elegir si lo haces o no. Si escoges otra cosa nunca serás exitoso, no por malo o condenado sino porque no estás “programado” para eso. Si sigues con tu voluntad el diseño que te di, no solo serás exitoso sino que te sentirás pleno)
 
-## ¿Cuchara para la sopa o para el espagueti?
+Ejemplos extra (Arte, Cachorritos, Hijos)
 
-El propósito de Dios es el mismo desde el inicio hasta la eternidad. Todo lo que Él hace está dirigido a ese propósito, y todo lo que nosotros hacemos debería estarlo también. Entender el plan de Dios, el rompecabezas completo, nos da respuesta a todas las demás preguntas:
+## Caída
 
-- ¿Cuál es el propósito de Dios? La comunión de la creación con Él.
-- ¿Cuál es el propósito de la vida? Ser redimidos por la sangre de Cristo para volver a Dios.
-- ¿Cuál es mi propósito? «Por tanto, somos embajadores de Cristo, como si Dios rogara por medio de nosotros, en nombre de Cristo les rogamos: ¡Reconcíliense con Dios!» (2 Corintios 5:20).
+- Propósito: Presentar el rechazo del plan de Dios por parte del ser humano
+- Todo era bueno
+- Voluntad propia del ser humano representada en el fruto
+- Elección del hombre: Tomar del fruto y seguir su propio camino.
 
-Usa los dones y talentos que Dios te dio para proclamar su mensaje. Evangelizar es simplemente proclamar la buena noticia. Todo propósito debe estar alineado al propósito de Dios, y si tu propósito de vida y tus acciones no se alinean con el suyo, vale la pena preguntarte si de verdad es aquello para lo que Dios te diseñó. Una cuchara puede intentar comer espagueti toda la vida y sentirse un fracaso; en la sopa, es exactamente lo que tiene que ser. ¿Eres la cuchara en el espagueti o en la sopa?
+La raíz de todo pecado es el rechazo de Dios y su plan.
+
+- La consecuencia es ser separado de Él = Muerte
+- La luz y la oscuridad. La luz expulsa la oscuridad.
+- No hay manera de regresar a la Luz.
+
+Dios da el primer pacto a Adán anunciando el plan de redención.
+
+Un plan dentro del plan para que se cumpla el propósito de Dios.
+
+El propósito de Dios siempre es el mismo: Comunión de su creación con Él.
+
+El sabía que el humano iba/podía pecar y por lo tanto tiene un plan para cumplir ese propósito pase lo que pase.
+
+- Parte “A” del plan: Crear la humanidad
+- La creación cae.
+- Parte “B” del plan: Redimir a la humanidad.
+
+## Redención
+
+Propósito: presentar la redención como una parte del plan original de Dios.
+
+- Los pactos anunciando el plan de redención
+- Necesidad de ser justificados (cubiertos) para poder regresar a Dios
+
+Ser cubiertos con la luz de Cristo y transformados por el Espíritu Santo.
+
+- La cruz y la resurrección
+- La “Nueva elección” el reverso del fruto prohibido.
+- Un fruto que traería muerte
+- Un fruto que trae vida
+- 2 Corintios 5:21
+
+Pues Dios hizo que Cristo, quien nunca pecó, fuera la ofrenda por nuestro pecado, para que nosotros pudiéramos estar en una relación con Dios por medio de Cristo.
+
+Al elegir a Cristo, aceptar la necesidad que tenemos del estamos aceptando la necesidad de Dios, se está redimiendo el pecado original en el cual rechazamos a Dios.
+
+A través de Cristo podemos regresar al propósito de Dios = comunión con el en la vida eterna.
+
+- ¿Pero ya regresamos a ese propósito glorioso de Dios?
+- Parte “B” del plan: Redimir a la humanidad.
+- Parte “C” del plan: Restaurar la creación al diseño original
+
+## Restauración
+
+Propósito: Presentar la restauración parcial y la restauración completa del propósito de Dios.
+
+- Fin de los tiempos
+- El milenio (restauración de Israel gobernada por Cristo)
+- La vida eterna = Como se ve el diseño original de Dios
+- Cumplimiento del propósito original y único de Dios
+
+## Cierre y llamada a acción práctica
+
+El propósito de Dios es el mismo desde el inicio hasta la eternidad.
+
+Todo lo que Dios hace es dirigido hacia este propósito, así como todo lo que nosotros hacemos debería de ser dirigido a este propósito.
+
+Al final, entender cuál es el plan de Dios, la razón de todo, el rompecabezas completo, el para que, de Dios, nos da las respuestas a todas las otras preguntas.
+
+¿Cuál es el propósito de Dios?: La comunión de la creación con Dios.
+
+- ¿Cuál es el propósito de la vida?: Ser redimidos por la sangre de Cristo para volver a Dios
+- ¿Cuál es mi propósito?: 2 corintios 5:20
+
+Así que somos embajadores de Cristo, Dios hace su llamado por medio de nosotros. Hablamos en nombre de Cristo cuando les rogamos: ¡Vuelvan a Dios!
+
+- Usar tus dones y talentos (provistos por Dios) para proclamar su mensaje
+- Evangelizar = Proclamar la buena noticia.
+- Todo propósito debe de estar alineado al propósito de Dios
+
+Si tu propósito de vida y tus acciones no se alinean a este, habrá que preguntarnos si ese es realmente para lo que te diseño Dios.
+
+¿Eres la cuchara en el espagueti o en la sopa?

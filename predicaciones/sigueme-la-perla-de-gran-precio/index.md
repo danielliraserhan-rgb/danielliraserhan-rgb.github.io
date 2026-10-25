@@ -2,7 +2,7 @@
 
 > En este mensaje, Daniel Lira quiere que veamos la perla de gran precio, que anhelemos seguir a Cristo hacia ella, y que entendamos que el costo, aunque es todo, no es alto. La perla es el Reino de Dios, la resurrección, la respuesta a las grandes preguntas; y su centro es Jesús, el Rey del Reino. Daniel recuerda haber estado harto de vivir solo por existir, hasta toparse con la perla. Como en Pentecostés, la respuesta es arrepentirse y seguir. Seguir a un rabí era lo más anhelado en la cultura judía, y Jesús llama: «Sígueme». Pero, como al joven rico, el llamado exige calcular el costo: muchos lo siguen y pocos lo dejan todo. No se trata de empezar, sino de perseverar, guiados por el Espíritu que nos hace hijos y herederos.
 
-*Adaptado con ayuda de IA a partir de la transcripción de una predicación.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
@@ -22,42 +22,184 @@
 
 ---
 
-## Quiero que vean la perla
+## Quiero que lo dejen todo por seguir a Cristo
 
-Hoy quiero que veas la perla de gran precio; que anheles seguir a Cristo hacia ella; que entiendas que el costo, aunque es todo, no es alto; y que lo dejes todo por seguir a Cristo.
+- Quiero que vean la perla de gran precio
+- Quiero que anhelen seguir a Cristo hacia la perla de gran precio
 
-«El reino de los cielos es semejante a un tesoro escondido en el campo, que al encontrarlo un hombre, lo vuelve a esconder, y de alegría por ello, va, vende todo lo que tiene y compra aquel campo. El reino de los cielos también es semejante a un mercader que busca perlas finas, y al encontrar una perla de gran valor, fue y vendió todo lo que tenía y la compró» (Mateo 13:44–46, NBLA). Y Jesús sigue con la red que recoge peces de toda clase: así será al fin del mundo.
+Quiero que vean que el costo, aunque es todo, no es alto.
 
-## ¿Qué es la perla?
+Quiero que lo dejen todo por seguir a Cristo.
 
-Decir «es Jesús» a veces suena simplista por falta de lenguaje. La perla es el Reino de Dios, el tesoro de la vida que ha de venir, la resurrección de los muertos, la respuesta a los grandes dilemas y preguntas de la vida.
+Mateo 13:44–50 (NBLA)
 
-Vamos por la vida: naces, creces, estudias. Yo estuve donde tú estás hoy, preguntándome lo mismo que tú: harto de vivir una vida insignificante, de no saber para qué existo, de vivir solo por existir. Mi carrera, mi propósito, mi objetivo; estrés, ansiedad, rechazo. Y de repente te topas con la perla de gran precio. Encontrarla debe darle sentido a todo: la creación, la caída, las promesas, la revelación, el evangelio, la restauración y la eternidad.
+> El reino de los cielos es semejante a un tesoro escondido en el campo, que al encontrarlo un hombre, lo vuelve a esconder, y de alegría por ello, va, vende todo lo que tiene y compra aquel campo.
+>
+> El reino de los cielos también es semejante a un mercader que busca perlas finas, y al encontrar una perla de gran valor, fue y vendió todo lo que tenía y la compró.
+>
+> El reino de los cielos también es semejante a una red barredera que se echó en el mar, y recogió peces de toda clase. »Cuando se llenó, la sacaron a la playa; y se sentaron y recogieron los peces buenos en canastas, pero echaron fuera los malos.»Así será en el fin del mundo; los ángeles saldrán, y sacarán a los malos de entre los justos,y los arrojarán en el horno de fuego; allí será el llanto y el crujir de dientes.
 
-¿Y quién es Jesús? El Rey del Reino; el camino, la verdad y la vida; la resurrección; la gloria de Dios irradiada al mundo; la mano que rompió barreras y nos sacó de lo profundo; la esperanza viva de un reino eterno. Pedro lo predicó en Pentecostés: Jesús «fue entregado por el plan predeterminado y el previo conocimiento de Dios, y ustedes lo clavaron en una cruz por manos de impíos y lo mataron. Pero Dios lo resucitó, poniendo fin a la agonía de la muerte» (Hechos 2:23–24). «A este Jesús resucitó Dios, de lo cual todos nosotros somos testigos» (Hechos 2:32).
+## La perla de gran precio
 
-## ¿Cómo reaccionamos?
+- a. ¿Qué es la perla?
+- a. Decir es Jesús muchas veces es demasiado “simplista” por nuestra falta de lenguaje.
+- i. El reino de Dios, el tesoro de la vida que ha de venir.
+- ii. La resurrección de los muertos.
+- iii. La revelación de los grandes dilemas de la vida.
+- iv. La respuesta de las grandes preguntas.
+- Vamos por la vida….
+- Naces, creces, estudias…
+- Yo estuve donde tú estás hoy, preguntándome lo que tú te preguntas hoy.
+- Harto de vivir una vida insignificante
+- Harto de no saber para qué existo
+- Harto de vivir solo por existir
+- Mi Carrera, Mi propósito, Mi objetivo.
+- Estrés, ansiedad, rechazo…..
+- Y de repente te topas con la perla de gran precio!!
+- Encontrarla debe darle sentido a tu vida. Debe darle sentido a todo.
+- [CONTAR EL EVANGELIO]
+- Creación, maldición, promesas, revelación, evangelio, restauración, eternidad.
+- a. ¿Quién es Jesús?
+- i. El Rey del Reino
+- ii. El camino, la verdad y la vida
+- iii. La resurrección
+- iv. La Gloria de Dios irradiada al mundo
+- v. La mano que rompió barreras y nos sacó de las profundidades del mundo.
+- vi. La esperanza viva de un reino eterno.
 
-Al oír esto, preguntaron: «Hermanos, ¿qué haremos?». Pedro respondió: «Arrepiéntanse y sean bautizados cada uno de ustedes en el nombre de Jesucristo para perdón de sus pecados, y recibirán el don del Espíritu Santo» (Hechos 2:37–38). Unas tres mil personas fueron añadidas, y «se dedicaban continuamente a las enseñanzas de los apóstoles, a la comunión, al partimiento del pan y a la oración» (Hechos 2:42).
+Hechos 2:22–24 (NBLA)
 
-El Reino de Dios es un llamado a vivir con un enfoque singular, a la luz de la era venidera, a la luz de la eternidad. Su promesa es eterna: la resurrección.
+> 22 »Hombres de Israel, escuchen estas palabras: Jesús el Nazareno, varón confirmado por Dios entre ustedes con milagros, prodigios y señales que Dios hizo en medio de ustedes a través de Él, tal como ustedes mismos saben. 23 »Este fue entregado por el plan predeterminado y el previo conocimiento de Dios, y ustedes lo clavaron en una cruz por manos de impíos y lo mataron. 24 »Pero Dios lo resucitó, poniendo fin a la agonía de la muerte, puesto que no era posible que Él quedara bajo el dominio de ella.
 
-## Ven y sígueme
+Hechos 2:25–33 (NBLA)
 
-¿Qué significaba «sígueme» en su cultura? Era lo más anhelado, honroso y seguro: seguir a un rabino era lo que todo judío quería. Conocían las Escrituras, todo en su vida giraba alrededor de Dios, y esperaban al Mesías; conocían las señales, y aunque tardaron en comprenderlo, en su corazón sabían que era Él. Si has encontrado la perla, ven y síguelo: conoce las Escrituras, conoce a Dios, conoce lo que exige. Él te ha llamado. Calcula el costo.
+> 25 »Porque David dice de Él: “Veía siempre al Señor en mi presencia; Pues está a mi diestra para que yo no sea sacudido. 26 “Por lo cual mi corazón se alegró y mi lengua se regocijó; Y aun hasta mi carne descansará en esperanza; 27 Pues Tú no abandonarás mi alma en el Hades, Ni permitirás que Tu Santo vea corrupción. 28 Me has hecho conocer los caminos de la vida; Me llenarás de gozo con Tu presencia”.
+>
+> 29 »Hermanos, del patriarca David les puedo decir con franqueza que murió y fue sepultado, y su sepulcro está entre nosotros hasta el día de hoy. 30 »Pero siendo profeta, y sabiendo que Dios le había jurado sentar a uno de sus descendientes en su trono, 31 miró hacia el futuro y habló de la resurrección de Cristo, que Ni fue abandonado en el Hades, ni Su carne sufrió corrupción. 32 »A este Jesús resucitó Dios, de lo cual todos nosotros somos testigos. 33 »Así que, exaltado a la diestra de Dios, y habiendo recibido del Padre la promesa del Espíritu Santo, ha derramado esto que ustedes ven y oyen.
+
+## ¿Ahora cómo reaccionamos?
+
+Hechos 2:37–42 (NBLA)
+
+> 37 Al oír esto, conmovidos profundamente, dijeron a Pedro y a los demás apóstoles: «Hermanos, ¿qué haremos?». 38 Entonces Pedro les dijo: «Arrepiéntanse y sean bautizados cada uno de ustedes en el nombre de Jesucristo para perdón de sus pecados, y recibirán el don del Espíritu Santo. 39 »Porque la promesa es para ustedes y para sus hijos y para todos los que están lejos, para tantos como el Señor nuestro Dios llame» 40
+
+- Y Pedro, con muchas otras palabras testifica solemnemente y les exhortaba diciendo: «Sean salvos de esta perversa generación»
+
+41 Entonces los que habían recibido su palabra fueron bautizados; y se añadieron aquel día como 3,000 almas.
+
+42 Y se dedicaban continuamente a las enseñanzas de los apóstoles, a la comunión, al partimiento del pan y a la oración.
+
+El Reino de Dios es un llamado a vivir la vida con un enfoque singular, único y específico a la luz de la era venidera. A la luz de la eternidad.
+
+Es un llamado a vivir a la luz de la vida eterna.
+
+- Su promesa es eterna, es la resurrección.
+- Ven y sígueme.
+- ¿Qué significaba eso en su cultura?
+- Era lo más anhelado, honroso y “seguro”
+- Seguir a un rabino era lo que todo judío quería
+- Conocían Las escrituras conocían la cultura
+- Todo lo que hacían rodeaba a Dios
+- Y los más honrosos eran quienes los estudiaban y enseñaban
+- Esperaban al mesías
+- Conocían las señales
+- Escucharon las leyendas
+- Y creían que era El
+- Y aunque tardaron en comprenderlo, ellos lo sabían en sus corazones.
+- HAS ENCONTRADO LA PERLA DE GRAN PRECIO…. VEN Y SÍGUELO.
+- Conoce las escrituras
+- Conoce a Dios
+- Conoce lo que exige
+- Entonces… síguelo
+- Él te ha llamado… Calcula el costo.
+- EL REINO DE LOS CIELOS ESTÁ A NUESTRO ALCANCE
 
 ## ¿Cuánto te va a costar?
 
-Un hombre rico corrió a Jesús preguntando cómo heredar la vida eterna. «Jesús, mirándolo, lo amó y le dijo: “Una cosa te falta: ve y vende cuanto tienes y da a los pobres, y tendrás tesoro en el cielo; entonces vienes y me sigues”. Pero él, afligido por estas palabras, se fue triste, porque era dueño de muchos bienes» (Marcos 10:21–22). Realmente debes quererlo: deja de vivir para este mundo.
+Marcos 10:17–22 (NBLA)
 
-«Si alguien viene a Mí, y no aborrece a su padre y madre, a su mujer e hijos, a sus hermanos y hermanas, y aun hasta su propia vida, no puede ser Mi discípulo» (Lucas 14:26). Y luego habla de la torre: quien no calcula el costo deja la obra a medias. Muchos lo siguen; pocos lo dejan todo. Si no lo dejas todo, no vas a poder: te vas a cansar, te va a pesar. Tu corazón buscará tanto preservarse que te detendrá. ¿Estás listo para soltar lo de este mundo y amar lo del mundo venidero, para buscar «primero Su reino y Su justicia» (Mateo 6:33)? No se trata de empezar, sino de perseverar. La recompensa es mucho mayor: la resurrección.
+Cuando Jesús salía para irse, vino un hombre corriendo, y arrodillándose delante de Él, le preguntó: «Maestro bueno, ¿qué haré para heredar la vida eterna?». Jesús le respondió: “¿Por qué Me llamas bueno? Nadie es bueno, sino sólo uno, Dios. »Tú sabes los mandamientos: “No mates, no cometas adulterio, no hurtes, no des falso testimonio, no defraudes, honra a tu padre y a tu madre”». «Maestro, todo esto lo he guardado desde mi juventud», dijo el hombre. Jesús, mirándolo, lo amó y le dijo: «Una cosa te falta: ve y vende cuanto tienes y da a los pobres, y tendrás tesoro en el cielo; entonces vienes y Me sigues». Pero él, afligido por estas palabras, se fue triste, porque era dueño de muchos bienes.
 
-## ¿Quién te está discipulando?
+- Realmente debes quererlo. Deja de vivir para este mundo.
 
-John Eldredge observa que internet ha discipulado nuestra alma para esperar respuestas inmediatas, y que por eso, cuando Jesús no responde a esa velocidad, sentimos que no nos escucha. Los santos de otras épocas consideraban que esperar formaba el alma. ¿Qué haces con tu tiempo? Deja el celular, deja el videojuego. Sé el mejor en tu escuela. Atrévete a consolar, defender y guiar. La Biblia no se trata de ti.
+Lucas 14:25–30 (NBLA)
 
-## Guiados por el Espíritu
+Grandes multitudes acompañaban a Jesús; y Él, volviéndose, les dijo: «Si alguien viene a Mí, y no aborrece a su padre y madre, a su mujer e hijos, a sus hermanos y hermanas, y aun hasta su propia vida, no puede ser Mi discípulo. »El que no carga su cruz y me sigue, no puede ser Mi discípulo.
 
-Jesús prometió: «cuando Él, el Espíritu de verdad venga, los guiará a toda la verdad» (Juan 16:13). Y Pablo dice: «ustedes no han recibido un espíritu de esclavitud para volver otra vez al temor, sino que han recibido un espíritu de adopción como hijos, por el cual clamamos: “¡Abba, Padre!”» (Romanos 8:15). «Los sufrimientos de este tiempo presente no son dignos de ser comparados con la gloria que nos ha de ser revelada» (Romanos 8:18).
+> Porque, ¿quién de ustedes, deseando edificar una torre, no se sienta primero y calcula el costo, para ver si tiene lo suficiente para terminarla? »No sea que cuando haya echado los cimientos y no pueda terminar, todos los que lo vean comiencen a burlarse de él, diciendo: “Este hombre comenzó a edificar y no pudo terminar”.
 
-Ser discípulo es serlo a través de la Palabra de Dios: calcula el costo, pelea con la Palabra, prueba y ve, escucha y sigue. No necesitas solo terapia, descanso o encontrarle sentido a todo. Necesitas a Cristo crucificado y resucitado; al Espíritu Santo, consolador, defensor y guía a toda verdad; y al Padre, que te adoptó y te dio identidad. Me costará todo, pero ganaré a Cristo. Vale la pena. ¿Estás dispuesto a dejarlo todo?
+Muchos lo siguen pocos lo dejan todo.
+
+## La torre
+
+- a. Si no lo dejas todo, no lo lograrás.
+- i. ¿Estás listo para odiar todo lo de este mundo y amar todo lo del mundo venidero?
+- ii. ¿Buscar primero el reino de Dios?
+- iii. Acepta el costo por adelantado.
+- b. Tu corazón va a buscar tanto la auto-preservación que te va a detener.
+- c. La recompensa es mucho mayor: La resurrección.
+- a. Proyecta tu vida hacia el futuro… ¿Puedes?
+- b. ¿Es suficiente?
+- c. ¿Qué falta? Ver a Cristo…..
+- d. Cuenta tu vida como perdida.
+
+Si no lod ejas todo… no vas a poder.. No tienes la habilidad. No vas a aguantar. Te vas a cansar, te va a pesar.
+
+- No es inicio. Es perseverancia.
+- Muchos lo siguen pero pocos están dispuesto a darlo todo
+- ¿Por quien estas siendo discípulos?
+
+> "The Internet has discipled your soul to expect immediate answers. You inquire and you are answered—immediately. Three million results in 0.003 seconds; there is no waiting. The saints of ages past would be aghast at that. Waiting was considered formational for the soul. They planted crops in the spring and harvested in the fall; there was no rushing things. If you wanted something from the market, you walked there and then you walked back, moving at a pace of about three miles an hour.
+> "But now, when you turn to Jesús and you are not answered in the way the Internet answers, you feel he isn’t listening or that you can’t hear from him. You sadly believe the two of you are distant from one another, because your soul has been programmed for immediate responses. The notion of lingering before God doesn’t fit with the pace we’ve come to expect."
+
+John Eldredge, Experience Jesús. Really. 2.
+
+- Porque!!!
+- Ya vas a vivirlo. Calcula el costo de tuvida….
+- Calcula el costo de seguir a crist.
+- Carrera, propósito, objetivo. Estrés, ansiedad rechazo…..
+- Porque!!!
+- Por algo que vale la pena
+- ¿Amas la eternidad? Amas el Reino? Lo has encontrado?
+- Déjalo todo
+- Deja tu celular
+- Deja minecraft
+- ¿Que haces con tu tiempo?
+- Sé el mejor en tu escuela.
+- Atrévete a consolar, defender y guiar
+- La Biblia no se trata de ti
+
+Ven y sígueme
+
+¿El quiere ser tu maestro?
+
+Juan 16:13–14 (NBLA)
+
+> 13 »Pero cuando Él, el Espíritu de verdad venga, los guiará a toda la verdad, porque no hablará por Su propia cuenta, sino que hablará todo lo que oiga, y les hará saber lo que habrá de venir. 14 »Él me glorificará, porque tomará de lo Mío y se lo hará saber a ustedes.
+
+- Me costara todo, le perdere todo pero ganare a Cristo.
+- Perla de gran precio
+- Vale la pena
+- Vamos!!!!
+
+Romanos 8:11 (NBLA)
+
+> 11 Pero si el Espíritu de Aquel que resucitó a Jesús de entre los muertos habita en ustedes, el mismo que resucitó a Cristo Jesús de entre los muertos, también dará vida a sus cuerpos mortales por medio de Su Espíritu que habita en ustedes.
+
+Romanos 8:14–17 (NBLA)
+
+> 14 Porque todos los que son guiados por el Espíritu de Dios, los tales son hijos de Dios. 15 Pues ustedes no han recibido un espíritu de esclavitud para volver otra vez al temor, sino que han recibido un espíritu de adopción como hijos, por el cual clamamos: «¡Abba, Padre!» 16 El Espíritu mismo da testimonio a nuestro espíritu de que somos hijos de Dios. 17 Y si somos hijos, somos también herederos; herederos de Dios y coherederos con Cristo, si en verdad padecemos con Él a fin de que también seamos glorificados con Él.
+
+Romanos 8:18–19 (NBLA)
+
+Pues considero que los sufrimientos de este tiempo presente no son dignos de ser comparados con la gloria que nos ha de ser revelada. Porque el anhelo profundo de la creación es aguardar ansiosamente la revelación de los hijos de Dios.
+
+Es ser discipo a traves de la palabra de Dios.
+
+Calcula el costo. De su discípulo. Pelea con la palabra. Prueba y ve, escucha y sigue, experimenta y entiende.
+
+- No necesitas terapia, descanso, relajarte, entender tu propósito, darle sentido….
+- Necesitas a Cristo crucificado y resucitado.
+- Necesitas al Espíritu Santo, consolador, defensor, guía de toda verdad.
+- Necesitas al Padre. Amoroso, adopto, ida identidad, bendecido
+- ¿Estas dispuesto a dejarlo todo?

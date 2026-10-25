@@ -2,7 +2,7 @@
 
 > En este mensaje, preparado a partir de su manuscrito, Daniel Lira parte de Efesios 2:10 —«somos hechura Suya»— para hablar de la belleza. Lo verdaderamente bello produce deleite, atraviesa el corazón y saca a la luz lo bueno y lo verdadero: primero te atrapa, luego te transforma y después te envía. La belleza es la expresión de la gloria de Dios, y su máxima expresión en la creación es el ser humano, hecho a su imagen y semejanza. Cuando te entregas a las manos del Alfarero, Él recupera lo perdido, restaura lo dañado y embellece lo corrupto. Dios te ha visto, te ve y te verá: adoptado, redimido y sellado, eres su obra maestra para irradiar su gloria.
 
-*Adaptado con ayuda de IA a partir de la transcripción de una predicación.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en febrero de 2026 en Convivencia Familiar Monterrey (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
@@ -22,24 +22,123 @@
 
 ---
 
-## ¿Qué es una obra maestra?
+- Que somos
+- Que hacemos
+- A qué venimos
+- Porque existimos
+- Honestamente son las preguntas de todo ser humano
+- Algunas de las que muchos de ustedes vienen a responder
+- Como náufragos a la deriva buscando tierra
+- El mundo feliz de la trinidad
+- Creo todo y todo es bueno
+- La gran mentira del mundo: la verdad, lo que es bueno, lo que es bello
+- Los dos árboles: Vivimos según Sus palabras que dan vida o nuestro conocimiento que trae muerte
+- Identidad líquida vs identidad firme
+- Sexualidad es un espectro
+- La verdad es relativa
+- Tengo libertad para cambiar lo que soy (terians)
+- La belleza está en quien la mira
 
-Cuando piensas en una obra maestra, ¿qué te viene a la mente? ¿Una fotografía, una pintura, un paisaje increíble, la naturaleza, un momento histórico del deporte? Lo verdaderamente bello produce deleite y satisfacción al experimentarlo. La verdadera belleza tiene el poder de atravesar tu corazón y traer a la luz lo que es bueno y verdadero. Primero te atrapa, luego te transforma y después te envía.
+José
 
-Pablo usa precisamente esa idea: «Porque somos hechura Suya, creados en Cristo Jesús para hacer buenas obras, las cuales Dios preparó de antemano para que anduviéramos en ellas» (Efesios 2:10, NBLA). Somos su obra maestra, hechos para toda buena obra.
+Efesios 1:
 
-## La belleza es la gloria de Dios
+- La obra del padre
+- La obra del Hijo
+- La obra del Espíritu Santo
+- Efesios + Juan 15
 
-¿Qué es la belleza? Es la expresión de la gloria de Dios. Y la máxima expresión de la gloria de Dios en la creación son los seres humanos, hechos a su imagen y semejanza. Ya en Génesis, frente al árbol de la vida y al árbol del conocimiento del bien y del mal, se nos presentan dos caminos: recibir la vida de Dios o buscar definirnos lejos de Él.
+Aunque estábamos rotos… en Cristo
 
-## En las manos del Alfarero
+- Nos dio
+- Identidad en efesios
+- Adoptados, más allá de cómo creciste. El es tu papá
+- Redimido, más allá de lo que has hecho. El te limpio
+- Sellado, más allá de toda inseguridad. Él te garantiza vida eterna.
+- Nos traslado
+- Esclavos del: Diablo, del mundo y de tu carne
+- Hijos del Rey: Palabra, Espíritu su Iglesia
+- Nos unió
+- Somos uno.
+- Nos envió
+- Efesios 2:10 que es su obra maestra
+- Todo lo hermoso
+- Para toda buena obra.
 
-Eres la máxima expresión de belleza cuando te entregas a las manos del Alfarero. Él recuperará lo perdido, restaurará lo dañado y embellecerá lo corrupto. Te tomará en sus manos para irradiar belleza al mundo entero. No importa si el mundo no lo quiere reconocer; el mundo no puede contener tanta belleza, pero los hijos de Dios la reconocen: aroma agradable, imagen radiante, semejanza divina, hechura de Dios. Obra maestra. Eso eres.
+=
 
-## Dios te ve
+## Obra maestra
 
-Dicen que la belleza está en el ojo que la ve. Dios te ha visto, Dios te ve y Dios siempre te verá. La obra de Dios que más exalta su gloria es hacerte a ti, adoptarte a ti, redimirte a ti y habitar en ti. La obra que más lo deleita eres tú.
+- ¿Cuándo piensas en una obra que piensas?
+- ¿Fotografía?
+- ¿Pintura?
+- ¿Este paisaje increíble?
+- ¿La naturaleza?
+- ¿Un momento en la historia del deporte?
+- produce deleite y satisfacción al experimentarlo.
+- La verdadera belleza tiene el poder de atravesar tu corazón y traer a la luz lo que es bueno y verdadero
+- La verdadera belleza primero te atrapa, te transforma y te envía
 
-## Una identidad firme
+——>
 
-Efesios 1 nos lo dijo: el Padre te adoptó, el Hijo te redimió y el Espíritu te selló. Vive en esa identidad firme: eres adoptado, eres redimido, eres sellado, eres su obra maestra. No para presumir, sino para irradiar la gloria de Dios, experimentar la alegría de seguir a Cristo y deleitarte en lo que Él diseñó en ti y en la vida a la que te ha invitado.
+¿Qué es la belleza?
+
+La expresión de la gloria de Dios
+
+La máxima expresión de la gloria de Dios en la creación son los humanos
+
+¡A su imagen y semejanza!!!
+
+Eres la máxima expresión de belleza cuando te entregas a las manos del alfarero.
+
+- El recuperarás lo perdido
+- El restaurará lo dañado
+- El embellecerá lo corrupto
+- Él te tomará en sus manos para irradiar belleza al mundo entero
+
+No importa si el mundo no lo quiere reconocer
+
+El mundo no puede contener tanta belleza
+
+Pero los hijos de Dios la reconocen
+
+- Aroma agradable
+- Imagen radiante
+- Semejanza divina
+- Hechura de Dios
+
+## Obra maestra
+
+Ese eres, esa eres.
+
+La belleza está en el ojo que la ve.
+
+Dios te ha visto
+
+Dios te ve
+
+Dios siempre te verá
+
+La obra de Dios que más exalta su gloria
+
+- Hacerte a ti
+- Adoptarte a ti
+- Redimirte a ti
+- Habitar en ti
+
+La obra de Dios que más lo deleita
+
+Eres tú.
+
+Su obra maestra.
+
+Vive en la identidad firme
+
+- Eres adoptado
+- Eres redimido
+- Eres sellado
+- Eres la obra maestra
+- Para irradiar la gloria de Dios
+- Experimentar la alegría de seguir a Cristo
+- Deleitarte en lo que el diseño en ti
+- Y lo que el te ha invitado a vivir

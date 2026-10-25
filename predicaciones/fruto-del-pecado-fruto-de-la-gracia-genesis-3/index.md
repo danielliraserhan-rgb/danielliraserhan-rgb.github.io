@@ -2,11 +2,11 @@
 
 > A partir de Génesis 2:25 y Génesis 3, Daniel Lira muestra que la historia empieza con un hombre y una mujer «desnudos y sin vergüenza» delante de Dios, y que el pecado introdujo dos frutos que todavía cosechamos: vergüenza y miedo. Pero Dios mismo cubrió su desnudez y prometió regresarnos al jardín. La Biblia es como un rompecabezas que un papá arma con su hijo: Génesis da el marco, Jesús es la imagen, y lo importante nunca fue la pieza sino estar con Papá. Esa gracia produce dos frutos nuevos, fe y esperanza, y se cultiva acercándonos a la palabra que desnuda el alma no para avergonzarnos sino para edificarnos, renovando la mente y dejando que el Padre nos corrija en comunidad.
 
-*Adaptado con ayuda de IA a partir de la transcripción de una predicación.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en abril de 2025 en Convivencia Familiar Monterrey (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: 23 de abril de 2025, Convivencia Familiar Monterrey
+- Fecha: abril de 2025, Convivencia Familiar Monterrey
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/fruto-del-pecado-fruto-de-la-gracia-genesis-3/
 - Idioma: es-MX
@@ -23,52 +23,137 @@
 
 ---
 
-## Corramos sin peso
+Propósito: …
 
-«Por tanto, puesto que tenemos en derredor nuestro tan gran nube de testigos, despojémonos también de todo peso y del pecado que tan fácilmente nos envuelve, y corramos con paciencia la carrera que tenemos por delante, puestos los ojos en Jesús, el autor y consumador de la fe, quien por el gozo puesto delante de Él soportó la cruz, despreciando la vergüenza, y se ha sentado a la diestra del trono de Dios» (Hebreos 12:1–2).
+Puntos:
 
-Jesús despreció la vergüenza. Para entender por qué eso es una buena noticia tenemos que regresar al principio, al lugar donde la vergüenza entró en la historia. Ahí están las dos semillas que todavía hoy dan fruto en nuestra vida.
+- Los dos frutos
+- El rompecabezas de la Biblia = Estar con papá
+- ¿Como cosecho en el fruto de la gracia?
+- Material y espiritual es una sola cosa
+- La palabra desnuda tu alma, no para avergonzarte, para purificarte (edificarte)
+- Escucha a Dios y Obedece a Dios
+- Renueva tu mente
+- Acércate como con papá, escucha a papá, aprende de papá, corrige vive lo que papá enseña
+- INTRO
+- Hebreos 12
 
-## Desnudos y sin vergüenza
+Por tanto, puesto que tenemos en derredor nuestro tan gran nube de testigos, despojémonos también de todo peso y del pecado que tan fácilmente nos envuelve, y corramos con paciencia la carrera que tenemos por delante, 2 puestos los ojos en Jesús, el autor y consumador de la fe, quien por el gozo puesto delante de Él soportó la cruz, despreciando la vergüenza, y se ha sentado a la diestra del trono de Dios.
 
-En Génesis 1 y 2 vemos el diseño original. Dios formó al hombre y a la mujer, los puso en el jardín y la Escritura cierra esa escena con una frase hermosa: «Ambos estaban desnudos, el hombre y su mujer, pero no se avergonzaban» (Génesis 2:25). No había nada que esconder. Estaban completamente expuestos delante de Dios y el uno delante del otro, y eso no les producía miedo, sino comunión.
+- Las dos semillas (GENESIS 1 y 2) Génesis 2:25 - Génesis 3
+- Diseño original: Desnudos y sin vergüenza
+- Corrupción: Vergüenza y miedo
+- Promesa: Fe y esperanza
+- Dios cubre nuestro pecado y nos regresa al jardín.
+- Todo pecado va a producir dos cosas: Vergüenza y miedo.
 
-Entonces llega Génesis 3. La serpiente, el fruto, la desobediencia. Y lo primero que pasa después del pecado no es un rayo del cielo: es que se les abren los ojos, se dan cuenta de que están desnudos, se cosen hojas de higuera y se esconden entre los árboles cuando escuchan a Dios caminar en el huerto. Cuando Dios pregunta «¿Dónde estás?», Adán responde: «Te oí en el huerto, tuve miedo porque estaba desnudo, y me escondí» (Génesis 3:10).
+Conocer a Dios nos debe dar la certeza y confianza de que Él es un buen padre…
 
-## Los dos frutos del pecado
+- El rompecabezas de la Biblia = Estar con papá
+- La Biblia es como un rompecabezas
+- En Génesis encontramos la base, el fundamento, la imagen
+- Génesis marco del rompecabezas
+- En Éxodo nos damos cuenta que nunca se trato del rompecabezas
+- Papá lo esta armando contigo.
+- Levítico a deut - significado del rompecabezas
+- Jesús - la imagen del rompecabezas
 
-Ahí está el patrón: **todo pecado va a producir dos cosas, vergüenza y miedo**. Vergüenza por lo que soy y miedo de Aquel que me ve. Por eso nos escondemos. Nos escondemos de Dios, nos escondemos de los demás, y muchas veces nos escondemos de nosotros mismos.
+Te das cuenta que eres como el niñito pequeño que está haciendo un rompecabezas con ayuda de papá.
 
-Pero en el mismo capítulo aparece otra semilla. Dios no deja a Adán y a Eva cubiertos con hojas: «El Señor Dios hizo vestiduras de piel para Adán y su mujer, y los vistió» (Génesis 3:21). Dios cubre su desnudez. Y antes de que salgan del jardín, les da una promesa: de la mujer vendrá Aquel que aplastará la cabeza de la serpiente (Génesis 3:15). Diseño original: desnudos y sin vergüenza. Corrupción: vergüenza y miedo. Promesa: fe y esperanza. *Dios cubre nuestro pecado y nos regresa al jardín.*
+- Él ya conoce la imagen
+- Él ya sabe como armarlo
+- Pero se ha sentado para armarlo contigo
+- Quiere que tú lo disfrutes
+- Que tú lo descubras
+- Que tú lo compartas
+- Pero mas que el rompecabezas
+- Se trata de estar con papá
+- Se trata de estar con sus hijos
 
-## El rompecabezas de la Biblia
+Cuando entendemos esta realidad, entendemos la gracia.
 
-Me gusta pensar en la Biblia como un rompecabezas. En *Génesis* encontramos el marco, la base, el fundamento de la imagen. En *Éxodo* nos damos cuenta de que nunca se trató del rompecabezas: Papá lo está armando contigo. De *Levítico* a *Deuteronomio* empezamos a entender el significado de cada pieza. Y cuando llegamos a Jesús, por fin vemos la imagen completa.
+- La gracia es lo que nos habilita a acercarnos a papá
+- Y estar con el nos debe transformar, nos debe guiar, nos debe consolar, nos debe animar
+- Y la gracia siempre trae 2 frutos
+- Fe
+- Esperanza.
 
-Eres como un niño pequeño armando un rompecabezas con ayuda de su papá. Él ya conoce la imagen. Él ya sabe cómo armarlo. Pero se ha sentado en el piso para armarlo contigo, porque quiere que lo disfrutes, que lo descubras y que lo compartas. Y más que el rompecabezas, se trata de estar con Papá; se trata de que Él esté con sus hijos. Cuando entendemos esto, entendemos la gracia: la gracia es lo que nos habilita a acercarnos a Papá. (Desarrollo más esta idea en [Génesis: la caída y la promesa de la semilla](https://daniellira.com/clases/genesis-la-caida-y-la-promesa-de-la-semilla/) y en el ensayo [Desnudos pero sin vergüenza](https://daniellira.com/ensayos/desnudos-pero-sin-verguenza/).)
+Certeza de que el esta con nosotros hasta el fin del mundo.
 
-## Los dos frutos de la gracia
+- Certeza de que el es un buen padre
+- Certeza de que el cubre nuestra desnudez para con otros
+- Certeza de que no debemos acercarnos con miedo
+- Certeza de que todo lo que el hace es para ayudarnos a regresar a casa
+- Esperanza de que el hará lo que dice que hará
+- El cubrirnos, el sanarnos, el amarnos nos indica que el regresará.
 
-Así como el pecado da dos frutos, la gracia siempre trae otros dos: **fe y esperanza**.
+Es nuestro proceso vencer la vergüenza y el miedo.
 
-Fe es certeza. Certeza de que Él está con nosotros hasta el fin del mundo. Certeza de que es un buen Padre. Certeza de que cubre nuestra desnudez delante de los demás. Certeza de que no tenemos que acercarnos con miedo. Certeza de que todo lo que hace es para ayudarnos a regresar a casa.
+- 73 Tus manos me hicieron y me formaron;
+- Dame entendimiento para que aprenda Tus mandamientos.
+- 74 Que los que te temen, me vean y se alegren,
+- Porque espero en Tu palabra.
+- 75 Yo sé, Señor, que Tus juicios son justos,
+- Y que en Tu fidelidad me has afligido.
+- 76 Sea ahora Tu misericordia para consuelo mío,
+- Conforme a Tu promesa dada a Tu siervo.
+- 77 Venga a mí Tu compasión, para que viva,
+- Porque Tu ley es mi deleite.
+- 78 Sean avergonzados los soberbios, porque me agravian con mentira;
+- Pero yo en Tus preceptos meditaré.
+- 79 Vuélvanse a mí los que te temen
+- Y conocen Tus testimonios.
+- 80 Sea íntegro mi corazón en Tus estatutos,
+- Para que yo no sea avergonzado.
+- Seguir a Jesús es ir a la palabra y dejar que desnude tu alma y transforme tu ser
+- Hebreos 4:12
 
-Esperanza es saber que Él hará lo que dijo que haría. Que nos cubra, que nos sane y que nos ame nos indica que va a regresar. Vencer la vergüenza y el miedo es un proceso, y ese proceso tiene un destino.
+Porque la palabra de Dios es viva y eficaz, y más cortante que cualquier espada de dos filos.
 
-El salmista lo ora así: «Tus manos me hicieron y me formaron; dame entendimiento para que aprenda Tus mandamientos… Sea íntegro mi corazón en Tus estatutos, para que yo no sea avergonzado» (Salmo 119:73, 80).
+Penetra hasta la división del alma y del espíritu, de las coyunturas y los tuétanos, y es poderosa para discernir los pensamientos y las intenciones del corazón. No hay cosa creada oculta a Su vista, sino que todas las cosas están al descubierto y desnudas ante los ojos de Aquel a quien tenemos que dar cuenta.
 
-## La palabra desnuda tu alma
+- Toda realidad espiritual tiene una realidad material y viceversa
+- Colosenses 2:6-7
 
-¿Cómo cosecho el fruto de la gracia? Seguir a Jesús es ir a la palabra y dejar que desnude tu alma y transforme tu ser. «Porque la palabra de Dios es viva y eficaz, y más cortante que cualquier espada de dos filos… No hay cosa creada oculta a Su vista, sino que todas las cosas están al descubierto y desnudas ante los ojos de Aquel a quien tenemos que dar cuenta» (Hebreos 4:12–13).
+Por lo tanto, de la manera que recibieron a Cristo Jesús como Señor, ahora deben seguir sus pasos.
 
-Otra vez desnudos. Pero esta vez no para avergonzarnos, sino para edificarnos, porque Él ya nos conoce. «Porque no tenemos un Sumo Sacerdote que no pueda compadecerse de nuestras flaquezas, sino Uno que ha sido tentado en todo como nosotros, pero sin pecado. Por tanto, acerquémonos con confianza al trono de la gracia para que recibamos misericordia, y hallemos gracia para la ayuda oportuna» (Hebreos 4:15–16).
+Arráiguense profundamente en él y edifiquen toda la vida sobre él. Entonces la fe de ustedes se fortalecerá en la verdad que se les enseñó, y rebosarán de gratitud.
 
-Toda realidad espiritual tiene una realidad material, y viceversa. Lo que pasa en tu alma se ve en tu vida. Por eso Pablo dice: «de la manera que recibieron a Cristo Jesús el Señor, así anden en Él; firmemente arraigados y edificados en Él» (Colosenses 2:6–7).
+Pero Dios no desnuda nuestra alma para avergonzarnos, sino para edificarnos. (el te conoce)
 
-## Escucha, aprende, déjate corregir
+Hebreos 4:15
 
-Acércate como a un buen padre: escucha, aprende, déjate corregir y vive lo que Papá enseña. Pablo lo llama renovar la mente: «Y no se adapten a este mundo, sino transfórmense mediante la renovación de su mente, para que verifiquen cuál es la voluntad de Dios: lo que es bueno y aceptable y perfecto» (Romanos 12:2).
+15 Porque no tenemos un Sumo Sacerdote que no pueda compadecerse de nuestras flaquezas, sino Uno que ha sido tentado en todo como nosotros, pero sin pecado. 16 Por tanto, acerquémonos con confianza al trono de la gracia para que recibamos misericordia, y hallemos gracia para la ayuda oportuna.
 
-Para eso dejó a la iglesia. La Biblia no es de interpretación privada, y necesitamos retarnos unos a otros. A veces el Padre nos corrige, y no se siente bien: «Al presente ninguna disciplina parece ser causa de gozo, sino de tristeza. Sin embargo, a los que han sido ejercitados por medio de ella, después les da fruto apacible de justicia. Por tanto, fortalezcan las manos débiles y las rodillas que flaquean» (Hebreos 12:11–12). Él nos disciplina como a hijos, para que participemos de su santidad.
+- Renueva tu mente
+- Acércate como con un buen padre.
+- Escucha, Aprende, Corrige
+- vive lo que papá enseña
+- PARA ESO DEJÓ A LA IGLESIA
+- Necesitamos retarnos unos a otros!
+- Romanos 11:33-12:3
 
-«Toda Escritura es inspirada por Dios y útil para enseñar, para reprender, para corregir, para instruir en justicia, a fin de que el hombre de Dios sea perfecto, equipado para toda buena obra» (2 Timoteo 3:16–17). El fruto del pecado te esconde; el fruto de la gracia te regresa a casa. Sal de entre los árboles: Papá ya te cubrió.
+Por tanto, hermanos, les ruego por las misericordias de Dios que presenten sus cuerpos como sacrificio vivo y santo, aceptable a Dios, que es el culto racional de ustedes.
+
+Y no se adapten a este mundo, sino transfórmense mediante la renovación de su mente, para que verifiquen cuál es la voluntad de Dios: lo que es bueno y aceptable y perfecto.
+
+Necesitamos retarnos unos a otros!
+
+Hebreos 12
+
+Es para su corrección que sufren. Dios los trata como a hijos; porque ¿qué hijo hay a quien su padre no discipline?
+
+… Él nos disciplina para nuestro bien, para que participemos de Su santidad.
+
+Al presente ninguna disciplina parece ser causa de gozo, sino de tristeza. Sin embargo, a los que han sido ejercitados por medio de ella, después les da fruto apacible de justicia.
+
+Por tanto, fortalezcan las manos débiles y las rodillas que flaquean, y hagan sendas derechas para sus pies, para que la pierna coja no se descoyunte, sino que se sane.
+
+- La Biblia no es de interpretación privada
+- Josué 1:8
+
+Este libro de la ley no se apartará de tu boca, sino que meditarás en él día y noche, para que cuides de hacer todo lo que en él está escrito. Porque entonces harás prosperar tu camino y tendrás éxito
+
+2 Timoteo 3:16-17
+
+Toda Escritura es inspirada por Dios y útil para enseñar, para reprender, para corregir, para instruir en justicia, a fin de que el hombre de Dios sea perfecto, equipado para toda buena obra.

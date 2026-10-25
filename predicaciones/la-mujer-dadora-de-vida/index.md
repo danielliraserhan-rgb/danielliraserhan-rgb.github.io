@@ -2,7 +2,7 @@
 
 > En un mensaje por el Día de la Mujer, Daniel Lira recalca el valor de la mujer como dadora de vida y el del hombre como protector de la vida. La mujer fue creada no del barro sino de hueso y carne, no en el caos sino en el huerto, no inferior sino a imagen de Dios. Por una mujer vendría el Salvador; mujeres llevaron a Cristo a su pueblo, lo ungieron y lo vieron resucitado primero, y hoy siguen llevando el evangelio en lugares de persecución. El diablo la ataca desde Génesis 3:15 porque de ella vendría la vida. Por eso el llamado a los hombres: ser cabeza no da más valor, sino que nos hace escudo, como Cristo que dio su vida por su novia.
 
-*Adaptado con ayuda de IA a partir de la transcripción de una predicación.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
@@ -21,32 +21,122 @@
 
 ---
 
+Propósito: Recalcar el valor de la mujer como dadora de vida y el del hombre como protector de la vida.
+
+Puntos:
+
+## Fue una mujer la que…
+
+- Diseño de vida
+- El hombre protector
+- Cristo y su iglesia
+
+## Vida práctica
+
+Amamos, protegemos a nuestras mujeres
+
+## Saludos
+
+- Daniel Lira.
+- Director del programa Intensivo
+- Y junto con mi esposa coordinamos dos grupos de jóvenes.
+
 ## Fue una mujer
 
-Hoy es el Día de la Mujer, un día en que honramos y exhibimos su valor, y quiero tomarme el tiempo de hablar de eso.
+Hoy es el día de la mujer en donde honramos y exhibimos su valor.
 
-Fue al ver al hombre que Dios dijo: «No es bueno que el hombre esté solo; le haré una ayuda adecuada» (Génesis 2:18, NBLA). Y en el huerto creó a la mujer. Creada no del barro, sino de hueso y carne. Creada no en el caos, sino en la hermosura de un huerto. Creada no inferior, sino a la imagen de Dios. Creada no solo para suplir una necesidad, sino para hacer bueno lo que no era bueno.
+Y quiero tomarme el tiempo de hablar de eso porque mujeres
 
-Fue por una mujer que vendría el Salvador. Fue por una mujer que Israel fue preservado en su tierra y en su reino. Fue una mujer de Samaria quien corrió a atraer a todo un pueblo a los pies de Jesús. Fue una mujer quien ungió a Jesús antes de ir a la cruz. Fueron mujeres quienes vieron primero a Jesús resucitado y creyeron.
+Pues fue al hombre a quien vio Dios y dijo que no era bueno.
 
-## Las mujeres hoy
+- Y estando en el huerto creó a la mujer.
+- Creada no de barro sino de hueso y carne.
 
-Y hoy, en lugares de persecución, son mujeres las que han llevado el evangelio a multitudes; mujeres que se han levantado con valentía bajo gobiernos opresores; mujeres que, en lo peor del terrorismo, cruzaron montañas para atender médicamente a otros y compartir el amor de Cristo.
+Creada no en el caos sino en la hermosura de un huerto.
+
+Creada no inferior sino a la imagen de Dios.
+
+Creada no para suplir una necesidad sino para hacer bueno lo malo.
+
+Pues fue por una mujer que vendría el salvador
+
+Fue por una mujer que Israel regresó a su tierra y pudo restaurar su reino.
+
+Fue una mujer de Samaria quien correría a atraer a todo un pueblo a los pies de Jesús.
+
+Fue una mujer quien creyó en Cristo primero
+
+Fue una mujer quien ungió a Jesús antes de ir a la cruz.
+
+Fue una mujer quien vio a Jesús resucitado antes que nada y creyó en él…
+
+Las mujeres hoy
+
+En Irán, hoy son las mujeres que han llevado el evangelio a más de un millón de personas.
+
+En Afganistán las que se han levantado valientes ante el gobierno talibán.
+
+En Siria las que cruzaron las montañas en burro para atender médicamente durante la peor época del terrorismo de ISIS.
+
+Haciendo cesáreas y operaciones para compartir el amor de Cristo.
 
 ## ¿Por qué es oprimida?
 
-¿Por qué entonces la mujer ha sido tan oprimida? Porque desde Génesis existe una enemistad: «Pondré enemistad entre tú y la mujer, y entre tu simiente y su simiente; Él te herirá en la cabeza, y tú lo herirás en el talón» (Génesis 3:15). El diablo ha perseguido y atacado a la mujer porque ha entendido su rol: es por ella que vendría la vida, por ella vendría el Salvador. Es la simiente de una mujer la que aplastará a la serpiente, y eso hace temblar al diablo.
+- ¿Por qué entonces es la mujer oprimida?
+- Porque el diablo le tiene miedo y ha creado una enemistad con la mujer desde Génesis 3:15
+- Las ha perseguido y atacado porque ha entendido su rol.
+- Es por ellas que vendrá la vida.
+- Es por ella que vendrá la salvación
+- Es por ella que vendría la restauración.
+- Es por ella que vendría el salvador.
+- Pues es la semilla de una mujer quien aplastará la serpiente
+- Y eso hace al diablo temblar
+- Pero nos hemos creído sus mentiras
+- Nos hemos creído superiores
+- Nos hemos creído sus engaños
+- Y desafortunadamente las hemos hecho menos.
+- Y Dios lo sabe
+- Dios sabe que la mujer sería atacada y es por eso que puso al hombre como cabeza
 
-Pero nos hemos creído sus mentiras. Nos hemos creído superiores y, desafortunadamente, las hemos hecho menos. Y Dios lo sabe. Dios sabía que la mujer sería atacada, y por eso puso al hombre como cabeza.
+## Hombres
 
-## Hombres: nuestro rol es proteger
+Es nuestro rol proteger a las mujeres.
 
-Es nuestro rol proteger a las mujeres. Ser cabeza no da más valor; nos hace un escudo para ellas. Somos nosotros quienes recibimos las flechas y los ataques. Protegemos y proveemos. Nos aseguramos de ser sacerdotes, llevándolas siempre a recordar su valor y el amor de Dios por ellas. Proveemos nuestra fuerza para que puedan tomar de ella y mostrar su belleza, hermosas y seguras de sí mismas.
+Ser cabeza no da más valor, sino que nos ha hecho un escudo para ellas.
 
-Es nuestro trabajo que ninguna mujer tenga que sentirse amenazada por un hombre, sino que pueda correr a él para resguardarse, como cuando corremos por el paraguas en una tormenta: «Yo me mojo para que tú no te mojes». Pues de ti vendrá la vida.
+- Somos nosotros quienes recibimos las flechas
+- Somos nosotros quienes recibimos los ataques.
+- Protegemos y proveemos
+- Las mantenemos puras y sin mancha
+- Intachables ante Dios.
+- Nos aseguramos de ser sacerdotes, llevándolas siempre a recordar su valor y el amor de Dios para ellas
 
-## Cristo y su novia
+Proveemos nuestra fuerza para que puedan tomar de ella y mostrar su belleza.
 
-La mejor representación de esto es Cristo, que llama a su pueblo su novia y dio su vida por ella; que ha sido fiel y seguirá siendo fiel; cuyo momento más anhelado es el día de la boda. «Maridos, amen a sus mujeres, así como Cristo amó a la iglesia y se dio Él mismo por ella [...] a fin de presentársela a Sí mismo, una iglesia en toda su gloria, sin que tenga mancha ni arruga ni cosa semejante, sino que fuera santa e inmaculada» (Efesios 5:25–27).
+Hermosas y seguras de sí mismas
 
-Es Jesús quien se le apareció a Saulo en el camino y tomó como propia la persecución de su novia: «Saulo, Saulo, ¿por qué me persigues?» (Hechos 9:4). Es Jesús quien tomó la cruz y recibió el golpe completo para que su novia no tuviera que recibirlo. De esta misma manera, amamos y protegemos a nuestras mujeres, y damos nuestra vida por ellas.
+Es nuestro trabajo que ninguna mujer tenga que sentirse amenazada por un hombre sino que en cambio pueda correr a él para sujetarse.
+
+- Como cuando corremos por el paraguas en una tormenta.
+- Yo me mojaré para que tú no te mojes
+- Pues de ti vendrá la vida!
+
+## Es Cristo y su novia la mejor representación
+
+Podemos ver la mejor representación de esto en Cristo
+
+Quien llama a su pueblo su novia y dio su vida por ella.
+
+- Quien ha sido fiel y seguirá siendo fiel
+- Que su más anhelado momento es el día de la boda
+- En donde se presentará a su novia
+- Limpia, santa, intachable, sin mancha y sin arruga
+
+Es Jesús quien se le apareció a Saulo en medio del camino y se tomó la persecución de su novia personal.
+
+Oh, Saulo, ¿por qué me persigues?
+
+Es Jesús quien tomó la Cruz y recibió el golpe completo para que su novia no tuviera que hacerlo.
+
+- De esta misma manera, amamos, protegemos a nuestras mujeres
+- Damos nuestra vida por ellas.

@@ -2,11 +2,11 @@
 
 > En un mensaje para Cauce al inicio de 2023, Daniel Lira habla a quienes empiezan trabajos, se gradúan o inician nuevas temporadas. Recuerda su propia vida sin Dios: el emprendimiento, el trabajo hasta el cansancio, el miedo a fracasar y el vacío cuando se quedaba solo con la tormenta de sus pensamientos. Pero Dios lo vio, lo encontró y le dio dirección. Con Colosenses 2 advierte del engaño sutil de las tradiciones del mundo que ponen el trabajo sobre las personas y el progreso sobre Dios. Solo en Cristo habita la plenitud y solo en Él estamos completos. Como los discípulos en la barca, el milagro es su presencia: aprendamos a caminar con Él en todo momento.
 
-*Adaptado con ayuda de IA a partir de la transcripción de una predicación.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en enero de 2023 en Cauce.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: 12 de enero de 2023, Cauce
+- Fecha: enero de 2023, Cauce
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/momentos-con-jesus-colosenses-2/
 - Idioma: es-MX
@@ -21,30 +21,86 @@
 
 ---
 
-## Nuevo año, nuevas ambiciones
+Mensaje para Cauce.
 
-Nuevo año, nuevas temporadas, nuevas ambiciones. Algunos de ustedes están trabajando, muchos se acaban de graduar —felicidades— y otros están por hacerlo. Orando y meditando, le di muchas vueltas preguntándole a Dios qué quería transmitirles.
+Propósito: Recordar el valor de la presencia de Dios e invitarlos a permanecer en él durante toda temporada
 
-Empecé a recordar lo difícil que fue mi vida sin Dios, sin dirección; tratando de seguir lo que otros me habían definido como verdadero y exitoso. El mundo del emprendimiento, el trabajo hasta el cansancio para lograr más, estar siempre ocupado, ser siempre el mejor sin importar nada, darlo todo por ganar. Y el vacío que sentía cuando estaba oscuro y me quedaba solo con la tormenta de mis pensamientos, pensando que no era suficiente y que nunca lo sería, con miedo a fracasar y luchando día a día sin saber a dónde ir ni por qué lo hacía.
+Puntos:
 
-Pero Dios me vio. Me vio en mi condición, vio mi angustia, me encontró, me salvó y me dio dirección y propósito. Hoy es solo Él quien me sostiene.
+## Su identidad está en Jesús, No se dejen engañar por las tendencias sutiles del hombre y del mundo, Permanezcan
 
-## Permanezcan en Cristo
+- Colosenses 2:6-11
+- Aprender a relacionarnos y caminar con Dios en todos los momentos.
 
-Esto es lo que Dios puso en mi corazón para esta temporada de nuevos trabajos, nuevas libertades y nuevos logros: permanezcan en Cristo. No se dejen engañar por las tendencias de este mundo. Ustedes son discípulos, hijos de Dios, adoptados y redimidos por el Creador del universo. Su vida, su identidad, su llamado y su propósito se encuentran en Él, en todo momento y en toda temporada.
+## La barca (Cuando vamos sin Dios)
 
-«Por tanto, de la manera que recibieron a Cristo Jesús el Señor, así anden en Él; firmemente arraigados y edificados en Él y confirmados en su fe [...] Miren que nadie los haga cautivos por medio de su filosofía y vanas sutilezas, según la tradición de los hombres, conforme a los principios elementales del mundo y no según Cristo. Porque toda la plenitud de la Deidad reside corporalmente en Él, y ustedes han sido hechos completos en Él» (Colosenses 2:6–10, NBLA).
+- Cuando está oscuro y en tormenta… se dan cuenta que Jesús no esta
+- Jesús llega caminando en el agua
+- El milagro es su presencia
+- Práctica su presencia
 
-## Un engaño sutil
+Volvernos expertos en relacionarnos con Dios y sentir nuestros momentos, saber si él está ahí antes de subirnos a la barca.
 
-Hay un engaño sutil en las tradiciones del mundo. Poco a poco te atrapa haciéndote creer que el trabajo vale más que las personas, el dinero más que las relaciones y tu progreso más que Dios. Ganar más, hacer más, avanzar más, como si eso fuera a llenar tu vida de propósito.
+- Moises platicaba con Dios Cara a Cara… Tú también puedes.
+- Él te ve
 
-No te dejes engañar: solo en Cristo habita toda la plenitud de Dios, y solo en Él somos completos. Si hemos de estar en algún «negocio», que sea el de aprender a caminar con Dios todos los días de nuestra vida. «Acérquense a Dios, y Él se acercará a ustedes» (Santiago 4:8).
+Aun cuando nos hemos subido a esa barca, él nos ve. El me vio y me salvó, él te ve. El va contigo. El caminara en el agua si es necesario y te llevará a tierra firme.
 
-## La barca
+Él es nuestra barca.
 
-Cuando los discípulos van en la barca, de noche y en la tormenta, se dan cuenta de que Jesús no está. Y Jesús llega caminando sobre el agua. El milagro es su presencia.
+## Intro: Nuevo año, nuevas temporadas, nuevas ambiciones.
 
-Practica su presencia. Volvámonos expertos en relacionarnos con Dios en cada momento, en saber si Él está ahí antes de subirnos a la barca. «El Señor acostumbraba hablar con Moisés cara a cara, como habla un hombre con su amigo» (Éxodo 33:11). Tú también puedes.
+Algunos de ustedes están trabajando, Muchos se acaban de graduar, felicidades. Y otros están por hacerlo.
 
-Y aun cuando ya te subiste a esa barca sin Él, Él te ve. Me vio y me salvó; te ve a ti. Va contigo. Caminará sobre el agua si es necesario y te llevará a tierra firme. Él es nuestra barca.
+Orando y meditando en estos le di muchas vueltas preguntando a Dios que quería transmitirles.
+
+Empecé a recordar esos momentos en mi vida.
+
+Me acordaba de lo difícil que fue mi vida sin Dios, sin dirección.
+
+Tratando de seguir lo que otros me habían definido como verdadero y exitoso.
+
+El mundo del emprendimiento, el trabajo hasta el cansancio para lograr más, el siempre estar ocupado. Siempre ser el mejor sin importar nada. Darlo todo por ganar.
+
+El vacío que sentía cuando estaba oscuro y me quedaba solo con la tormenta de mis pensamientos.
+
+Sabiendo y pensando que no era suficiente y que nunca lo sería.
+
+Con el miedo a fracasar y luchando día a día sin saber a donde ir o porque lo hacia.
+
+Pero Dios me vio!
+
+El me vio en mi condición, vio mi angustia y me encontró, me salvó, me dio dirección y propósito.
+
+Hoy es solo el quien me sostiene.
+
+Dios puso algo en mi corazón y quiero compartirlo desde lo más profundo de mi ser… durante esta temporada de nuevas ambiciones y logros, donde inician nuevos trabajos y nuevas libertades….
+
+- Permanezcan en Cristo.
+- No se dejen engañar por las tendencias de este mundo.
+- Ustedes son discípulos, Hijos de Dios.
+- Adoptados y redimidos por el creador del universo.
+
+Tu vida, tu identidad, tu llamado y tu propósito se encuentran en el, siempre, en todo momento y toda temporada.
+
+Colosenses 2:6-11
+
+- Hay un engaño sutil en las tradiciones del mundo
+- Poco a poco te atrapan haciéndote creer que
+- Trabajo > Personas
+- Dinero > Relaciones
+- Tu progreso > Dios
+- Ganar más, hacer más, avanzar más….
+
+Como si todo esto fuera a llenar tu vida de propósito, como si esa fuera la dirección adecuada.
+
+No te dejes engañar, solo en Cristo habita toda la plenitud de Dios.
+
+- Solo en Cristo somos completos.
+- Permanezcan en el!
+
+Si estamos en un “negocio” en el de aprender a caminar con Dios todos los días de nuestras vidas, en toda temporada y en todos los momentos.
+
+Acérquense a Él y El se acercará a ustedes.
+
+La barca

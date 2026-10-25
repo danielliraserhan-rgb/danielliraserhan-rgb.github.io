@@ -2,7 +2,7 @@
 
 > ¿Cómo conozco la voluntad de Dios? Daniel Lira responde que todo depende de nuestro alimento: Jesús, cansado y sediento, decía que su comida era hacer la voluntad del Padre. No necesitamos un maestro humano para entender la voluntad de Dios; necesitamos la Palabra, el ejemplo de Jesús y la presencia del Espíritu. Los dones de maestro y pastor existen para edificar el cuerpo, no para sustituir la búsqueda personal ni para ser glorificados, sino para enseñar de tal manera que cada uno pueda profundizar. El Padre se vuelve nuestro maestro cuando nos volvemos aprendices.
 
-*Adaptado con ayuda de IA a partir de la transcripción de una predicación.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
@@ -21,28 +21,70 @@
 
 ---
 
-## ¿Cómo conozco la voluntad de Dios?
+¿Cómo hago para conocer la voluntad de Dios?
 
-Todo depende de nuestro alimento. Jesús estaba cansado y sediento junto al pozo, pero había algo más. «Mi comida es hacer la voluntad del que me envió y llevar a cabo Su obra» (Juan 4:34, NBLA).
+Todo depende de nuestro alimento
 
-El Padre es nuestro maestro, y lo conocemos a través de Jesús: no solo del hombre, sino de la Palabra. Por eso estudiamos las Escrituras, para conocer la voluntad del Padre y practicarla. No necesitas a un maestro para entender la voluntad de Dios. Necesitas la Palabra de Dios, el ejemplo de Jesús y la presencia del Espíritu Santo.
+- Jesús estaba cansado y sediento
+- Pero había algo más
+- Hacer la voluntad del padre
+- Padre mi maestro
+- A través de Jesús
+- No solo el hombre sino la palabra
 
-## Para qué existen los maestros
+Así que estudiamos las escrituras para poder conocer la voluntad del padre y practicarla.
 
-Cuando vayas a la Palabra encontrarás que Dios dio dones a cada uno según su voluntad: a unos como maestros, a otros como pastores. Esos dones son para servir a la iglesia, para la edificación del cuerpo.
+- Tú no necesitas a un maestro para entender la voluntad de Dios
+- Necesitas la palabra de Dios.
+- El ejemplo de a Jesús
+- Y la presencia del Espíritu Santo
 
-Mi trabajo como maestro no es enseñarte cada secreto y revelación de la Biblia. Es enseñarte de tal manera que, cuando vayas a la Biblia, puedas profundizar, ver la voluntad de Dios y vivirla. El trabajo de un pastor no es cuidar cada rincón de tu vida, sino enseñarte a discernir la verdad, escuchar al Espíritu Santo y empujarte a practicar la voluntad del Padre.
+Ahora.. cuando tú vayas a la palabra de Dios te vas a encontrar que dio dones a cada uno según su voluntad.
 
-Ninguna de estas cosas será suficiente, ni siquiera efectiva, si no vamos a las Escrituras; si no dejamos que nuestro maestro sea el Padre, que nuestro pastor sea Jesús y que el Espíritu sea quien nos hable. A medida que abrimos las Escrituras, dejaremos de buscar al gurú, a los miles de pastores de YouTube o al gran profeta que revele nuestro futuro.
+- A unos como maestros, pastores, etc.
+- Y estos dones son para servir a la iglesia
+- Para la edificación del cuerpo.
 
-## Edificados en comunidad
+Mi trabajo como maestro no es enseñarte todo y cada secreto y revelación de la Biblia.
 
-En comunidad sí necesitamos maestros, pastores y cada uno de los dones. Pero no para alzarlos y glorificarlos, sino para tomar unos de otros del fruto que Dios ha producido al permanecer en la vid. Iremos a nuestra comunidad a ser edificados mutuamente, ya alimentados de comida sólida y no solo de leche espiritual. Por eso la Palabra dice: «el que permanece en Mí y Yo en él, ese da mucho fruto, porque separados de Mí nada pueden hacer» (Juan 15:5).
+Mi trabajo es enseñarte de tal manera que cuando tú vayas a la Biblia puedas profundizar. Puedas ir mucho más profundo en entendimiento, puedas ver la voluntad de Dios y vivirla.
 
-## Cuando te vuelves aprendiz
+Nuestro trabajo como pastor no es cuidar cada rincón de tu vida si no enseñarte a discernir la verdad, escuchar al Espíritu Santo y empujarte a practicar la voluntad del padre.
 
-Mi camino como maestro de la Palabra inició cuando alguien me enseñó que había más en las Escrituras de lo que yo había visto. Me compartió lo que Dios le había estado enseñando, y cada vez que abría mi Biblia podía profundizar aún más gracias a ello.
+Pero si te fijas ninguna de estas será suficiente o ni siquiera efectiva si no vamos a las escrituras.
 
-El Padre se vuelve tu maestro cuando te vuelves aprendiz: cuando el hambre de conocer su voluntad es mayor que el hambre física o el cansancio; cuando el simple hecho de conocer más a Cristo hace arder tu corazón. Y eso sucede cuando te dispones a estudiar, practicar y enseñar las Escrituras.
+- Si no dejamos que nuestro maestro sea el padre.
+- Si no dejamos que nuestro pastor sea Jesús
+- Si no dejamos que nuestro profeta sea el Espíritu.
 
-Hay personas que pagan y viajan a grandes conferencias de negocios o emprendimiento para aprender de alguien. Dios es el gran maestro, y te ha escogido a ti como estudiante. ¿Aceptarías el reto? ¿Dejarías todo por aprender de Él?
+Y es a medida que abrimos las escrituras y dejamos que esto suceda que dejaremos de buscar al gurú y sabio de la palabra.
+
+- A los miles de pastores de YouTube
+- O al gran profeta que revele nuestro futuro.
+
+Si no que iremos a nuestra comunidad a ser edificados mutuamente habiendo sido ya alimentado de la comida sólida y no solo de la leche espiritual.
+
+Si en comunidad si necesitamos maestros y pastores y cada uno de estos dones.
+
+Pero de nuevo, no es para alzarlos y glorificarlos. Si no para tomar unos a otros del fruto que Dios ha provocado al permanecer en la vid.
+
+Es por esto que la palabra dice… nadie da fruto separado de la vid.
+
+Mi camino como maestro de la palabra inicio cuando alguien me enseñó que había más en las escrituras de lo que había visto
+
+Me compartió lo que Dios había estado enseñándole y cada vez que abría mi Biblia podía profundizar aún más gracias a ello
+
+El padre se vuelve tu maestro cuando nos volvemos aprendices.
+
+Cuando el hambre de conocer su voluntad es mayor al hambre física o al cansancio.
+
+Cuando el simple hecho de conocer más a Cristo hace arder tu corazón.
+
+- Y eso solo sucede cuando te dispones a
+- Estudiar, practicar y enseñar las escrituras.
+
+Ejemplo de las mega conferencias de negocios/emprendimiento/laborales/festivales
+
+- Dios es el gran maestro y te ha escogido a ti como estudiante
+- ¿Aceptarías el reto?
+- ¿Dejarías todo por aprender de Él?

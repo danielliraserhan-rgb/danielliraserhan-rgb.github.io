@@ -2,7 +2,7 @@
 
 > En este mensaje de una serie sobre Hechos, Daniel Lira divide Hechos 4:5–22 en dos partes. Primero, la predicación con confianza y poder: ante el concilio, por haber sanado a un hombre paralítico de más de cuarenta años, Pedro y Juan apuntan al poder de Jesús el Nazareno, crucificado y resucitado, y citan el Salmo 118:22, como hizo Jesús en Emaús. Después, la victoria sobre la intimidación, con tres personajes: Pedro y Juan, hombres comunes que habían estado con Jesús y tenían evidencia que respaldaba sus palabras; los líderes, que vieron la evidencia y aun así amenazaron; y el pueblo, que glorificaba a Dios y dejó al concilio sin manera de castigarlos. La cultura intentará callar el nombre de Jesús, pero toda intimidación se vence con una pregunta: ¿a quién obedeceremos, a Dios o a los hombres?
 
-*Adaptado con ayuda de IA a partir de la transcripción de una predicación.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
@@ -22,26 +22,48 @@
 
 ---
 
-## Dos partes de una lectura
+Hay dos partes de esta lectura. La primera tiene que ver con el contexto en el que estamos. Pedro y Juan ante el concilio por haber sanado a un hombre de 40 años que era paralítico. Ahí predican sin importar las consecuencias y testifican acerca del nombre de Jesús y su obra redentor.
 
-Hechos 4:5–22 tiene dos partes. En la primera, Pedro y Juan están ante el concilio por haber sanado a un hombre paralítico de más de cuarenta años, y predican sin importar las consecuencias, testificando del nombre de Jesús y su obra redentora. En la segunda, el concilio delibera para frenar la predicación intimidándolos. Pero Pedro y Juan siguen firmes sobre la roca y muestran su convicción: ¿a quién debemos obedecer, a Dios o a los hombres?
+La segunda es cuando el concilio delibera para poner fin a la predicación de los discípulos tratando de intimidarlos. Sin embargo, Pedro y Juan siguen firmes sobre la roca y dejan ver su convicción profunda: ¿A quién debemos, a Dios o a los hombres?
 
-## Predicar con confianza y poder
+- PARTE 1: La predicación del evangelio con confianza y poder.
+- En cualquier oportunidad de predicar el evangelio:
+- ¿Con qué poder han hecho esto?
+- No el nuestro, sino el de Jesús el nazareno
+- Siempre apuntamos a Cristo, testificando su nombre
+- El que murió crucificado y resucitó al tercer día
+- Y a su obra que testifica que Él es el Mesías.
+- Salmo 118:22
 
-Los líderes preguntan: «¿Con qué poder, o en qué nombre, han hecho esto?» (Hechos 4:7, NBLA). No con el nuestro, responde Pedro, sino con el de Jesús: «en el nombre de Jesucristo el Nazareno, a quien ustedes crucificaron y a quien Dios resucitó de entre los muertos, por Él, este hombre se halla aquí sano delante de ustedes. Este Jesús es la piedra desechada por ustedes los constructores, pero que ha venido a ser la piedra angular. En ningún otro hay salvación» (Hechos 4:10–12).
+De la misma manera que lo hizo Jesús en el camino a Emaús.
 
-En cualquier oportunidad de predicar el evangelio, siempre apuntamos a Cristo: testificamos su nombre, su muerte y su resurrección al tercer día, y su obra que muestra que Él es el Mesías. Pedro cita el Salmo 118:22, como Jesús en el camino a Emaús y como el propio Pedro en sus dos primeras predicaciones: desde la Torá, los Escritos y los Profetas.
+- Citamos La torah, los escritos y/o los profetas
+- De la misma manera lo hizo Pedro las primeras dos predicaciones
+- PARTE 2: La victoria sobre la intimidación
+- Los 3 personajes:
+- Pedro y Juan:
+- Predican con confianza y poder
+- Eran hombres comunes sin preparación especial.
+- Habían estado con Jesús
+- Tenían la evidencia para respaldar sus palabras. (Fe y acción)
+- Líderes del concilio
 
-## Tres personajes
+Vieron la evidencia y aún así querían detener la divulgación del evangelio y su poder.
 
-**Pedro y Juan.** Predican con confianza y poder. «Al ver la confianza de Pedro y de Juan, y dándose cuenta de que eran hombres sin letras y sin preparación, se maravillaban, y reconocían que ellos habían estado con Jesús» (Hechos 4:13). Eran hombres comunes, pero habían estado con Jesús, y tenían la evidencia que respaldaba sus palabras: fe y acción.
+- Intentan intimidarlos, callando su voz con amenazas.
+- Pero los dejan ir porque realmente no tenían nada para castigarlos.
+- El pueblo que vio y escuchó el mensaje:
+- Glorificar a Dios
+- Daban testimonio de Él
 
-**Los líderes del concilio.** Vieron la evidencia y aun así querían detener el evangelio y su poder. Intentan callarlos con amenazas, pero los dejan ir porque no tenían de qué castigarlos.
+Intimidaron al concilio, quitándoles el poder de atacar a Pedro y Juan.
 
-**El pueblo.** Vio y escuchó, glorificaba a Dios y daba testimonio. Y así intimidó al concilio, quitándole el poder de atacar a Pedro y a Juan: «los dejaron ir, no hallando la manera de castigarlos por causa del pueblo, porque todos glorificaban a Dios por lo que había acontecido» (Hechos 4:21).
+Venciendo la intimidación
 
-## Vencer la intimidación
+Toda la cultura tratará de intimidarnos para callar el nombre de Jesús, la proclamación del evangelio y su poder.
 
-La cultura tratará de intimidarnos para callar el nombre de Jesús, la proclamación del evangelio y su poder. Pero toda intimidación se vence con una sola pregunta. Pedro y Juan respondieron: «Ustedes mismos juzguen si es justo delante de Dios obedecer a ustedes en vez de obedecer a Dios. Porque nosotros no podemos dejar de decir lo que hemos visto y oído» (Hechos 4:19–20).
+- Pero toda intimidación se vence con una sola pregunta:
+- ¿A quién obedeceremos, a Dios o a los hombres?
+- ¿A quién temeremos, a Dios o al hombre?
 
-¿A quién obedeceremos, a Dios o a los hombres? ¿A quién temeremos? Solo a Jesús, el Cristo, que murió y resucitó al tercer día, y que nos da la confianza y el poder para predicar el evangelio con palabra y con acción.
+Solo a Jesús, el Cristo, quien murió y resucitó al tercer día. Quien nos da la confianza y poder para predicar el evangelio con palabra y acción.

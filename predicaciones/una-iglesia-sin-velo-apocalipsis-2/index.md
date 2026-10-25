@@ -2,7 +2,7 @@
 
 > Al regresar con un grupo que se ha consolidado como comunidad, Daniel Lira explica por qué Dios los ha reunido. En Apocalipsis 1, lo primero que Juan ve son candelabros alrededor del Hijo del Hombre glorificado: su único propósito es mantener viva la llama para alumbrar a Jesús, y esos candelabros son las iglesias, no individuos aislados. A Éfeso, excelente y perseverante, Jesús le dice que ha dejado su primer amor. Como en Esdras y Nehemías, la respuesta es una comunidad reunida como un solo hombre alrededor de la Palabra: adorar y leer para estar con Él, aplicar y enseñar para exaltarlo. Ni multitudes que buscan experiencias ni fariseos legalistas, sino un alabastro derramado.
 
-*Adaptado con ayuda de IA a partir de la transcripción de una predicación.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Fecha y lugar por confirmar.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
@@ -22,58 +22,216 @@
 
 ---
 
-## Entender por qué Dios nos ha reunido
+Punto principal:
 
-Es increíble regresar. Tuvimos un año increíble: el grupo se ha consolidado y se ha formado una comunidad que se ama. Creo que estamos listos para dar un siguiente paso: entender por qué Dios nos ha reunido. Por eso he titulado este mensaje «Una iglesia sin velo».
+- La iglesia es una comunidad con una persona al centro
+- Adoramos y leemos para estar con Él
+- Aplicamos y enseñamos para exaltarlo a Él y alumbrarlo ante TODOS.
 
-## Candelabros alrededor del Rey
+## La Iglesia Sin Velo
 
-Antes de los mensajes a las iglesias, Juan tiene una visión: «Entonces me volví para ver de quién era la voz que hablaba conmigo, y al volverme, vi siete candelabros de oro. En medio de los candelabros, vi a uno semejante al Hijo del Hombre, vestido con una túnica que le llegaba hasta los pies y ceñido por el pecho con un cinto de oro» (Apocalipsis 1:12–13, NBLA). Sus ojos como llama de fuego, su voz como el ruido de muchas aguas, su rostro como el sol. «No temas, Yo soy el Primero y el Último, y el que vive, y estuve muerto» (Apocalipsis 1:17–18).
+- Increíble es regresar.
+- Increíble año que tuvimos
+- El grupo se ha consolidado, se ha formado una comunidad que se ama
+- Y creo que estamos listos para dar un siguiente paso…
+- Entender por qué Dios los ha reunido.
+- Y por eso he titulado este mensaje como: LA IGLESIA SIN VELO
 
-Juan ve a Jesús resucitado en toda su gloria: un Cristo sin velo, totalmente revelado. Pero me llama la atención que lo primero que ve son los candelabros. Candelabros que tienen un solo propósito: mantener viva la llama para alumbrar al que está en el centro, al Rey, al único que merece ser visto por todos en la tierra.
+## Apocalipsis
 
-«Los siete candelabros son las siete iglesias» (Apocalipsis 1:20). Las iglesias, no las personas individuales: la comunidad, el cuerpo, todos juntos y no individuos aislados, con un solo propósito.
+Hay una escena increíble en Apocalipsis.
 
-## Has dejado tu primer amor
+- Pero antes de ver el mensaje a las iglesias Juan tiene una visión increíble:
 
-Una buena escatología, un buen estudio del fin, siempre debe llevarte a una aplicación de hoy: a la misión, a entender tu rol y tu propósito. Creo que esa es la respuesta que da Jesús a su iglesia en las cartas de Apocalipsis 2 y 3. Hoy quiero tomar solo una, que ha rondado mi corazón en los últimos meses: la carta a Éfeso.
+Apocalipsis 1:9–19
 
-«Yo conozco tus obras, tu fatiga y tu perseverancia, y que no puedes soportar a los malos, y has sometido a prueba a los que se dicen ser apóstoles y no lo son [...] Tienes perseverancia, y has sufrido por Mi nombre y no has desmayado» (Apocalipsis 2:2–3). Has hecho todo increíble: perseveras, has estudiado, rechazas la maldad, no te vas con cada corriente, tienes excelente doctrina. Qué iglesia tan incansable.
+> Yo, Juan, hermano de ustedes y compañeros en la tribulación, en el reino y en la perseverancia en Jesús, me encontraba en la isla llamada Patmos, por causa de la palabra de Dios y del testimonio de Jesús. 10 Estaba yo en el Espíritu en el día del Señor, y oí detrás de mí una gran voz, como sonido de trompeta, 11 que decía: «Escribe en un libro lo que ves, y envíalo a las siete iglesias: a Éfeso, Esmirna, Pérgamo, Tiatira, Sardis, Filadelfia y Laodicea». 12 Entonces me volví para ver de quién era la voz que hablaba conmigo, y al volverme, vi siete candelabros de oro. 13 En medio de los candelabros, vi a uno semejante al Hijo del Hombre, vestido con una túnica que le llegaba hasta los pies y ceñido por el pecho con un cinto de oro. 14 Su cabeza y Sus cabellos eran blancos como la blanca lana, como la nieve. Sus ojos eran como una llama de fuego. 15 Sus pies se parecían al bronce bruñido cuando se le ha hecho refulgir en el horno, y Su voz como el ruido de muchas aguas. 16 En Su mano derecha tenía siete estrellas, y de Su boca salía una espada aguda de dos filos. Su rostro era como el sol cuando brilla con toda su fuerza. 17 Cuando lo vi, caí como muerto a Sus pies. Y Él puso Su mano derecha sobre mí, diciendo: «No temas, Yo soy el Primero y el Último, 18 y el que vive, y estuve muerto. Pero ahora estoy vivo por los siglos de los siglos, y tengo las llaves de la muerte y del Hades. 19 »Escribe, pues, las cosas que has visto, y las que son, y las que han de suceder después de estas.
 
-Sin embargo, Dios sabe que hay algo que puede apagar su luz: «Pero tengo esto contra ti: que has dejado tu primer amor. Recuerda, por tanto, de dónde has caído y arrepiéntete, y haz las obras que hiciste al principio. Si no, vendré a ti y quitaré tu candelabro de su lugar» (Apocalipsis 2:4–5). Ese «pero» no invalida todo lo bueno; es una exhortación amorosa para evitar que la llama se apague.
+- Vemos una escena increíble. Juan escucha una voz pero en cuanto voltea lo primero que ve son unos candelabros de oro.
+- Estos candelabros de oro rodeaban a una persona, al Hijo del Hombre.
+- Rodeaban al Mesías, a Jesús resucitado y en toda su gloria.
+- Un Cristo sin Velo. Totalmente revelado.
+- Pero me llama la atención que lo primero que ve son los candelabros.
+- Candelabros que tienen un solo propósito: Mantener la llama viva para alumbrar al que está en el centro.
+- Alumbrar al Rey, A aquel que merece la gloria.
+- El único que merece ser visto por todos en la tierra.
 
-## Del yo al nosotros
+El único propósito de los candelabros es mantener la llama viva para alumbrar al
 
-Hoy no le hablo a un individuo; le hablo a una comunidad. No se trata de tu relación personal con Dios ni de tus obras, de que tú sí oras, lees, vienes y estudias. Se trata de un pueblo, de un cuerpo. Nos necesitamos unos a otros para pararnos alrededor de Cristo como iglesia. No nos abandonamos para perseguir experiencias individuales, sino que nos acompañamos para conocer juntos a la persona de Jesús.
+## Jesús vivo, sin velo glorificado y entronado
 
-Cuando leemos la carta como iglesia, el primer amor y las primeras obras describen a una comunidad que busca a la Persona que está en el centro, en Palabra y en Espíritu, sabiendo que su primer amor no es la experiencia sino la Persona; una comunidad que adora en espíritu y en verdad, en una intimidad de adoración y lectura que produce obediencia y multiplicación.
+Apocalipsis 1:20
 
-## Esdras y Nehemías: un pueblo como un solo hombre
+> »En cuanto al misterio de las siete estrellas que viste en Mi mano derecha y de los siete candelabros de oro: las siete estrellas son los ángeles de las siete iglesias y los siete candelabros son las siete iglesias. Y esos candelabros son las iglesias.
 
-Hay un momento en la historia en el que todo un pueblo regresa al primer amor. Nehemías, al ver a su pueblo de regreso pero desunido y sin murallas, es movido a reconstruirlas: la muralla representa a una comunidad restaurada. Y regresan con un solo propósito: edificar la casa del Señor (Esdras 1:3), una comunidad con Él al centro.
+- LAS IGLESIAS, no las personas individuales.
+- La comunidad, el cuerpo. TODOS junto no individuos aislados.
+- Con un solo propósito: Mantener la llama viva para alumbrar a un Jesús vivo.
 
-Cuando echaron los cimientos del templo, cantaban: «Porque Él es bueno, porque para siempre es Su misericordia sobre Israel», y «el pueblo no podía distinguir entre el clamor de los gritos de alegría y el clamor del llanto» (Esdras 3:11–13). Terminaron el templo y celebraron la Pascua para buscar al Señor (Esdras 6:21–22).
+¿Cómo mantener la llama viva, el fuego ardiente, la luz para exaltar a Cristo?
 
-A esa comunidad reunida alrededor del cordero llega Esdras, «porque Esdras había dedicado su corazón a estudiar la ley del Señor, y a practicarla, y a enseñar Sus estatutos y ordenanzas en Israel» (Esdras 7:10). «Todo el pueblo se reunió como un solo hombre» y le pidieron que trajera el libro (Nehemías 8:1). Cuando Esdras lo abrió, todo el pueblo se puso en pie, respondió «¡Amén, Amén!» y adoró rostro en tierra; y los levitas «leyeron en el libro de la ley de Dios, interpretándolo y dándole el sentido para que entendieran la lectura» (Nehemías 8:5–8).
+- Una buena escatología, un buen estudio del fin debe llevarte siempre a una aplicación de HOY.
+- A la misión, a entender tu rol y tu propósito.
+- Creo yo que esta es la respuesta que da Jesús a su iglesia en cada una de las cartas que les escribe en apocalipsis 2 y 3. Hoy no profundizaremos en cada una de las cartas, quiero
 
-Adorando y leyendo, el pueblo se reunió para buscar al Señor. Aplicando y enseñando, interpretaban las Escrituras.
+tomar solo una. Una que ha rondado por mi corazón los últimos meses. Y que justamente leyeron la semana pasada.
 
-## Un ciclo que mantiene viva la llama
+Apocalipsis 2:1-7
 
-¿Cómo mantenemos viva la llama? Con un ciclo: adorar y leer para estar con Él, en encuentros que producen obediencia y multiplicación. Lo hermoso es que puede iniciar en cualquier punto. La adoración provoca querer conocer a Cristo; conocer a Cristo provoca unirse como un solo hombre; y unirse alrededor de Jesús provoca adoración.
+> »Escribe al ángel de la iglesia en Éfeso: “El que tiene las siete estrellas en Su mano derecha, Aquel que and entre los siete candelabros de oro, dice esto:
+> 2 ‘Yo conozco tus obras, tu fatiga y tu perseverancia, y que no puedes soportar a los malos, y has sometido a prueba a los que se dicen ser apóstoles y no lo son, y los has hallado mentirosos.
+> 3 ’Tienes perseverancia, y has sufrido por Mi nombre y no has desmayado.
 
-Nehemías reunió a todos bajo un propósito; Esdras abrió las Escrituras y las leyó. Y Jesús, el Verbo que «se hizo carne, y habitó entre nosotros» (Juan 1:14), reunió a una comunidad alrededor de sí mismo. Llamó a cada uno, y cada uno lo dejó todo para seguirlo, aun hasta la muerte, aprendiendo a obedecer todo lo que Él enseñó.
+- Haz hecho todo increíble.
+- Perseveras, eres excelente, has estudiado, buscas la justicia rechazas la maldad.
+- No te vas de aquí para allá con cada corriente sino que pruebas a quienes dicen ser “enviados de Dios”
+- Excelente Doctrina
+- Eres perseverante y sufres a causa de mi nombre.
+- Wow… Que increíble iglesia. Incansable
+- Sin embargo… Dios sabe que hay algo que puede apagar su luz.
+- Algo que ha pasado con ellos y quiere llamarlos de regreso.
+- Este Pero… 1. no invalida todo lo bueno …
 
-Tú no eres la persona que lo inicia todo; ese es y siempre será Jesús. Pero sí eres llamado a dejarlo todo, como comunidad, para mantener viva la llama y exaltar al Rey. Ustedes no son el futuro: son el presente, son los enviados. Que al terminar el año la gente pregunte qué pasó aquí, quién es esa Persona, y diga: «necesito lo que ellos tienen; necesito a Cristo».
+2. Es una exhortación amorosa de Dios para prevenir que la llama se apague. Porque el sabe que hay algo que puede apagarla.
 
-## Ni multitudes ni fariseos
+Apocalipsis 2:4-5
 
-No podemos perder de vista el primer amor, pero tampoco las obras que produce. El primer amor nos lleva a experiencias increíbles, pero podemos estancarnos ahí, engañados: las multitudes seguían a Jesús por los milagros, mientras los apóstoles recogían las sobras y subían al monte a seguir conociendo a la Persona. Las obras nos llevan a un conocimiento y una transformación increíbles, pero pueden volverse legalismo: el fariseo invitó a Jesús a su casa, pero nunca se preocupó por honrarlo; la mujer, sin buscar beneficio alguno, lo derramó todo por Él.
+> 4 ’Pero tengo esto contra ti: que has dejado tu primer amor.
+> 5 ’Recuerda, por tanto, de dónde has caído y arrepiéntete, y haz las obras que hiciste al principio. Si no, vendré a ti y quitaré tu candelabro de su lugar, si no te arrepientes.
 
-Yo no quiero ser parte de las multitudes; prefiero recoger las sobras para estar con Jesús. No quiero presumir a Jesús y hacer cosas para Él; quiero ser quien entrega lo más valioso para ungirlo y exaltarlo. Entre esas dos cosas encontramos un corazón ardiente que provoca a otros a arder y mantiene viva la llama de una comunidad.
+¿Cómo mantenemos la llama viva, el fuego ardiente y la luz para exaltar a Cristo?
 
-## Derrama tu alabastro
+- 1. Volvamos a nuestro primer amor.
+- 2. Hagamos las obras que hacíamos al principio.
 
-Arranquemos el velo del legalismo y el velo de la pura experiencia. Vayamos a la persona de Cristo en toda su gloria, como una iglesia llamada a dejarlo todo, a seguir a Cristo a la cruz para experimentar las glorias de la resurrección.
+- Hoy no estoy hablándole a un individuo estoy hablándole a una comunidad.
+- No se trata de TU relación personal con Dios ni de TUS obras.
+- No se trata de que TU estes bien con Dios y que TU si oras, y lees y vienes y estudias.
+- Se trata de un pueblo, de un cuerpo de una comunidad.
+- Nos necesitamos unos a otros para poder pararnos alrededor de Cristo como Iglesia.
+- Comenzar a transicionar del yo al nosotros
 
-Déjalo todo, déjalo ahora, dáselo a Él. Entra en su gobierno, en su reino, en su vida. Que tu vida sea un alabastro vacío que será llenado solo de Él. Derrama tus sueños, tus anhelos, tu tiempo. Comprométete a una sola cosa: conocer y ser conocido, amar y ser amado por el único que importa. Entrega tu vida para adorarlo, leer y estudiar las Escrituras, aplicarlas y enseñarlas, porque somos una comunidad y no individuos.
+No nos abandonamos para perseguir experiencias individuales sino que nos acompañamos para conocer a LA PERSONA DE JESUS, juntos.
+
+¿A que se refiere Efesios con el Primer Amor y las Obras que hacían al principio?
+
+- Puede ser un termino muy extraño y podemos utilizarlo para justificar cualquier tipo de cosas.
+- Y el error es que usualmente creemos que habla a individuos cuando nos está hablando como iglesia.
+- Cuando lo vemos como iglesia esto se torna en:
+- Una comunidad que: Busca a la persona que esta en el centro En Palabra y en Espíritu, sabiendo que si primer amor no es la experiencia sino la persona. En la intimidad de la adoración y lectura que produce obediencia y multiplicación. Una comunidad que adora en Espíritu y Verdad.
+
+## Nehemías, Esdras y la comunidad y el segundo templo
+
+Un momento en el que todo un pueblo regresa al primer amor y comienza a hacer las obras que hacían al inicio.
+
+- Historia de la separación de Israel
+- Historia del regreso de Israel
+- Y es Nehemías quien al ver a su pueblo regresando pero desunidos, sin murallas, sin proteccipon es movido para regresar.
+- La reconstrucción de las murallas en Nehemías representa la unidad de una comunidad que esta siendo restaurada.
+
+## Nehemías → Comunidad reunida con un mismo propósito
+
+- Ellos son movidos principalmente a regresar por un solo motivo y propósito el cual vemos en el libro de Esdras:
+
+Esdras 1:3
+
+> El que de entre todos ustedes pertenezca a Su pueblo, sea su Dios con él. Que suba a Jerusalén, que está en Judá, y edifique la casa del SEÑOR, Dios de Israel; Él es el Dios que está en Jerusalén.
+
+Esdras → Una casa para Él (una comunidad con Él al centro)
+
+Esdras 3:10-13
+
+> Cuando los albañiles terminaron de echar los cimientos del templo del SEÑOR, se presentaron los sacerdotes en sus vestiduras, con trompetas, y los levitas, hijos de Asaf, con címbalos, para alabar al SEÑOR conforme a las instrucciones del rey David de Israel. 11 Y cantaban, alabando y dando gracias al SEÑORa: «Porque Él es bueno, porque para siempre es Su misericordia sobre Israel». Y todo el pueblo aclamaba a gran voz alabando al SEÑOR porque se habían echado los cimientos de la casa del SEÑOR. 12 Pero muchos sacerdotes y levitas y jefes de casas paternas, que ya eran ancianos y que habían visto el primer templo, cuando se echaban los cimientos de este templo delante de sus ojos, lloraban en alta voz mientras muchos daban gritos de alegría. 13 Así que el pueblo no podía distinguir entre el clamor de los gritos de alegría y el clamor del llanto del pueblo, porque el pueblo grita en voz alta, y se oía el clamor desde lejos.
+
+- Terminan de edificar el templo, lo dedican al señor y justamente cae en Pascua.
+
+Esdras 6:21-22
+
+> comieron la Pascua para buscar al Señor, Dios de Israel. Y por siete días celebraron gozosos la Fiesta de los Panes sin Levadura, porque el SEÑOR los había llenado de regocijo
+
+- A esta comunidad es que llega Esdras, Sumo Sacerdote.
+- A una comunidad reunida alrededor del cordero
+- Quien durante todo su exilio se mantuvo fiel a la palabra.
+
+Esdras 7:9-10
+
+> la mano bondadosa de su Dios estaba sobre él,
+> 10 Porque Esdras había dedicado su corazón a estudiar la ley del SEÑOR, y a practicarla, y a enseñar Sus estatutos y ordenanzas en Israel
+
+- Y todo el pueblo se reúne y le piden leer las escrituras.
+
+Nehemías 8:1
+
+> “Todo el pueblo se reunió como UN SOLO HOMBRE” Leían en voz alta las escrituras desde la mañana hasta la noche Y reinan, festejaban, lloraban y se entristecían llenos de nostalgia Y en medio de la lectura explotaban en adoración.
+
+Nehemías 8:5-8
+
+> Esdras abrió el libro a la vista de todo el pueblo, pues él estaba en un lugar más alto que todo el pueblo; y cuando lo abrió, todo el pueblo se puso en pie.
+> 6 Entonces Esdras bendijo al Señor, el gran Dios. Y todo el pueblo respondió: «¡Amén, Amén!», mientras alzaban las manos. Después se postraron y adoraron al Señor rostro en tierra.
+> 7 También Jesúa, Bani, Serebías, Jamín, Acub, Sabetai, Hodías, Maasías, Kelita, Azarías, Jozabed, Hanán, Pelaías, y los levitas, explicaban la ley al pueblo mientras el pueblo permanecía en su lugar.
+> 8 Y leyeron en el libro de la ley de Dios, interpretándolo y dándole el sentido para que entendieran la lectura.
+
+## Adorando y leyendo
+
+- El pueblo reunido para buscar al Señor.
+
+## Aplicando y enseñando
+
+- Interpretaban, aplicaban, enseñaban las escrituras.
+
+## ¿Cómo mantenemos la llama viva?
+
+Ciclo de Adorar y leer para estar con el que provoca obediencia y multiplicación
+
+Encuentros con Él que producen obediencia y multiplicación Lo más hermoso de esto es que el ciclo puede iniciar en cualquiera de las 3. La adoración provoca querer conocer a Cristo Conocer a Cristo provoca unirse como un solo Hombre Y unirse como un solo hombre al rededor de Jesús provoca a su vez adoración.
+
+El ciclo inicia en cualquier parte y solo necesita a 1 persona para iniciarlo
+
+Nehemías, un tipo de Cristo, reunió a todos como una comunidad bajo un propósito. Esdras, un tipo de Cristo, abrió las escrituras y las leyó.
+
+## Apóstoles
+
+- Jesús el Cristo.
+- El hombre que reunió una comunidad alrededor de Él mismo.
+- El verbo que se hizo carne para habitar entre nosotros
+- Llamó a cada uno de ellos y cada uno de ellos dejándolo todo, lo siguió.
+
+1 Persona reuniendo a 1 comunidad para conocerlo a Él y seguirlo aún hasta la muerte, aplicando y enseñando a obedecer TODO lo que Él les enseñó.
+
+## Tú no eres esa persona…
+
+Tú no eres la persona que lo inicia todo. Ese es y siempre será Jesús. Pero sí eres la persona que está llamada a dejarlo todo.
+
+Llamados a dejarlo todo como comunidad para mantener la llama viva y exaltar al Rey.
+
+- Ustedes no son el futuro.
+- Ustedes son el presente
+- Ustedes son los enviados
+- Conocer a Cristo y parecerte más a él
+- Al finalizar el año
+- Que la gente diga que pasó aquí
+- Quién es esa persona
+- Necesito lo que ellos tienen
+- Necesito a Cristo!!!!!!!
+- Que pasó en Monterrey
+- Que pasó en México
+- Que pasó en ese lugar
+
+No podemos perder de vista nuestro primer amor pero tampoco las obras que eso produce. Primer amor nos llevar a experiencias increíbles, pero puedes estancarte ahí engañado.
+
+- Jesús sana y alimentaba a las multitudes, pero ellos solo lo seguían por los milagros. Las experiencias
+- Pero los Apóstoles recogían las sobras y subían al monte a seguir conociendo a la PERSONA
+
+Las obras nos pueden llevar a un conocimiento y transformación increíble pero puede volverse legalismo o humanismo.
+
+- El fariseo invita a Jesús a su casa. Pero nunca se preocupo por atenderlo, honrarlo ni ungirlo
+- Solamente queria el beneficio de tenerlo, la experiencia de comer con Él
+- La mujer, sin importar la experiencia, ni el beneficio derramó todo por Él.
+
+Yo no quiero ser uno de las multitudes, prefiero recoger las sobras para estar con Jesús
+
+Yo no quiero presumir a Jesús y hacer cosas para Él; quiero ser quien entrega lo más valioso para ungirlo y exaltarlo a Él. Es en medio de estas dos cosas que encontramos un corazón ardiente que provoca a otros a arder y que mantiene la llama de una comunidad viva y alumbrando al único que lo merece.
+
+¿Cómo mantenemos la llama ardiente? Arranquemos el velo del legalismo y el velo de la experiencia eterna con Dios. Vayamos a la persona de Cristo en toda su gloria y la verdad de una iglesia que es llamada a dejarlo todo. A seguir a Cristo a la CRUZ para poder experimentar las glorias de la RESURRECCIÓN.
+
+Déjalo todo. Déjalo ahora. Dáselo a él. Entra en su gobierno. Entra en su reino. Entra en su vida. Y deja que tu vida sea solamente un alabastro vacío que será llenado solamente de Él. Derrama todo: tus sueños. Tus anhelos. Tu tiempo. ¡Dáselo a él ahora! Comprométete a una sola cosa: Conocer y ser conocido. Amar y ser amado. ¡Por el único que importa en esta vida! Todo lo demás es basura y vanidad. Todo fuera de este propósito queda en el olvido. Queda en el vacío. Entrega tu vida para Adorarlo, leer, estudiar las escrituras, aplicar las escrituras y enseñar las escrituras. Intensivo. Intensivo en línea. Grupos Conexión. Retiro. Todo eso es porque sabemos que somos una comunidad y no individuos.

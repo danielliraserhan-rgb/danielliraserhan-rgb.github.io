@@ -2,12 +2,12 @@
 
 > En la duodécima sesión, Daniel Lira repasa las etapas de acceso, siembra y cosecha y presenta tres aspectos básicos del discípulo que hace discípulos. Primero, la oración: no solo encerrarse en el cuarto temprano, sino asociarse con Dios como un socio íntimo y estar expectante de su presencia. Segundo, un evangelismo creativo que usa lo que Dios ya nos dio, sin delegar todo al pastor del domingo ni pedir a las personas que salgan de su círculo; cuando sientes un tirón del Espíritu, ahí jalas. Tercero, el seguimiento de quienes empiezan a conocer la Palabra, guiando con el ejemplo y no solo con palabras.
 
-*Adaptado con ayuda de IA a partir de la transcripción de una predicación.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
 
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: https://www.youtube.com/watch?v=01BK1BHUzNo
+- Video: video aún no público
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-tres-aspectos-basicos-del-discipulo/
 - Idioma: es-MX
 
@@ -24,20 +24,36 @@
 
 ## Repaso: acceso, siembra y cosecha
 
-Ya vimos las tres etapas para hacer discípulos. Ahora, ¿cómo se ve la vida de un discípulo que hace discípulos? Tres aspectos básicos, vividos en lo cotidiano.
+La sesión pasada estuvimos viendo tres diferentes etapas de hacer discípulos, de cómo hacer discípulos, ganamos acceso, sembramos el evangelio y cosechamos el fruto. Ahora, para poder lograr esto, estas etapas necesitan de tres aspectos, les quiero llamar tres aspectos distintos en los cuales debemos enfocarnos. La oración, el evangelismo y la guía o experimentación. O, en términos de esta clase, sería la oración, el alcance y el seguimiento. La oración cumple todo el aspecto de la intimidad y obediencia personal que tú y yo tenemos. El alcance es todas estas estrategias que tenemos para poder sembrar el evangelio. Y la guía o el seguimiento es este momento en el que empezamos a ver el fruto y cosechar este fruto y aprovechar este fruto.
 
-## Oración
+Entonces, el punto número uno, la vida de oración. Hacer discípulos o vivir una vida siguiendo a Jesús en general requiere de intimidad y de asociación con el Espíritu Santo. Y estas se ganan solo en la oración. Ahora, la oración no solamente es encerrarte, aunque lo incluye, en tu cuarto a las cinco de la mañana o seis o siete o ocho, a la hora que lo hagas, yo definitivamente no lo hago a las cinco de la mañana. Pero requiere esta intimidad en la que sí te encierras con Dios, estás con Él, meditas en Él, pero no es nada más esto. Es esta meditación constante de lo que agrada a Dios, de lo que dice su palabra, de este actuar en el que estamos recordando una y otra vez, en el que cedemos y estamos siempre meditando en Él.
 
-La oración no es solamente encerrarte en tu cuarto a las cinco de la mañana, aunque lo incluye (yo definitivamente no lo hago a esa hora). Es asociarnos con Dios, verlo como un socio, alguien íntimo y cercano. Debemos estar siempre expectantes de su presencia, tratando de discernir si el Espíritu Santo está obrando.
+## La vida cotidiana como ministerio
 
-## Evangelismo creativo
+En esencia, es la intimidad. La intimidad con una persona no es nada más el día de la cita, sino todo el tiempo que pasas con la persona. Incluye las peleas, incluye las partes hermosas de la cita, incluye las salidas, incluye recoger la casa, incluye limpiar los platos, incluye las pláticas también al finalizar el día con tu esposa, cuando están tratando de ponerse al corriente de todo lo que pasó. Incluye los momentos buenos y malos. Es una vida, como si Dios fuera una persona, porque realmente es una persona. Ahora, esta persona es el Espíritu Santo, la que nos acompaña diariamente. Así que requiere asociarnos con Él, verlo realmente como un socio, una persona íntima y cercana.
 
-A veces hemos delegado nuestro trabajo al pastor de los domingos: «voy a invitar a esta persona y el pastor va a predicar algo que atraviese su corazón». O les pedimos que salgan de su círculo —«qué padre tu grupo de ballet, pero para conocer a Cristo tienes que venir aquí el domingo»—. Más bien, vamos a su mundo. Y cuando sientes un tirón del Espíritu, ahí jalas, ahí empiezas a compartir.
+Saber dónde es que Él quiere que vayamos. ¿Le has preguntado últimamente? O simplemente vamos y pedimos que nos bendiga a donde ya estamos yendo. O saber dónde está Él, dónde estás actuando. Eso lo podemos ver en personas. Hay gente que amaríamos, que crean en el Evangelio y entregan su vida a Cristo, pero no estamos viendo el fruto. Es mejor, y lo voy a decir con delicadeza, pero es mejor dejar a esta persona por un tiempo y buscar dónde el Espíritu Santo está trabajando el día de hoy. Porque tal vez a través de esa persona, esta otra llegue a Cristo. Esta otra conozca el Evangelio. Y al estar a veces cegados por nuestra propia naturaleza humana de que esta persona que tanto amo, quiero que llegue a Cristo, nos perdemos de predicarle a esta otra persona o de sembrar en esta otra persona, que tal vez sea la razón por la que la persona que ama llegue a Cristo.
+
+Entonces debemos estar siempre expectantes de su presencia, tratando de sentirlo y discernir si el Espíritu Santo está ahí. Por lo tanto, tú y yo desarrollamos una vida de oración propia, enseñamos a otros a orar y a tener una vida de oración y a mantener esta vida de oración. Necesitamos tener estrategias. ¿Cuál es tu estrategia en la vida de oración? ¿Cómo lo haces? ¿Cómo no lo haces? ¿Cómo es difícil para ti? ¿Cómo iniciaste? ¿Cómo procuras tenerlo? Haré algunos clips extras al final de estas sesiones en donde podrás ver algunas estrategias de oración o de mantener una intimidad con Dios. Así que búscalas más adelante. Por ahora solo quiero dejarte con el primer aspecto, es la vida de oración.
+
+## Oración y evangelismo
+
+El segundo es el evangelismo. Y aquí estoy hablando de la creatividad y el uso de tus dones y talentos para llevar el evangelio del reino a las personas. Porque hay veces que le hemos tratado de delegar nuestro trabajo al pastor los domingos, tratando de esperar que voy a invitar a esta persona el domingo y el pastor va a predicar algo que va a atravesar su corazón. Y honestamente sí sucede. Y sucede más veces de las que esperamos. Muchísimas veces sucede. Pero también hay veces que no sucede. Tal vez ese día que invitaste a la persona, hablaron de los diezmos y de las ofrendas y de la generosidad y esta persona siempre te había dicho, la iglesia solo es un negocio y tú, se va a llevar esta imagen errónea.
+
+Y la verdad es que no es trabajo del pastor hacerlo. De hecho no es trabajo ni tuyo ni mío hacerlo. Es trabajo del Espíritu Santo. Pero nosotros tenemos una parte. Y nuestra parte es ser creativos en cómo llevar el evangelio. Una manera es llevarlos a la iglesia. Pero si esa es tu única manera, cuando alguien te dice que no, te vas a quedar sin estrategias. Así que la primera es la creatividad. Busca, genera este acceso, este alcance del que llamamos y busca ser parte de su círculo. No sacarlos de su círculo. No decirles, bueno, está bien padre tu círculo de personas que les gusta el ballet y bailan ballet, pero tú tienes que salir de ese círculo para poder conocer a Cristo acá y es los domingos.
 
 ## No copiar el método de otros
 
-No se trata de copiar lo que le funcionó a alguien más, sino de usar lo que Dios ya te dio: tus dones, tus relaciones, tu historia.
+O tal vez tú puedes meterte a clases de ballet, en donde ahí compartirás el evangelio. Sí me estoy explicando. Es un poco distinto lo que estoy tratando de decir. Así que buscamos ser parte de su círculo, generar el alcance, ser creativos en cómo hacerlo. Y luego buscamos utilizar nuestros dones y talentos en el evangelismo. No tratemos de ser... Si a alguien le ha funcionado algo, entonces en nuestra mente es ¡Ah! Esa persona porque es bien extrovertida puede salir a las calles y predicar el evangelio y ¡Guau! ¡Qué padre! Pero tal vez tú te consideras introvertido y es difícil para ti hacerlo. Bueno, es que Dios quiere que uses tus dones y talentos, porque tus dones y talentos llegarán a personas que la otra no llegará.
 
-## Seguimiento
+Así que, ¿Qué hacemos? Tiramos el anzuelo y esperamos una respuesta. Vamos buscando al Espíritu Santo, palpando al Espíritu Santo y de repente algo pasa. Y entonces sientes un tirón y ahí es donde jalamos, ahí es donde tiramos y empezamos a compartir. ¿A qué voy con todo esto? ¿Cuáles son tus dones y talentos que puedes utilizar como un anzuelo para atrapar a otros? Es bien sencillo. Si tu don y talento es bailar ballet, úsalo. Si tu don y talento es actuar, úsalo. Si tu don y talento es cantar, canta. Si tu don y talento son las finanzas, haz finanzas de la mejor manera posible. Ayúdale a otros en finanzas, ¿Como para qué?
 
-Después del alcance viene el seguimiento. Debemos guiar con el ejemplo y las acciones, no solo con la palabra, entendiendo que tú y yo también estamos en un proceso de santidad. En la siguiente sesión veremos una metodología para llevar a otros a descubrir la Palabra de Dios.
+Para que de repente, cuando te pregunten, ¿De dónde sacaste eso? Es que yo entendí que yo solo soy un mayordomo. Que las cosas que tengo se me han dado como para administrar, pero realmente son de Dios. ¿De dónde sacas eso? De la Biblia. ¿Quieres aprender más? ¡Fua! Y empiezas a jalar. Requiere abrirnos, ser vulnerables y tener una escucha activa. Estar pendientes todo el tiempo para cuando alguien de repente abre su corazón. Y es ahí en donde entramos nosotros. Ser creativos en el evangelismo. De nuevo, utilizaré algunos clips como para darte algunas técnicas de cómo serlo. De cómo escuchar a las personas y cómo ir tras de ellos.
+
+## Seguimiento después del alcance
+
+Cómo provocar una conversación que lleve a evangelismo. Y por último, el seguimiento. El seguimiento requiere de dos cosas. Una vez que una persona, ya generamos el acceso, ya empieza a conocer de la palabra de Dios, ya lo alcanzamos de alguna manera. Incluso esta persona ya puede haber entregado su vida a Cristo o a uno. Pero en el proceso va a requerir dos cosas de ti y de mí. Y número uno es el carácter. Debemos dirigir con el ejemplo y no con palabra. Debemos guiar con el ejemplo y las acciones y no solamente con la palabra. Porque si no tendemos a caer en religiosidad y a poner encargas en otros que ni tú ni yo llevamos.
+
+Y requiere eso. Para lograr eso, requiere que tú y yo seamos íntimos con Dios. Punto número uno. La oración. Esta es la parte del carácter. Y la segunda parte es un proceso de santidad. Entender que tú y yo estamos en un proceso de santidad. Y que las personas van a entrar en un proceso de santidad. No somos perfectos. Ni seremos perfectos. Nuestra autoridad no viene de dones y talentos. Sino viene de una intimidad con Dios. Que nos lleva a ser más como Él. Cada vez más. Buscamos caminar siempre hacia esa voz de Dios. Tú y yo. Para que otros puedan decir, así como Él camina, yo quiero aprenderlo.
+
+¿Qué dice Dios? ¿Está esto que dice Dios parado sobre la palabra? ¿Qué dice mi iglesia o mis autoridades? Y esto me lleva a ser discípulos. Hazte estas preguntas y empezarás a distinguir cada vez más la voz de Dios. Y así entonces hacemos algo que se llaman los grupos de descubrimiento de la Biblia. Los cuales veremos a detalle en la siguiente sesión. Y nos recordarán nuestra sesión de El Camino a Emmaús. Llevamos a ellos a descubrir la palabra de Dios, descubrir la Biblia, para escuchar la voz de Dios y entonces obedecerla. Acompáñame en la siguiente sesión para que podamos aprender cuál es este proceso o esta metodología para llevar a otros a descubrir la palabra de Dios.
