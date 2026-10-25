@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: febrero de 2026, Estudio 12:2
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=KUA7tV0PQS4
 - URL: https://daniellira.com/predicaciones/efesios-3-4-el-misterio-revelado-y-la-unidad-del-cuerpo/
 - Idioma: es-MX
 

@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=KJNGC3XJ1vE
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-introduccion-teologia-mision-y-vida-practica/
 - Idioma: es-MX
 

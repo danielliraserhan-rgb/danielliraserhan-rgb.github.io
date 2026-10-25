@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=FXhX1K8HBVw
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-quien-es-el-maestro/
 - Idioma: es-MX
 

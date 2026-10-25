@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: febrero de 2026, Estudio 12:2
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=mrQ2rA5OpGE
 - URL: https://daniellira.com/predicaciones/efesios-1-adoptados-redimidos-y-sellados-en-cristo/
 - Idioma: es-MX
 

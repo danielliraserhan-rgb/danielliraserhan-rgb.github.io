@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=bXfLhtk3MkE
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-el-traslado-al-reino-de-los-cielos/
 - Idioma: es-MX
 

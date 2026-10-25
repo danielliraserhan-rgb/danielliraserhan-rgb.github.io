@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=a8Cl4BXSXSA
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-el-camino-a-emaus/
 - Idioma: es-MX
 

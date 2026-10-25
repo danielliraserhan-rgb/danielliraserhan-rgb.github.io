@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=KKAI7a6Jutk
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-vida-y-muerte-por-cristo/
 - Idioma: es-MX
 

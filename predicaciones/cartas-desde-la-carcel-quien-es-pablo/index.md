@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=LM26KPEhvP8
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-quien-es-pablo/
 - Idioma: es-MX
 

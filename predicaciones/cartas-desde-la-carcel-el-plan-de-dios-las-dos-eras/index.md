@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=-nUbO7E02fk
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-el-plan-de-dios-las-dos-eras/
 - Idioma: es-MX
 

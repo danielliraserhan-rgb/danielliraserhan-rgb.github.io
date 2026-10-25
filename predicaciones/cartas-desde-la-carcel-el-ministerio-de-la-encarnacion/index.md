@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=W33IIZ62k6o
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-el-ministerio-de-la-encarnacion/
 - Idioma: es-MX
 

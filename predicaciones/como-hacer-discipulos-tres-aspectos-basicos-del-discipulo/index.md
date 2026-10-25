@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=01BK1BHUzNo
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-tres-aspectos-basicos-del-discipulo/
 - Idioma: es-MX
 

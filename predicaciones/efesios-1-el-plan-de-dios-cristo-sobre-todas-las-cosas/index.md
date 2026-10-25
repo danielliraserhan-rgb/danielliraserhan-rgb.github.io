@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: febrero de 2026, Estudio 12:2
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=AnwUXt9VFD4
 - URL: https://daniellira.com/predicaciones/efesios-1-el-plan-de-dios-cristo-sobre-todas-las-cosas/
 - Idioma: es-MX
 

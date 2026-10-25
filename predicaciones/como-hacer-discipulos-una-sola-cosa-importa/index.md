@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=VW1Mbqq1dOY
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-una-sola-cosa-importa/
 - Idioma: es-MX
 

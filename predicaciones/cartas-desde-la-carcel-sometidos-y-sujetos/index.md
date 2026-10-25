@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=ti31_yj8xEA
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-sometidos-y-sujetos/
 - Idioma: es-MX
 

@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=o5aAuiAZQsY
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-reconciliacion-unidad-y-diversidad/
 - Idioma: es-MX
 

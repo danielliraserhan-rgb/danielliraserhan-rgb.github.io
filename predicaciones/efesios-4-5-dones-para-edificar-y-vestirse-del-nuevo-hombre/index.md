@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: febrero de 2026, Estudio 12:2
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=91AhsDG6FUY
 - URL: https://daniellira.com/predicaciones/efesios-4-5-dones-para-edificar-y-vestirse-del-nuevo-hombre/
 - Idioma: es-MX
 

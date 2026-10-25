@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=JakjptIl5z4
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-donde-empiezo/
 - Idioma: es-MX
 

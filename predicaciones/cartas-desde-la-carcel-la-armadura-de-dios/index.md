@@ -7,7 +7,7 @@
 - Autor: Daniel Lira
 - Tipo: Clase
 - Fecha: octubre de 2023, Intensivo Convivencia en línea
-- Video: video aún no público
+- Video: https://www.youtube.com/watch?v=2Dmb0ya9qBE
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-la-armadura-de-dios/
 - Idioma: es-MX
 
