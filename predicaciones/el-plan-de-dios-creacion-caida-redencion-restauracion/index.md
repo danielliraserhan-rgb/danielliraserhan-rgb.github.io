@@ -1,10 +1,10 @@
 # El plan de Dios
 
-*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en junio de 2018 en Convivencia Familiar Monterrey (fecha aproximada, pendiente de confirmar).*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Lugar: Convivencia Familiar Monterrey.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: junio de 2018, Convivencia Familiar Monterrey
+- Lugar: Convivencia Familiar Monterrey
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/el-plan-de-dios-creacion-caida-redencion-restauracion/
 - Idioma: es-MX

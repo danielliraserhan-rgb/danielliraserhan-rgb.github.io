@@ -1,6 +1,6 @@
 # Efesios 2: «pero Dios», somos su obra maestra
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2 (fecha aproximada, pendiente de confirmar).*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
@@ -73,7 +73,7 @@ Y ahora esto se presenta en Cristo. En Cristo, Dios derribó esta pared que pare
 
 Y ahora las naciones nos unimos junto con ellos para representar a Cristo. Porque
 
-> “Por medio de Cristo los unos y los otros tenemos nuestra entrada al Padre en un mismo Espíritu” (Efesios 2:18 NBLA)
+> “Por medio de Cristo los unos y los otros tenemos nuestra entrada al Padre en un mismo Espíritu” (Efesios 2:18)
 
 De nuevo, la Trinidad: es por medio de Cristo que tenemos entrada al Padre, somos adoptados por el Padre en el Espíritu Santo.
 

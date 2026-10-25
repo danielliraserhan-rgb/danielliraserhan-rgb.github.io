@@ -1,10 +1,10 @@
 # Obra maestra: la belleza de ser hechura de Dios
 
-*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en febrero de 2026 en Convivencia Familiar Monterrey (fecha aproximada, pendiente de confirmar).*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Lugar: Convivencia Familiar Monterrey.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: febrero de 2026, Convivencia Familiar Monterrey
+- Lugar: Convivencia Familiar Monterrey
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/obra-maestra-hechura-de-dios/
 - Idioma: es-MX

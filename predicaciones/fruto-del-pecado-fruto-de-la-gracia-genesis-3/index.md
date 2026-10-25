@@ -1,10 +1,10 @@
 # Fruto del pecado, fruto de la gracia
 
-*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en abril de 2025 en Convivencia Familiar Monterrey (fecha aproximada, pendiente de confirmar).*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Lugar: Convivencia Familiar Monterrey.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: abril de 2025, Convivencia Familiar Monterrey
+- Lugar: Convivencia Familiar Monterrey
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/fruto-del-pecado-fruto-de-la-gracia-genesis-3/
 - Idioma: es-MX

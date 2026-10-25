@@ -1,6 +1,6 @@
 # Efesios 3–4: el misterio revelado y la unidad del cuerpo
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2 (fecha aproximada, pendiente de confirmar).*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
@@ -29,7 +29,7 @@ Y entonces Pablo dice: “Dios me eligió para revelar este misterio que aún no
 
 Ahora, ¿cuál es este evangelio, de nuevo? Que todos tenemos acceso al reino. Que a través de Cristo, Dios ha abierto la puerta a todos. En el versículo 6 lo dice claramente:
 
-> “A saber, que los gentiles son coherederos y miembros del mismo cuerpo, participando igualmente de la promesa en Cristo Jesús, mediante su buena noticia” (Efesios 3:6 NBLA)
+> “A saber, que los gentiles son coherederos y miembros del mismo cuerpo, participando igualmente de la promesa en Cristo Jesús, mediante su buena noticia” (Efesios 3:6)
 
 Mediante el evangelio de que Él reinará.
 

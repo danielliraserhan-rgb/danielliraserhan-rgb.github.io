@@ -1,6 +1,6 @@
 # Grupos para descubrir la Biblia
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea (fecha aproximada, pendiente de confirmar).*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
@@ -51,7 +51,7 @@ Primero, buscas que lo entiendan con su cabeza, que aprendan qué dice, qué dic
 
 Interesante. ¿Y qué propósito crees que sea? Y entonces empiezan a hablar y vas guiando con las preguntas a que su corazón empiece a arder por Jesús. Como en la historia del camino de Emaús, que su corazón iba ardiendo cada vez más, que descubrían algo. Yo me imagino que esta plática era de preguntas: ¿Y luego qué más Jesús? ¿Y luego qué pasó ahí? ¿Y aquí dónde estabas tú? ¿Y aquí dónde? Y era un va y ven en el que el corazón empieza a arder. Cada cosa que descubren, cada cosa que lo ayudas a descubrir, su corazón empieza a arder. Y nuestras preguntas van enfocadas a esto.
 
-Va a llegar un punto en el que digan, pues entonces todo tiene un propósito, ¿ok? ¿Y eso qué significa para ti? Pues si todo tiene un propósito y todo tiene un destino, lo tengo que descubrir. Imagínate que una persona te diga eso, una persona que no cree en Cristo aún, que nunca se había interesado en la historia de Jesús, te diga, tengo que descubrir el propósito de Dios para mi vida. Ese momento es Jesús y es el Espíritu Santo que ha atravesado su corazón y le ha dicho, hay una historia que es más grande que cualquier historia y que tú eres parte de ella. Descúbrelo, descúbrelo.
+Va a llegar un punto en el que digan, pues entonces todo tiene un propósito. ¿Y eso qué significa para ti? Pues si todo tiene un propósito y todo tiene un destino, lo tengo que descubrir. Imagínate que una persona te diga eso, una persona que no cree en Cristo aún, que nunca se había interesado en la historia de Jesús, te diga, tengo que descubrir el propósito de Dios para mi vida. Ese momento es Jesús y es el Espíritu Santo que ha atravesado su corazón y le ha dicho, hay una historia que es más grande que cualquier historia y que tú eres parte de ella. Descúbrelo, descúbrelo.
 
 Es una invitación de Jesús. ¿Qué es lo que hacemos cuando encontramos que Jesús, que el Espíritu Santo les está invitando a algo? Los llevamos a obedecerlo. Y esto, el enfoque es hacerlo práctico. El ejemplo, continuando con esta línea, es si Dios tiene un propósito y tú lo quieres descubrir, ¿qué puedes hacer esta semana para descubrirlo? ¿Cómo? Si esta verdad de que Dios creó los cielos y la tierra y que hizo esto en siete días y que tiene un orden, ¿cómo eso puede impactar tu vida diaria? Hay un ejemplo que siempre doy, es que si Dios es un Dios de orden, entonces mi cuarto debe estar ordenado y por lo tanto voy a tender mi cama.
 
