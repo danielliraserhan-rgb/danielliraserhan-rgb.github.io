@@ -11,7 +11,8 @@ Cómo usar este sitio:
 
 ## Sitio
 
-- [Página principal](https://daniellira.com/): empieza aquí (3 pasos), quién soy, Orígenes, libros y biblioteca
+- [Página principal](https://daniellira.com/): cuatro pasos (mi historia, conoce la Biblia, estudia Orígenes, ve la biblioteca), la serie de libros Orígenes y las cartas
+- [Biblioteca](https://daniellira.com/biblioteca/): todo el contenido del sitio, filtrable por tipo, por libro de la Biblia o por temática
 - [Mi historia](https://daniellira.com/mi-historia/): del islam y el ateísmo a Cristo
 - [Orígenes](https://daniellira.com/origenes/): la serie de cinco libros sobre la Torá
 - [Cartas](https://daniellira.com/newsletter/): una lectura por semana por correo
