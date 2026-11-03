@@ -1,10 +1,10 @@
 # Las cuatro copas de la promesa
 
-*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en abril de 2023 en Convivencia Familiar Monterrey · Vértice.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en abril de 2023 en Convivencia Familiar Monterrey · Jóvenes.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: abril de 2023, Convivencia Familiar Monterrey · Vértice
+- Fecha: abril de 2023, Convivencia Familiar Monterrey · Jóvenes
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/las-cuatro-copas-de-la-promesa-exodo-6/
 - Idioma: es-MX
@@ -15,7 +15,7 @@
 
 Enfrente de Dios, abajo es el Espíritu Santo, así que ahí descansa, no importa lo que yo diga, el Espíritu Santo, el día de hoy estoy seguro que te va a tocar, seguro que no te va a dejar igual, porque Él es el que hizo la promesa y Él es el que no se va a detener, así que abre tu corazón para escucharlo a Él, tal vez suene como mi voz, pero escucha tú a Dios, porque Él quiere hablarte el día de hoy, ¿me acompañas a orar? Señor, te damos gracias porque has decidido visitarnos el día de hoy, le damos gracias porque tu presencia está aquí, Señor, porque tu Espíritu Santo se ha desbordado sobre nosotros, Señor toma tú el gobierno de esta reunión, Señor toma tú el gobierno de nuestras vidas, queremos seguirte y queremos hacer tu voluntad, Señor abrimos nuestro corazón para que tú lo atravieses, Señor con tu palabra, para que nuestra vida no sea igual, que el día de hoy no salgamos igual que como llegamos, le damos tantas gracias, en el nombre de Jesús, amén.
 
-Y antes de que tomes tu lugar, saluda a alguien como siempre, y en lo que tomas tu asiento, en lo que tomas tu lugar, permíteme presentarme un poquito a los que no me conocen, mi nombre es Daniel Lira y junto con mi esposa coordinamos este grupo, mi esposa está con mi hija, cuidándola, ya está dormida, entonces todo bien, nos da muchísimo gusto estar aquí con ustedes, y queremos hoy darle la bienvenida a los que vienen por primera vez, Vértice es una familia, Vértice no es un grupo de una iglesia, Vértice es una familia, y es la iglesia, somos parte de Convivencia Familiar, pero todos son bienvenidos, si tú vienes de otra iglesia eres bienvenido, ve y regresa a tu iglesia, da fruto, y puedes venir con nosotros los martes y los viernes, pero si vienes por primera vez, tenemos un regalo para ti, te lo queremos dar. Denle la bienvenida a los nuevos, por favor.
+Y antes de que tomes tu lugar, saluda a alguien como siempre, y en lo que tomas tu asiento, en lo que tomas tu lugar, permíteme presentarme un poquito a los que no me conocen, mi nombre es Daniel Lira y junto con mi esposa coordinamos este grupo, mi esposa está con mi hija, cuidándola, ya está dormida, entonces todo bien, nos da muchísimo gusto estar aquí con ustedes, y queremos hoy darle la bienvenida a los que vienen por primera vez: este grupo de jóvenes es una familia, no es solo un grupo más de una iglesia, es una familia, y es la iglesia; todos son bienvenidos, si tú vienes de otra iglesia eres bienvenido, ve y regresa a tu iglesia, da fruto, y puedes venir con nosotros, pero si vienes por primera vez, tenemos un regalo para ti, te lo queremos dar. Denle la bienvenida a los nuevos, por favor.
 
 Bienvenidos a la familia, esperemos que les caigamos bien y que se quieran quedar.
 
@@ -85,7 +85,7 @@ Porque Cristo te sacó y ahora te quiere entregar esta libertad. Lo más interes
 
 ## Sanar en comunidad
 
-Y es aquí en donde obedeciendo a Dios y creyendo en Él y que Él los va a sanar, que podemos realmente crecer. Pero es un proceso. Y este proceso es en comunidad y en obediencia. Y por eso existen grupos como estos. Por eso existe Vértice. Eso esperamos que sea Vértice para ti. Un lugar seguro en el que te puedas sentir amado, valorado. En el que puedas sentir que hay alguien que te puede cuidar y que te puede acompañar sin importar tus luchas. Sin importar tus problemas. ¿Por qué? Porque sabemos que Dios te ha santificado. Y porque sabemos que Dios te quiere sanar y quiere traer libertad a tus pensamientos. Quiere traer libertad a tus heridas. Quiere traer libertad a tu corazón. Y por eso caminamos juntos.
+Y es aquí en donde obedeciendo a Dios y creyendo en Él y que Él los va a sanar, que podemos realmente crecer. Pero es un proceso. Y este proceso es en comunidad y en obediencia. Y por eso existen grupos como estos. Por eso existe este grupo de jóvenes. Eso esperamos que sea para ti. Un lugar seguro en el que te puedas sentir amado, valorado. En el que puedas sentir que hay alguien que te puede cuidar y que te puede acompañar sin importar tus luchas. Sin importar tus problemas. ¿Por qué? Porque sabemos que Dios te ha santificado. Y porque sabemos que Dios te quiere sanar y quiere traer libertad a tus pensamientos. Quiere traer libertad a tus heridas. Quiere traer libertad a tu corazón. Y por eso caminamos juntos.
 
 Por eso no lo hacemos solos. Porque cuando uno se tropieza lo podemos levantar. Y cuando el que lo levantó se tropieza, alguien más lo va a levantar. No estamos solos, estamos en una comunidad. Y sabemos que juntos, siguiendo a Cristo, vamos a encontrar esa libertad. Así que Jesús toma la copa y luego se la toma. Ya no sé Jesús, pero me la puedo tomar.
 

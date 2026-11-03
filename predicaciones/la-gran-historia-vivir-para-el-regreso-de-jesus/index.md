@@ -1,21 +1,21 @@
-# La gran historia
+# La gran historia: vivir para el regreso de Jesús
 
-*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en enero de 2023 en Convivencia Familiar Monterrey · Vértice.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en enero de 2023 en Convivencia Familiar Monterrey · Jóvenes.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: enero de 2023, Convivencia Familiar Monterrey · Vértice
+- Fecha: enero de 2023, Convivencia Familiar Monterrey · Jóvenes
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/la-gran-historia-vivir-para-el-regreso-de-jesus/
 - Idioma: es-MX
 
 ---
 
-## Bienvenida a Vértice
+## Bienvenida
 
-Bienvenidos. Queremos decirles que Convivencia Familiar es una casa para todos y Vértice en especial es una familia. La iglesia completa es una familia y esta iglesia tiene múltiples habitaciones. Hay una que se llama Vértice y es en la que tú estás. Y honestamente, de todo corazón, te puedo decir que se vuelve una familia. Cuando tú te integras, eso es algo que me encanta, yo los veo, cuando no hay grupos conexión, se juntan. Cuando sí hay grupos conexión, se van a cenar. Cuando es fin de semana y alguien cumplió años, es Vértice a quienes invitan. Es a ustedes. Se ha hecho una familia y la verdad es que es el fruto que más, va a sonar raro, es el fruto que más disfruto.
+Bienvenidos. Queremos decirles que la iglesia es una casa para todos y que este grupo de jóvenes en especial es una familia. La iglesia completa es una familia y tiene múltiples habitaciones. Una de ellas es este grupo de jóvenes, en el que tú estás. Y honestamente, de todo corazón, te puedo decir que se vuelve una familia. Cuando tú te integras, eso es algo que me encanta, yo los veo, cuando no hay grupos conexión, se juntan. Cuando sí hay grupos conexión, se van a cenar. Cuando es fin de semana y alguien cumplió años, es a los del grupo a quienes invitan. Es a ustedes. Se ha hecho una familia y la verdad es que es el fruto que más, va a sonar raro, es el fruto que más disfruto.
 
-Cuando veo eso digo: ahí está Dios. Definitivamente el Espíritu Santo está ahí. ¿Y a quién le ha gustado la nueva temporada de Vértice? Lo que hemos hecho estas dos semanas. ¿A nadie? ¿La cambiamos? Bueno, cambio de prédica. No es cierto. Bueno, hay algo que estamos haciendo. Llevamos dos semanas, entonces a lo mejor no se han dado cuenta qué estamos haciendo. Pero les quiero platicar un poquito de lo que estamos haciendo. Pero antes, les voy a dar un ejemplo. ¿Está bien? Les voy a dar mi ejemplo. De chiquito, a mí me gusta… yo soy pésimo dibujando. Soy la persona menos artística que existe en la historia.
+Cuando veo eso digo: ahí está Dios. Definitivamente el Espíritu Santo está ahí. ¿Y a quién le ha gustado la nueva temporada del grupo? Lo que hemos hecho estas dos semanas. ¿A nadie? ¿La cambiamos? Bueno, cambio de prédica. No es cierto. Bueno, hay algo que estamos haciendo. Llevamos dos semanas, entonces a lo mejor no se han dado cuenta qué estamos haciendo. Pero les quiero platicar un poquito de lo que estamos haciendo. Pero antes, les voy a dar un ejemplo. ¿Está bien? Les voy a dar mi ejemplo. De chiquito, a mí me gusta… yo soy pésimo dibujando. Soy la persona menos artística que existe en la historia.
 
 ## Unir los puntos: los dibujos de la infancia
 
@@ -51,7 +51,7 @@ No sé si tenemos la otra imagen. No la tenemos, pero bueno, era otra imagen con
 
 ## Identidad, diseño y propósito
 
-Cuando tú tienes la verdad, esta te informa. Informa todos los patrones de tu vida y te da una identidad, te da un diseño y te da un propósito. Y justo lo que queremos hacer este año en Vértice es eso. Vamos a ir en los grupos Conexión a través de la gran historia de Dios para ir reconociendo los patrones de verdad. Para que eso sea lo que informe nuestra vida. Porque la imagen que sí es nuestra vida es que Dios nos formó a su imagen y semejanza. Dios nos formó a su imagen y semejanza. No somos una casualidad, no somos algo vano, no vamos a ser afectados por las nuevas corrientes y filosofías y nuevas cosas. Porque Jesús, Dios, el Espíritu Santo, Dios mismo cuando nos creó dijo: hagámoslo a nuestra imagen y semejanza.
+Cuando tú tienes la verdad, esta te informa. Informa todos los patrones de tu vida y te da una identidad, te da un diseño y te da un propósito. Y justo lo que queremos hacer este año como jóvenes es eso. Vamos a ir en los grupos Conexión a través de la gran historia de Dios para ir reconociendo los patrones de verdad. Para que eso sea lo que informe nuestra vida. Porque la imagen que sí es nuestra vida es que Dios nos formó a su imagen y semejanza. Dios nos formó a su imagen y semejanza. No somos una casualidad, no somos algo vano, no vamos a ser afectados por las nuevas corrientes y filosofías y nuevas cosas. Porque Jesús, Dios, el Espíritu Santo, Dios mismo cuando nos creó dijo: hagámoslo a nuestra imagen y semejanza.
 
 Esa es tu identidad, ese es tu diseño. Y sí tienes un diseño, y sí tienes un propósito. Quiero pintarte un poquito de esta imagen completa, de lo que es la realidad, de lo que es la verdad absoluta. Para que podamos salir de aquí diciendo: yo entiendo de qué se trata mi vida. Y cuando vengan diferentes corrientes, cuando vengan diferentes trabajos, cuando vengan diferentes personas que traten de decirnos quiénes somos y cuánto valemos, nosotros sepamos realmente qué es lo que valemos. Y la historia comienza así. Un 19 de junio, ¿no es cierto? Es mi cumpleaños.
 
@@ -113,7 +113,7 @@ Va a venir, va a restaurar la tierra y nos va a dar un cuerpo glorificado en el 
 
 ## Ser parte de la gran historia
 
-Y quiero terminar invitándote a cómo podemos ser parte de esta historia. Porque nuestra vida y nuestra historia es parte de la gran historia. Si tenemos un diseño y un propósito y una misión, es diseñada por Dios y es impresa en nuestro corazón. Y lo que queremos hacer en Vértice este año es poder enamorarnos más de Jesús. Así que la primera cosa que debemos de hacer es enamorarnos más de Jesús, más que nunca. Enamórate de Él como si nunca te hubieras enamorado. Pero enamórate de verdad. Si no estás enamorado de Jesús, si todo lo que yo te digo dices: está bonito, está interesante… Ve a la palabra. Conoce a Jesús verdaderamente lo más profundo que puedas. Y enamórate de Él. Y determínate a obedecerlo.
+Y quiero terminar invitándote a cómo podemos ser parte de esta historia. Porque nuestra vida y nuestra historia es parte de la gran historia. Si tenemos un diseño y un propósito y una misión, es diseñada por Dios y es impresa en nuestro corazón. Y lo que queremos hacer como jóvenes este año es poder enamorarnos más de Jesús. Así que la primera cosa que debemos de hacer es enamorarnos más de Jesús, más que nunca. Enamórate de Él como si nunca te hubieras enamorado. Pero enamórate de verdad. Si no estás enamorado de Jesús, si todo lo que yo te digo dices: está bonito, está interesante… Ve a la palabra. Conoce a Jesús verdaderamente lo más profundo que puedas. Y enamórate de Él. Y determínate a obedecerlo.
 
 ## Grupos Conexión: entrenados como discípulos
 

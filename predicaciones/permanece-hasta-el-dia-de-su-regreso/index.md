@@ -1,10 +1,10 @@
 # Permanece hasta el día de su regreso
 
-*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en agosto de 2023 en Convivencia Familiar Monterrey · Vértice.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en agosto de 2023 en Convivencia Familiar Monterrey · Jóvenes.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: agosto de 2023, Convivencia Familiar Monterrey · Vértice
+- Fecha: agosto de 2023, Convivencia Familiar Monterrey · Jóvenes
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/permanece-hasta-el-dia-de-su-regreso/
 - Idioma: es-MX
@@ -15,15 +15,15 @@
 
 Antes de que se bajen, nos gustaría que volviéramos a cantar solo ese te amo, pero que se lo cantes a Dios. Amas a Dios, Él te amó y dio su vida por ti. Y nuestra vida está diseñada y ha sido dada para amarlo sin medida, para desperdiciar nuestra vida, para gastar nuestra vida, para tirarla a la basura, para que Él sea glorificado. Cuando decimos, te amo, cantemos y digamos, te amo, y piensa en Él. Trata de imaginarte a ese Jesús que va a regresar, a su hermosura, trata de imaginarte ese templo. Así que cantemos una vez más, dile, te amo, te va a adorar nuestra vida a ti. Te amamos con todo nuestro corazón, Señor. Él es lo único que importa y lo único que queremos.
 
-Vértice, el mensaje de hoy va a ir enfocado a que terminando el día tú puedas rendir tu vida a Cristo, de una manera que nunca lo has hecho. Y me voy a saltar toda introducción y me voy a empezar en este mismo sentir, así que si te quieres sentar, puedes sentarte. Bueno, creo que este es el mensaje que Dios ha querido que se transmita a la iglesia. Les platicaba al inicio que he luchado un poco con Dios para empezar a hablar de este tema.
+Jóvenes, el mensaje de hoy va a ir enfocado a que terminando el día tú puedas rendir tu vida a Cristo, de una manera que nunca lo has hecho. Y me voy a saltar toda introducción y me voy a empezar en este mismo sentir, así que si te quieres sentar, puedes sentarte. Bueno, creo que este es el mensaje que Dios ha querido que se transmita a la iglesia. Les platicaba al inicio que he luchado un poco con Dios para empezar a hablar de este tema.
 
-Porque va a sonar rudo, va a sonar fuerte, va a estar hecho para provocar que tu vida no sea igual o que no regreses. Solo hay dos resultados de este día. O rindes tu vida por completo a Cristo y la cambias por completo y te entregas con todo lo que eres. O no vas a regresar porque voy a hablar de algo muy en lo profundo de mi corazón y que tiene la tendencia o tiene el objetivo de marcar la siguiente temporada para Vértice. La siguiente temporada para este grupo, la siguiente temporada para los grupos en casa. El retiro, pero sobre todo creo firmemente que debemos prepararnos para el regreso de Jesús. Y que nuestra vida tiene que ser derramada para el regreso de Jesús. Y que cuando tú empieces a pensar en este regreso, que puede suceder en tus días, en tu generación, todo lo que eres tiene que cambiar.
+Porque va a sonar rudo, va a sonar fuerte, va a estar hecho para provocar que tu vida no sea igual o que no regreses. Solo hay dos resultados de este día. O rindes tu vida por completo a Cristo y la cambias por completo y te entregas con todo lo que eres. O no vas a regresar porque voy a hablar de algo muy en lo profundo de mi corazón y que tiene la tendencia o tiene el objetivo de marcar la siguiente temporada para este grupo de jóvenes y para los grupos en casa. Pero sobre todo creo firmemente que debemos prepararnos para el regreso de Jesús. Y que nuestra vida tiene que ser derramada para el regreso de Jesús. Y que cuando tú empieces a pensar en este regreso, que puede suceder en tus días, en tu generación, todo lo que eres tiene que cambiar.
 
 Todo lo que eres tiene que cambiar a raíz de este mensaje, el mensaje de Jesús. Y tal vez a mí no me salga como debería. Y te voy a invitar a que leas tu Biblia para complementarlo o para realmente comer de la carne que Dios nos ha dado. Pero quiero que entiendas que voy a empezar a hablar de algo intenso. Inicia en Eclesiastés 2:20. Si quieres quédate un rato, no sé hasta cuándo, perdóname.
 
 ## Salomón: todo es vanidad
 
-Este es Salomón. El hombre más sabio, rico, inteligente, exitoso del mundo. Y Vértice, creo que nosotros somos como él. Queremos ser como él. Sabios, exitosos, ricos, con una familia.
+Este es Salomón. El hombre más sabio, rico, inteligente, exitoso del mundo. Y jóvenes, creo que nosotros somos como él. Queremos ser como él. Sabios, exitosos, ricos, con una familia.
 
 Pero esto es lo que él dice. Por tanto me desesperé en gran manera por todo el fruto de mi trabajo. Con que me había afanado bajo el sol. Cuando hay un hombre que trabajando con sabiduría, con conocimiento y con destreza, da la hacienda al trabajo.
 
@@ -35,7 +35,7 @@ Porque quién comerá y quién se alegrará sin él. Y este es el punto de todo.
 
 ## Una vida sin sentido ni propósito
 
-Entonces, vivimos en una vida, o vivimos la vida, sin sentido ni propósito. Tratando de alcanzar un sueño que es humano. Tratando de buscar un negocio exitoso. Tratando de escalar en el trabajo. Tratando de alcanzar la chuleta. Tratando de... Nada, esto es malo. Tratando de buscar pareja y casarme. Y si no me caso. ¿Y qué va a pasar? ¿Saben de qué estoy harto? De que la gente no quiera venir a Vértice porque nos han tachado de esto. Pero esto no es Vértice. Esto nunca ha sido Vértice. Voy a decir algo, pero tengan cuidado cuando lo repitan. Nadie de los que está aquí fue llamado para casarse. No les estoy diciendo que sean celibato eterno. Eso no es lo que estoy diciendo. Les estoy diciendo que tu propósito de vida no es casarte.
+Entonces, vivimos en una vida, o vivimos la vida, sin sentido ni propósito. Tratando de alcanzar un sueño que es humano. Tratando de buscar un negocio exitoso. Tratando de escalar en el trabajo. Tratando de alcanzar la chuleta. Tratando de... Nada, esto es malo. Tratando de buscar pareja y casarme. Y si no me caso. ¿Y qué va a pasar? ¿Saben de qué estoy harto? De que la gente no quiera venir a este grupo de jóvenes porque nos han tachado de esto. Pero esto no somos. Esto nunca ha sido el grupo. Voy a decir algo, pero tengan cuidado cuando lo repitan. Nadie de los que está aquí fue llamado para casarse. No les estoy diciendo que sean celibato eterno. Eso no es lo que estoy diciendo. Les estoy diciendo que tu propósito de vida no es casarte.
 
 Nadie de los que está aquí fue llamado para trabajar. No les estoy diciendo que renuncien a su trabajo. Les estoy diciendo que tú no naciste de nuevo para generar dinero. Y para trabajar en una empresa. Ustedes fueron comprados por la sangre preciosa del cordero sin mancha. No con oro, no con plata. Nadie los contrató. Fueron comprados. Y aún así vivimos una vida sin sentido y propósito. Buscando un sueño humano. Viviendo una mentira. Pero a cada uno de nosotros se nos ha entregado la verdad. Y la verdad no es de este mundo. La verdad no es de esta tierra. La verdad no es de Monterrey. No es del emprendimiento. No es de tener hijos. No es de casarme. No es de tener una vida feliz. La verdad se trata de la vida eterna.
 
@@ -45,7 +45,7 @@ La verdad es que va a venir el día del Señor. La verdad es que Él va a regres
 
 Porque no conocen a Dios. A ningún Dios, ni a uno inventado, ni a uno nada. La verdad es que se acerca el día del Señor. Se acerca el regreso de Cristo. El día en el que esta era, este mundo como tú lo conoces, se va a terminar.
 
-En el que todo lo que has juntado y por todo lo que has trabajado será desperdiciado. Porque los tesoros de este mundo serán echados al fuego. Para ser restaurados por el único que es digno. El único buen administrador de todas las cosas. Cristo Jesús. Pero Él espera pacientemente para que nadie se tenga que perder. Vértice, gente va a ir al infierno. Hemos dejado de predicar el mensaje de su regreso. Y hemos diluido el Evangelio. Hemos diluido el propósito por el cual has sido comprado con el precio más grande. Porque nos da miedo hablar del infierno. Porque nos da miedo hablar de lo que sigue después de esta vida. Pero va a haber gente que va a ir al infierno. Pero si alguien va a ir al infierno. Que por lo menos tenga que pasar por nosotros.
+En el que todo lo que has juntado y por todo lo que has trabajado será desperdiciado. Porque los tesoros de este mundo serán echados al fuego. Para ser restaurados por el único que es digno. El único buen administrador de todas las cosas. Cristo Jesús. Pero Él espera pacientemente para que nadie se tenga que perder. Jóvenes, gente va a ir al infierno. Hemos dejado de predicar el mensaje de su regreso. Y hemos diluido el Evangelio. Hemos diluido el propósito por el cual has sido comprado con el precio más grande. Porque nos da miedo hablar del infierno. Porque nos da miedo hablar de lo que sigue después de esta vida. Pero va a haber gente que va a ir al infierno. Pero si alguien va a ir al infierno. Que por lo menos tenga que pasar por nosotros.
 
 Que por lo menos tenga que tumbarnos. Que por lo menos tenga que burlarse de mí. Que me tengan que aventar al foso de los leones. O cortar la cabeza y servirla en una bandeja de plata por un capricho. Pero que no quede en mí cuando alguien vaya a ese lugar. Y decir, no hice nada. Cuando lo tuve enfrente, no hice nada. A esto es a lo que sí estamos llamados.
 
@@ -81,7 +81,7 @@ Pero ahora nos ha llamado a vida eterna.
 
 ## Basta de juegos
 
-Basta de juegos. Basta de juegos inútiles. Basta de desperdiciar nuestra vida en un trabajo. Basta de decir estoy muy ocupado. Basta de decir estoy muy ocupado para Dios. Basta de distraernos en redes sociales, en Netflix, en series, en reality shows que no edifican a nadie. Basta de desperdiciar nuestra vida. Hay un celo de Dios que dice yo te compré y estás sentado en un sillón. Te he dado mi palabra, te he dado mi sangre, te he dado mi sudor. Te lo di todo. Y tú estás sentado en un sillón mientras personas van al infierno. Te di el mensaje de salvación. Te salvé. Basta de juegos, Vértice. Basta de juegos. Basta de desperdiciar nuestra vida en cosas que no nos apuntan a conocerlo a Él, a ser conocido por Él y a dejar que otros lo conozcan.
+Basta de juegos. Basta de juegos inútiles. Basta de desperdiciar nuestra vida en un trabajo. Basta de decir estoy muy ocupado. Basta de decir estoy muy ocupado para Dios. Basta de distraernos en redes sociales, en Netflix, en series, en reality shows que no edifican a nadie. Basta de desperdiciar nuestra vida. Hay un celo de Dios que dice yo te compré y estás sentado en un sillón. Te he dado mi palabra, te he dado mi sangre, te he dado mi sudor. Te lo di todo. Y tú estás sentado en un sillón mientras personas van al infierno. Te di el mensaje de salvación. Te salvé. Basta de juegos, jóvenes. Basta de juegos. Basta de desperdiciar nuestra vida en cosas que no nos apuntan a conocerlo a Él, a ser conocido por Él y a dejar que otros lo conozcan.
 
 Tú no estás llamado a trabajar, no estás llamado a casarte, estás llamado a ser conocido por Dios, a conocer a Dios y a dar a conocer a Dios a otros. Si todo lo que haces, cada instante, cada respirar de lo que haces de tu existir, no está enfocado a eso, estás tirando tu vida a la basura. Estás tirando la sangre de Cristo.
 
@@ -121,7 +121,7 @@ Y se trata de un enfoque único en tu vida. Que todo lo que no esté dirigido a 
 
 > “Ustedes no me escogieron a mí, sino que yo los escogí a ustedes. Los designé para que vayan y den fruto. Y su fruto permanezca para que todo lo que le pidan al Padre, en mi nombre, se les concedan.” (Juan 15:16)
 
-Y esta es la vida eterna, que te conozcan a ti y al Hijo que ha dado su vida por ustedes. Esta nueva temporada de Vértice va a cambiar un poco la intensidad.
+Y esta es la vida eterna, que te conozcan a ti y al Hijo que ha dado su vida por ustedes. Esta nueva temporada del grupo de jóvenes va a cambiar un poco la intensidad.
 
 Porque si estamos llamados a obedecer a Cristo, tenemos que obedecer a Cristo. ¿Cómo permanezco en su amor? ¿Cómo permanezco en la vid cuando obedezco a Cristo? Y no es una obediencia legalista, en el sentido de que, bueno, ahora todos nos levantemos a las cinco de la mañana, vamos a leer nuestro versículo del día, vamos a... De eso no se trata. Se trata que de verdad, cada martes vayan al Grupo Conexión, buscando la Palabra de Dios, preparando todo entendimiento para la acción, y decirle, Señor, si esto es verdad, y yo sé que es verdad, ¿cómo debe de modificar mi vida? Y lo voy a hacer. Y cada semana que ustedes se reten a ustedes mismos: ¿lo hiciste o no lo hiciste? Nadie te va a pedir que hagas algo, porque Dios te va a hablar a ti, y Dios te va a pedir a ti que hagas algo.
 
