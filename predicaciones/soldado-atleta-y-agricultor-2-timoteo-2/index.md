@@ -30,7 +30,7 @@ Buenas noches iglesia, es un honor y privilegio estar con ustedes un miércoles 
 
 Así que gracias, gracias por tomarse el tiempo e inspirarnos al ver su fe certera y firme.
 
-Me presento, mi nombre es Daniel Lira. Dirijo el programa de discipulado de esta iglesia llamado Intensivo. Y junto con mi esposa coordinamos dos grupos de jóvenes, Cauce y Vértice.
+Me presento, mi nombre es Daniel Lira. Dirijo el programa de discipulado de esta iglesia llamado Intensivo. Y junto con mi esposa coordinamos dos grupos de jóvenes.
 
 ## Miércoles Crecer
 

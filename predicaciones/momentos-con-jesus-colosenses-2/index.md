@@ -1,17 +1,17 @@
 # Momentos con Jesús
 
-*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en enero de 2023 en Cauce.*
+*Texto completo del manuscrito de Daniel Lira para una predicación; solo se añadieron subtítulos y se corrigieron ortografía y puntuación. Predicada en enero de 2023 en un grupo de jóvenes.*
 
 - Autor: Daniel Lira
 - Tipo: Predicación
-- Fecha: enero de 2023, Cauce
+- Fecha: enero de 2023, Jóvenes
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/momentos-con-jesus-colosenses-2/
 - Idioma: es-MX
 
 ---
 
-Mensaje para Cauce.
+Mensaje para jóvenes.
 
 Propósito: Recordar el valor de la presencia de Dios e invitarlos a permanecer en él durante toda temporada
 

@@ -13,7 +13,7 @@
 
 ## Un camino que hace arder el corazón
 
-El día de hoy, bueno, me presento para los que tal vez no me conozcan. Mi nombre es Daniel Lira. Soy el director del programa intensivo que acaban de ver. ¿Hay alguien más aquí de intensivo que ya se haya graduado del intensivo? Ahí por todos lados nos están invadiendo. Al rato va a haber puros intensivos aquí. Nunca el mismo, pero siempre intensivos. También tenemos el honor, mi esposa y yo, de coordinar dos grupos de jóvenes increíbles. Uno que se llama Cauce, de 22 años a 27. Y otro que se llama Vértice, de 27 años en adelante.
+El día de hoy, bueno, me presento para los que tal vez no me conozcan. Mi nombre es Daniel Lira. Soy el director del programa intensivo que acaban de ver. ¿Hay alguien más aquí de intensivo que ya se haya graduado del intensivo? Ahí por todos lados nos están invadiendo. Al rato va a haber puros intensivos aquí. Nunca el mismo, pero siempre intensivos. También tenemos el honor, mi esposa y yo, de coordinar dos grupos de jóvenes increíbles. Uno de 22 a 27 años y otro de 27 años en adelante.
 
 ¿Sí vinieron hoy? Y el día de hoy, como son todos de casa, probablemente me ponga un poquito personal. Probablemente hable un poquito de mí. ¿Sí, está bien eso? ¿Todos están contentos con eso? Sí, excelente. Hoy el formato, como pueden ver, es miércoles crecer. Si has estado viniendo los últimos miércoles, has visto que este formato tiene un objetivo principal, es que podamos crecer en la palabra de Dios. Que podamos estudiar un poco la palabra de Dios más a profundidad, pero para que eso impacte nuestras vidas. No solamente para saber. Y el día de hoy quiero platicar justo de eso, de un proceso, de un camino más que un proceso, en el que Dios nos habla, en el que Dios nos acompaña.
 
