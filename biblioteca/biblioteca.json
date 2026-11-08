@@ -1,5 +1,24 @@
 [
  {
+  "id": "manual-panorama-escatologico",
+  "titulo": "Panorama escatológico: manual de estudio",
+  "url": "/manuales/panorama-escatologico/",
+  "tipo": "Manual",
+  "libros": [
+   "Daniel",
+   "Mateo",
+   "Apocalipsis"
+  ],
+  "tematicas": [
+   "Panoramas",
+   "Doctrinas"
+  ],
+  "serie": "",
+  "fecha": "2026-11",
+  "idioma": "es",
+  "descripcion": "Manual de estudio de escatología bíblica: cosmovisión, líneas del tiempo, lo que dijo Jesús, las posturas, Daniel, Apocalipsis y la restauración de todas las cosas."
+ },
+ {
   "id": "manual-galatas",
   "titulo": "Gálatas: manual de estudio",
   "url": "/manuales/galatas/",

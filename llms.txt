@@ -18,7 +18,7 @@ Cómo usar este sitio:
 - [Cartas](https://daniellira.com/newsletter/): una lectura por semana por correo
 - [Ensayos](https://daniellira.com/ensayos/): lista de ensayos académicos (español e inglés)
 - [Clases](https://daniellira.com/clases/): clases en vivo adaptadas a texto
-- [Manuales](https://daniellira.com/manuales/): manuales de estudio bíblico (Efesios, Gálatas)
+- [Manuales](https://daniellira.com/manuales/): manuales de estudio bíblico (Panorama escatológico, Efesios, Gálatas)
 - [Predicaciones](https://daniellira.com/predicaciones/): predicaciones y clases de Daniel Lira, en texto completo
 
 ## Clases
@@ -174,6 +174,7 @@ Predicaciones y clases de Daniel Lira (pastor de jóvenes en Convivencia Familia
 
 ## Manuales de estudio
 
+- [Panorama escatológico: manual de estudio](https://daniellira.com/manuales/panorama-escatologico/index.md): Manual de estudio de escatología bíblica: cosmovisión, líneas del tiempo, lo que dijo Jesús, las posturas, Daniel, Apocalipsis y la restauración de todas las cosas. Citas y diagramas de Joel Richardson, acreditados. (HTML: https://daniellira.com/manuales/panorama-escatologico/)
 - [Efesios: manual de estudio](https://daniellira.com/manuales/efesios/index.md): Manual de estudio exegético de la carta a los Efesios: fundación y destino de la iglesia en Éfeso y los seis capítulos. (HTML: https://daniellira.com/manuales/efesios/)
 - [Gálatas: manual de estudio](https://daniellira.com/manuales/galatas/index.md): Manual de estudio exegético de la carta a los Gálatas: autoridad espiritual, el verdadero evangelio, la adopción y la libertad en Cristo. (HTML: https://daniellira.com/manuales/galatas/)
 

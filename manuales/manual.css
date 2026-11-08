@@ -29,3 +29,10 @@ body.s-manuales{--acento:var(--rubrica)}
 .article.manual nav.toc li>ol{grid-column:2}
 .article.manual nav.toc ol ol li{display:list-item;border:0;padding:1px 0;margin-left:16px;font-size:15px}
 @media print{.article.manual nav.toc{display:block!important;page-break-after:always}}
+.manual figure.diagrama{margin:28px 0;text-align:center}
+.manual figure.diagrama img{max-height:460px;width:auto;background:#fff;padding:10px;border:1px solid var(--filete)}
+.manual figure.diagrama figcaption{font-family:var(--mono);font-size:12px;color:var(--piedra);margin-top:6px}
+.manual blockquote.cita{margin:24px 0;padding:6px 0 6px 20px;border-left:2px solid var(--acento)}
+.manual blockquote.cita footer{font-family:var(--mono);font-size:12px;color:var(--piedra);margin-top:6px}
+.manual blockquote.cita cite{font-style:normal}
+@media print{.manual figure.diagrama{page-break-inside:avoid}}
