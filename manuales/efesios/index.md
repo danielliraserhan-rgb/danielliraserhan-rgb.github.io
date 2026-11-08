@@ -286,15 +286,6 @@ En el primer capítulo se puede ver claramente 3 cosas
 2. La era actual, la autoridad de la iglesia por medio del Espíritu Santo y Cristo como cabeza y la era venidera con el cumplimiento perfecto de toda promesa.
 3. La era venidera en la cual se cumplirá el plan eterno de Dios.
 
-**Preguntas de estudio · Efesios 1**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## Efesios 2
 
 ### · Introducción ·
@@ -392,15 +383,6 @@ Hace una clara distinción en los siguientes puntos.
   - Su casa
   - Su templo
   - La morada del Espíritu Santo. Siendo edificados en (piedras vivas) Uno.
-
-**Preguntas de estudio · Efesios 2**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
 
 ## Efesios 3
 
@@ -534,15 +516,6 @@ Pablo es un ejemplo de este propósito para la iglesia:
 - Gracias revelada a un individuo
 - El poder de esa revelación los lleva a decir, proclamar, predicar: Ser testimonio.
 - Levántate y anda
-
-**Preguntas de estudio · Efesios 3**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
 
 ## Efesios 4
 
@@ -748,15 +721,6 @@ VIVO COMO JESUS - Por lo tanto mi conducta cambia. (Santiago)
 
 Este es el mimso proceso que usamos para llevar a otros a cristo. Su transitar de creyentes a discipulos: ¿Cómo es que yo dirijo a la gente hacia Cristo?
 
-**Preguntas de estudio · Efesios 4**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## Efesios 5
 
 ### · Introducción ·
@@ -863,15 +827,6 @@ Los puntos que estaremos viendo son acerca de la **idolatría y necedad, el enga
   - La iglesia honra y respeta a Cristo
   - La esposa honra y respeta a su esposo.
 
-**Preguntas de estudio · Efesios 5**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## Efesios 6
 
 ### · Introducción ·
@@ -964,12 +919,3 @@ Efesios 6 nos habla de imitar a Dios a través del ejemplo de Cristo. Efesios 6 
   - Oren siempre, en todo momento y en presencia del Espíritu Santo.
   - Practiquemos la presencia de Dios en todo lo que hacemos
   - No teniendo una doble vida si no una sola dentro y fuera de la iglesia.
-
-**Preguntas de estudio · Efesios 6**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?

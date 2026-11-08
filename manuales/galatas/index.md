@@ -191,15 +191,6 @@ Esta última sección se centra específicamente en **la validación de la autor
 
 Cuando Dios nos llama, no somos llamados a caminar sin propósito ni a una vida llena de “aparente ministerio”. Somos **llamados a caminar en procesos**. El único resultado no es éxito personal si no el fruto del evangelio en nuestras vidas y de quienes nos rodean.
 
-**Preguntas de estudio · Gálatas 1**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## El Proceso
 
 1. El evangelio verdadero es presentado a nuestras vidas
@@ -331,15 +322,6 @@ Las obras de la ley jamás van a poder lograr lo que Cristo logró en la cruz. E
 
 ¿Cuántas veces por querer dignificarnos a través de nuestras obras hemos nulificado la dignidad de Cristo en la cruz?
 
-**Preguntas de estudio · El Proceso**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## Verdadero vs Falso Evangelio
 
 - 3:1-5 La fascinación ante el hombre nos vuelve insensatos ante Dios
@@ -430,15 +412,6 @@ Mientras hacemos discípulos los expulsamos
       - Todo aquel que forma parte de Cristo es heredero de la promesa hecha a Abraham
       - Un pacto que fue jurado por Dios incluso hasta la muerte.
   - Podemos descansar en que nuestra relación con Dios no se basa en la ley sino en la fe en Cristo que es firme y que no nos dejará porque Él así lo ha decidido.
-
-**Preguntas de estudio · Verdadero vs Falso Evangelio**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
 
 ## SOMOS HIJOS DE VERDAD
 
@@ -541,15 +514,6 @@ Hay dos maneras de vivir como “hijos” (Gálatas 4:21-30)
       - Aquellos hijos de la sierva ni la sierva (la ley) serán herederos de la promesa por lo tanto deberán ser echados
   - Nosotros somos hechos hijos de la libertad, de la promesa y de la bendición
 
-**Preguntas de estudio · SOMOS HIJOS DE VERDAD**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## La verdadera libertad
 
 ### Propósito de la libertad (Gálatas 5:1)
@@ -645,15 +609,6 @@ La persuasión a la desobediencia nunca va a venir de aquel que llama a la obedi
 
 Vivimos para que Cristo sea formado en nosotros y nosotros ser un faro de luz que resplandece la gloria del Hijo de Dios.
 
-**Preguntas de estudio · La verdadera libertad**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## Fe en acción Gálatas 6
 
 - Fe que obra por amor se ve como _______ (Gálatas 6:1-5)
@@ -741,12 +696,3 @@ No dejamos de ser gentiles pero adoptamos a Su Dios, a Su Mesías, Su Salvación
 - 
   - Una vez más, a diferencia de los falsos maestros, Pablo no escapó de la persecución si no que la ha vivido.
         - La exposición de las marcas de Pablo físicas son una muestra de su sufrimiento por el verdadero evangelio de Cristo que vuelve a avalar su autoridad para exhortar a la iglesia a vivir en obediencia y obrar por amor en fe
-
-**Preguntas de estudio · Fe en acción Gálatas 6**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?

@@ -79,15 +79,6 @@
 - El regreso de Jesús
   - Resurrección, juicio, transición y eternidad
 
-**Preguntas de estudio · Intro**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## Cosmovisión
 
 ### El evangelio del Reino
@@ -194,15 +185,6 @@ Diagrama: Joel Richardson
 Diagrama: Joel Richardson
 Diagrama: Joel Richardson
 
-**Preguntas de estudio · Cosmovisión**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## Las líneas del tiempo
 
 - Los pactos
@@ -255,15 +237,6 @@ Diagrama: Joel Richardson
 - La boda
   - Sinaí y Zion
 
-**Preguntas de estudio · Las líneas del tiempo**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## La importancía escatologica
 
 - Todo apunta a una sola cosa: La realidad escatologica de que en un momento final, Cristo va a regresar para **restaurarlo todo. **
@@ -279,15 +252,6 @@ Diagrama: Joel Richardson
 - Esta era vs la era venidera
   - Sufrimiento antes de la Gloria
 - Preparate
-
-**Preguntas de estudio · La importancía escatologica**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
 
 ## Reglas sobre la profecía apocalíptica.
 
@@ -306,15 +270,6 @@ Diagrama: Joel Richardson
   2. Conocimiento de Quién es Dios y su Cosmovisión bíblica
   3. Lectura correcta de la biblia
     1. Grita, Susurra y calla.
-
-**Preguntas de estudio · Reglas sobre la profecía apocalíptica.**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
 
 ## Interpretaciones históricas sobre la escatologia
 
@@ -350,15 +305,6 @@ Diagrama: Joel Richardson
     4. El enfoque es, el reino ahora, la gloria ahora, por lo tanto conquistemos.
   3. Continuó en la iglesia con proponentes como San Agustin.
     1. Se relegó al Espíritu Santo sólo como un ente de bendición o de poder, pero se le quitó toda significación protologica y escatologica. Se le quitó esta idea de la garantía de lo que ha de venir.
-
-**Preguntas de estudio · Interpretaciones históricas sobre la escatologia**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
 
 ## ¿Qué dice Jesús acerca del Fin?
 
@@ -500,15 +446,6 @@ Mientras más poderoso es el mensaje del reino. Más fuerte se vuelve el mensaje
 
 ### Mateo 25:31 El Juicio Final de eternidad
 
-**Preguntas de estudio · ¿Qué dice Jesús acerca del Fin?**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## Las posturas escatologicas
 
 1. **Supercesionistas, “Teología del remplazo o del divorcio”**
@@ -563,15 +500,6 @@ Joel Richardson
   - Distingue entre las trompetas y las copas
   - Todos están durante las trompetas
   - Los santos se reúnen previo a las copas
-
-**Preguntas de estudio · Las posturas escatologicas**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
 
 ## Las profecías de Daniel
 
@@ -728,15 +656,6 @@ Mateo 24:15 // Daniel 9:27
 
 *…estas palabras están cerradas y selladas ****hasta el tiempo del fin****. Muchos serán purificados, emblanquecidos y refinados. Los impíos procederán impíamente, y ninguno de los impíos comprenderá, pero los entendidos comprenderán.  ****desde el tiempo en que el sacrificio perpetuo sea quitado y puesta la abominación de la desolación, habrá 1,290 días.**** Bienaventurado el que espere y llegue a 1,335 días. Pero tú, sigue hasta el fin. ****Descansarás y te levantarás para recibir tu heredad al fin de los días».***
 
-**Preguntas de estudio · Las profecías de Daniel**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## Apocalipsis
 
 El mensaje del libro
@@ -855,15 +774,6 @@ Intersección 3: Mientras tanto, los 144,000 cantan y se dan 3 mensajes
 
 Y no se arrepintieron sino que blasfemaron contra Dios…
 
-**Preguntas de estudio · Apocalipsis**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
-
 ## El regreso, el milenio y la restauración de los cielos y la tierra
 
 El Regreso
@@ -881,12 +791,3 @@ El Milenio y la restauración
 - Reina Jesús durante 1,000 años junto con los de la primera resurrección
 - El juicio final y el libro de la vida o al lago de fuego
 - Cielos y tierra nueva, la nueva jerusalén
-
-**Preguntas de estudio · El regreso, el milenio y la restauración de los cielos y la tierra**
-
-*Añadidas para este manual como guía de repaso. No forman parte del texto original.*
-
-1. Lee en tu Biblia los pasajes que aparecen en esta unidad. ¿Cuál es la idea principal de cada uno?
-2. Escribe con tus palabras uno de los puntos de esta unidad.
-3. ¿Qué versículo de esta unidad te confronta más? ¿Por qué?
-4. ¿Qué paso concreto vas a dar esta semana a partir de lo que estudiaste?
