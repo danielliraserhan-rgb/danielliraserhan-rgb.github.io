@@ -1,5 +1,37 @@
 [
  {
+  "id": "manual-galatas",
+  "titulo": "Gálatas: manual de estudio",
+  "url": "/manuales/galatas/",
+  "tipo": "Manual",
+  "libros": [
+   "Gálatas"
+  ],
+  "tematicas": [
+   "Panoramas"
+  ],
+  "serie": "",
+  "fecha": "2026-11",
+  "idioma": "es",
+  "descripcion": "Manual de estudio exegético de la carta a los Gálatas: autoridad espiritual, el verdadero evangelio, la adopción y la libertad en Cristo."
+ },
+ {
+  "id": "manual-efesios",
+  "titulo": "Efesios: manual de estudio",
+  "url": "/manuales/efesios/",
+  "tipo": "Manual",
+  "libros": [
+   "Efesios"
+  ],
+  "tematicas": [
+   "Panoramas"
+  ],
+  "serie": "",
+  "fecha": "2026-11",
+  "idioma": "es",
+  "descripcion": "Manual de estudio exegético de la carta a los Efesios: fundación y destino de la iglesia en Éfeso y los seis capítulos."
+ },
+ {
   "id": "arrepentimiento-de-obras-muertas",
   "titulo": "Arrepentimiento de obras muertas",
   "url": "/clases/arrepentimiento-de-obras-muertas/",

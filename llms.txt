@@ -18,6 +18,7 @@ Cómo usar este sitio:
 - [Cartas](https://daniellira.com/newsletter/): una lectura por semana por correo
 - [Ensayos](https://daniellira.com/ensayos/): lista de ensayos académicos (español e inglés)
 - [Clases](https://daniellira.com/clases/): clases en vivo adaptadas a texto
+- [Manuales](https://daniellira.com/manuales/): manuales de estudio bíblico (Efesios, Gálatas)
 - [Predicaciones](https://daniellira.com/predicaciones/): predicaciones y clases de Daniel Lira, en texto completo
 
 ## Clases
@@ -170,6 +171,11 @@ Predicaciones y clases de Daniel Lira (pastor de jóvenes en Convivencia Familia
 - [Una iglesia sin velo](https://daniellira.com/predicaciones/una-iglesia-sin-velo-apocalipsis-2/index.md): Un momento en el que todo un pueblo regresa al primer amor y comienza a hacer las obras que hacían al inicio. (HTML: https://daniellira.com/predicaciones/una-iglesia-sin-velo-apocalipsis-2/)
 - [Sígueme: la perla de gran precio](https://daniellira.com/predicaciones/sigueme-la-perla-de-gran-precio/index.md): El Reino de Dios es un llamado a vivir la vida con un enfoque singular, único y específico a la luz de la era venidera. (HTML: https://daniellira.com/predicaciones/sigueme-la-perla-de-gran-precio/)
 - [El plan de Dios](https://daniellira.com/predicaciones/el-plan-de-dios-creacion-caida-redencion-restauracion/index.md): A través de Cristo podemos regresar al propósito de Dios: comunión con Él en la vida eterna. (HTML: https://daniellira.com/predicaciones/el-plan-de-dios-creacion-caida-redencion-restauracion/)
+
+## Manuales de estudio
+
+- [Efesios: manual de estudio](https://daniellira.com/manuales/efesios/index.md): Manual de estudio exegético de la carta a los Efesios: fundación y destino de la iglesia en Éfeso y los seis capítulos. (HTML: https://daniellira.com/manuales/efesios/)
+- [Gálatas: manual de estudio](https://daniellira.com/manuales/galatas/index.md): Manual de estudio exegético de la carta a los Gálatas: autoridad espiritual, el verdadero evangelio, la adopción y la libertad en Cristo. (HTML: https://daniellira.com/manuales/galatas/)
 
 ## Optional
 
