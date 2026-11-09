@@ -323,3 +323,7 @@ footer .legal .wrap{display:block;padding-top:16px;padding-bottom:18px;color:#9c
 /* auditoria2: lectura móvil e índice */
 @media (max-width:860px){.article p,.article li,.article blockquote p{font-size:17px}.list-hero{padding-bottom:12px}.list-hero .wrap>p:last-child{margin-bottom:0}.list-hero+.crumbs{padding-top:8px;padding-bottom:8px}}
 @media (max-width:860px){.hero.list-hero{padding-bottom:6px!important}.hero.list-hero .wrap>*:last-child{margin-bottom:0!important}.hero.list-hero+.crumbs{padding-top:6px!important}}
+
+/* yt-lite with <picture> on home */
+.yt-lite picture{position:absolute;inset:0;display:block;width:100%;height:100%}
+.yt-lite picture img{width:100%;height:100%;object-fit:cover;display:block}
