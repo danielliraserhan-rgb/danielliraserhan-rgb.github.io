@@ -4,8 +4,6 @@
 
 Si es la primera vez que tienes una Biblia en tus manos, o si ya tienes tiempo en el Señor leyendo las Escrituras, quiero decirte que esta es la mayor aventura de todas.
 
-Daniel Lira Serhan · https://daniellira.com/como-leer-la-biblia/
-
 ## Preguntas frecuentes
 
 ### ¿Qué es la Biblia?
