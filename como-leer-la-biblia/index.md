@@ -18,13 +18,15 @@ La Biblia es la historia de Dios y la humanidad. Se lee como cualquier historia.
 
 Génesis, porque el evangelio de Jesús comienza en Génesis. Génesis no solo incluye el evangelio; incluye prácticamente todo lo que necesitamos saber.
 
+### ¿Y si ya empecé por el Nuevo Testamento?
+
+Leer sobre la venida de Jesús es de lo más importante que hay. Regresar al Antiguo Testamento va a traer profundidad. Pero lo más importante es poder conocer a Dios, y la mejor manera de conocerlo es Jesús.
+
+Mi recomendación es empezar por Génesis para que, al llegar a Jesús, entendamos la profundidad y la gloriosa buena noticia que fue anunciada miles de años atrás. Sigue leyendo el Nuevo Testamento, pero regresa también a Génesis para que conozcas a Cristo desde la semilla que Dios plantó en el jardín.
+
 ### ¿Hay que leer la Biblia en orden?
 
 No es obligatorio, pero ayuda. Cada libro funciona por sí solo; pero mientras más adelante vas, menos entiendes si no tienes lo anterior.
-
-### ¿Y si ya empecé por el Nuevo Testamento?
-
-Si empezaste por el Nuevo Testamento, no pasa nada: necesitas saber que el Mesías ya vino, pero también que había sido profetizado. Regresa a Génesis y vas a ver dónde empieza la promesa.
 
 ### ¿Es difícil leer la Biblia?
 
