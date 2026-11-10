@@ -24,6 +24,7 @@ Cómo usar este sitio:
 ## Clases
 
 - [La Biblia es la verdad: de dónde viene mi certeza](https://daniellira.com/clases/la-biblia-es-la-verdad/index.md): testimonio del islam y el ateísmo a Cristo, y tres pruebas de la verdad que la Biblia pasa (HTML: https://daniellira.com/clases/la-biblia-es-la-verdad/)
+- [Cómo leer la Biblia](https://daniellira.com/como-leer-la-biblia/index.md): por dónde empezar a leer la Biblia (Génesis), cómo leerla y entenderla, y preguntas frecuentes (HTML: https://daniellira.com/como-leer-la-biblia/)
 - [¿Qué es la Biblia? La estructura básica de la Biblia](https://daniellira.com/clases/que-es-la-biblia/index.md): qué es la Biblia, por qué es la palabra de Dios y la estructura del Tanaj (Torá, Profetas y Escritos) (HTML: https://daniellira.com/clases/que-es-la-biblia/)
 
 Serie "Doctrinas Fundamentales" (Intensivo Convivencia, basada en Hebreos 6:1–2; en orden, empezando por "La Biblia es la verdad"):
