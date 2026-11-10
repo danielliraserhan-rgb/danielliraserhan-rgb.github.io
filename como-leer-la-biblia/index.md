@@ -30,7 +30,11 @@ No es obligatorio, pero ayuda. Cada libro funciona por sí solo; pero mientras m
 
 ### ¿Es difícil leer la Biblia?
 
-Se lee como cualquier historia. Lo difícil suele llegar después: Génesis y Éxodo están padres, pero llegas a los sacrificios de Levítico y a las genealogías de Números, y lo dejas. Si te pasa, no te detengas: sigue la historia.
+La Biblia es la revelación de todo lo más importante del mundo, pero está escrita como una historia. Tu primera vez leyéndola, no te preocupes por «entenderlo todo». Lee la historia, imagina los personajes, sumérgete en el drama como si estuvieras viendo una película o leyendo una novela.
+
+Nuestras vidas cobran sentido en las historias que contamos. Conocer a una persona no se trata solo de datos, sino de experimentarlo. No le tengas miedo.
+
+Hay libros más difíciles, como Levítico, porque no son tan narrativos y el contexto histórico es difícil de entender. Solo no te detengas. Sigue leyendo, porque la historia continúa.
 
 ### ¿Cómo entender la Biblia?
 
