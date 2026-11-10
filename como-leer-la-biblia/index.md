@@ -10,20 +10,6 @@ Si es la primera vez que tienes una Biblia en tus manos, o si ya tienes tiempo e
 
 Se fue juntando durante muchos años; son muchos libros y todos tienen un mismo mensaje: desde Génesis hasta Apocalipsis, la Biblia te invita a conocer a Dios y amarlo para que tú sepas que eres conocido y amado por Dios.
 
-### ¿Cómo empiezo a leer la Biblia?
-
-La Biblia es la historia de Dios y la humanidad. Se lee como cualquier historia. La diferencia es que esta historia es verdad. Empieza por Génesis, porque el evangelio de Jesús comienza en Génesis.
-
-### ¿Qué libro de la Biblia leer primero?
-
-Génesis, porque el evangelio de Jesús comienza en Génesis. Génesis no solo incluye el evangelio; incluye prácticamente todo lo que necesitamos saber.
-
-### ¿Y si ya empecé por el Nuevo Testamento?
-
-Leer sobre la venida de Jesús es de lo más importante que hay. Regresar al Antiguo Testamento va a traer profundidad. Pero lo más importante es poder conocer a Dios, y la mejor manera de conocerlo es Jesús.
-
-Mi recomendación es empezar por Génesis para que, al llegar a Jesús, entendamos la profundidad y la gloriosa buena noticia que fue anunciada miles de años atrás. Sigue leyendo el Nuevo Testamento, pero regresa también a Génesis para que conozcas a Cristo desde la semilla que Dios plantó en el jardín.
-
 ### ¿Hay que leer la Biblia en orden?
 
 No es obligatorio, pero ayuda. Cada libro funciona por sí solo; pero mientras más adelante vas, menos entiendes si no tienes lo anterior.
@@ -69,6 +55,20 @@ Lo que puedas leer con calma. Mi recomendación es que al menos leas una histori
 Después de eso vas viendo historias completas: Noé, Abraham, Isaac, Jacob, los hijos de Jacob...
 
 Lee historias completas, pero no hay prisa. Léelo como cualquier novela: deja que te atrape y, cuando haya que dejarla, déjala. Regresarás a ella más tarde.
+
+### ¿Cómo empiezo a leer la Biblia?
+
+La Biblia es la historia de Dios y la humanidad. Se lee como cualquier historia. La diferencia es que esta historia es verdad. Empieza por Génesis, porque el evangelio de Jesús comienza en Génesis.
+
+### ¿Qué libro de la Biblia leer primero?
+
+Génesis, porque el evangelio de Jesús comienza en Génesis. Génesis no solo incluye el evangelio; incluye prácticamente todo lo que necesitamos saber.
+
+### ¿Y si ya empecé por el Nuevo Testamento?
+
+Leer sobre la venida de Jesús es de lo más importante que hay. Regresar al Antiguo Testamento va a traer profundidad. Pero lo más importante es poder conocer a Dios, y la mejor manera de conocerlo es Jesús.
+
+Mi recomendación es empezar por Génesis para que, al llegar a Jesús, entendamos la profundidad y la gloriosa buena noticia que fue anunciada miles de años atrás. Sigue leyendo el Nuevo Testamento, pero regresa también a Génesis para que conozcas a Cristo desde la semilla que Dios plantó en el jardín.
 
 ### ¿Qué voy a encontrar en Génesis?
 
