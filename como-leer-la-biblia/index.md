@@ -48,6 +48,8 @@ Digamos que es una película que se puede ver varias veces, y cada vez la disfru
 
 Pregúntale a alguien que la conozca. Cuando recién llegué a Cristo, me dijeron: “Lee Juan 1”. ¿Quién es el Verbo? Le escribí a Walo, que era el pastor de jóvenes antes que yo, y él me explicó que el Verbo es Jesús.
 
+Esa es la parte difícil de leer el Nuevo Testamento directo. Hay mucho contexto que es fácil de perderse. Pero para eso Dios hizo a la iglesia. No estás solo. Comparte tus dudas con tu iglesia.
+
 ### ¿Para qué leer la Biblia?
 
 Dios nos dejó su palabra para revelarse a sí mismo, para ser conocido y amado. No es una lista de reglas ni un “manual de vida”.
