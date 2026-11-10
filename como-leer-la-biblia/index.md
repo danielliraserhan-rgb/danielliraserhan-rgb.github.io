@@ -40,6 +40,10 @@ Hay libros más difíciles, como Levítico, porque no son tan narrativos y el co
 
 La Biblia tiene dos llaves. El Tanaj (el Antiguo Testamento) nos ayuda a entender a Cristo, y Cristo nos ayuda a entender el Tanaj. No puedes tener una sin la otra.
 
+El Antiguo Testamento va revelando el plan de Dios por medio de historias, anticipando a Cristo. El Antiguo Testamento revela quién es Cristo y nos ayuda a entender cómo el plan anunciado se cumple.
+
+Digamos que es una película que se puede ver varias veces, y cada vez la disfrutas más porque entiendes más y encuentras los «easter eggs»... los tesoros escondidos.
+
 ### ¿Qué hago si no entiendo algo?
 
 Pregúntale a alguien que la conozca. Cuando recién llegué a Cristo, me dijeron: “Lee Juan 1”. ¿Quién es el Verbo? Le escribí a Walo, que era el pastor de jóvenes antes que yo, y él me explicó que el Verbo es Jesús.
