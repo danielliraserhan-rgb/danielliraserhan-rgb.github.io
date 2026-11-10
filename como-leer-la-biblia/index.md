@@ -64,7 +64,11 @@ Yo leo de la NBLA, pero puedes usar la versión de tu preferencia.
 
 ### ¿Cuánto debo leer al día?
 
-Lo que puedas leer con calma. Un capítulo de Génesis al día es un buen comienzo: son 50 capítulos, así que en menos de dos meses habrás leído el libro completo.
+Lo que puedas leer con calma. Mi recomendación es que al menos leas una historia a la vez. No te quedes a la mitad de una porción narrativa. Por ejemplo, la historia de la creación va al menos en los primeros dos capítulos. Si sigues leyendo, puedes ver también los orígenes del pecado en los siguientes dos capítulos.
+
+Después de eso vas viendo historias completas: Noé, Abraham, Isaac, Jacob, los hijos de Jacob...
+
+Lee historias completas, pero no hay prisa. Léelo como cualquier novela: deja que te atrape y, cuando haya que dejarla, déjala. Regresarás a ella más tarde.
 
 ### ¿Qué voy a encontrar en Génesis?
 
