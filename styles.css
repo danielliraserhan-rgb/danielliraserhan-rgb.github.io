@@ -313,7 +313,7 @@ footer .legal .wrap{display:block;padding-top:16px;padding-bottom:18px;color:#9c
 .carta input[type=email]{flex:1 1 240px;padding:12px 14px;border:1px solid var(--tinta);background:var(--vitela);font:inherit;font-size:16px;color:var(--tinta)}
 .carta input[type=email]:focus{outline:2px solid var(--rubrica);outline-offset:1px}
 .carta button{cursor:pointer;font-family:var(--mono);letter-spacing:.04em}
-.carta-wrap{display:flex;justify-content:center}
+.carta-wrap{display:block}
 .lista-carta{padding-left:1.2em}.lista-carta li{margin:0 0 10px}
 .subt{display:block;font-family:var(--mono);font-size:12.5px;letter-spacing:.06em;text-transform:uppercase;color:var(--piedra);font-weight:400;margin-top:6px}
 .video.v169{padding-top:56.25%}
@@ -323,3 +323,7 @@ footer .legal .wrap{display:block;padding-top:16px;padding-bottom:18px;color:#9c
 /* auditoria2: lectura móvil e índice */
 @media (max-width:860px){.article p,.article li,.article blockquote p{font-size:17px}.list-hero{padding-bottom:12px}.list-hero .wrap>p:last-child{margin-bottom:0}.list-hero+.crumbs{padding-top:8px;padding-bottom:8px}}
 @media (max-width:860px){.hero.list-hero{padding-bottom:6px!important}.hero.list-hero .wrap>*:last-child{margin-bottom:0!important}.hero.list-hero+.crumbs{padding-top:6px!important}}
+
+/* Hueco entre el encabezado y el artículo cuando no hay migas */
+.post-hero:has(+ .article){padding-bottom:12px}
+.post-hero + .article{padding-top:16px}
