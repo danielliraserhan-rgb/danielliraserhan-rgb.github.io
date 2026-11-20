@@ -1,10 +1,10 @@
 # Evangelismo en historias
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
-- Fecha: octubre de 2023, Intensivo Convivencia en línea
+- Fecha: octubre de 2023, Intensivo Convivencia
 - Video: https://www.youtube.com/watch?v=xE5_S1KHGs0
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-evangelismo-en-historias/
 - Idioma: es-MX

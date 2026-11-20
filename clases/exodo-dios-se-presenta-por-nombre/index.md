@@ -24,7 +24,7 @@
 
 ## Un Dios que se ensucia las manos
 
-Bienvenido a esta segunda clase de la serie Orígenes, en donde estamos estudiando los primeros cinco libros de la Biblia, el Pentateuco. La idea de esta serie es poner los fundamentos, tratar de entender los orígenes de todas las cosas: para qué existimos, por qué existimos y de qué se trata la historia.
+Bienvenido a esta segunda clase de Orígenes, en donde estamos estudiando los primeros cinco libros de la Biblia, el Pentateuco. La idea de esta serie es poner los fundamentos, tratar de entender los orígenes de todas las cosas: para qué existimos, por qué existimos y de qué se trata la historia.
 
 En esta clase estudiamos Éxodo, y Éxodo me emociona muchísimo, porque es en donde comenzamos a ver a Dios de manera personal. Este Dios que se presenta por nombre, que se acerca y que se involucra en la historia. Digamos que se ensucia las manos. En Génesis vimos que Dios creó todas las cosas, que todo era bueno, cómo se arruinan, pero que Él tiene un plan para redimirlo. Y ese plan se sella a través de un pacto con Abraham, Isaac y Jacob.
 

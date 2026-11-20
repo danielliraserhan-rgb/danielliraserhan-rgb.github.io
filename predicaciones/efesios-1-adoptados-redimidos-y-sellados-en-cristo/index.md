@@ -13,7 +13,7 @@
 
 ## Introducción a la clase: una constitución de la iglesia
 
-Bienvenidos una vez más a Estudio 12:2. En esta clase vamos a estudiar la carta a los Efesios. Pero quiero invitarlos a ver esta carta y esta clase como el fundamento de… Ya habiendo revelado Dios quién es la semilla —si tuviste la clase de orígenes en Génesis, ya sabes a qué me refiero—. Ya habiendo revelado quién es el Salvador que se había profetizado, a quien habíamos estado esperando durante tantos años, desde Génesis 3:15 hasta el momento en el que Cristo vino. Ya sabiendo quién es Cristo, y Cristo habiendo ascendido diciendo “esperen porque voy a regresar”, entonces Pablo escribe esta carta.
+En esta clase vamos a estudiar la carta a los Efesios. Pero quiero invitarlos a ver esta carta y esta clase como el fundamento de… Ya habiendo revelado Dios quién es la semilla —si tuviste la clase de orígenes en Génesis, ya sabes a qué me refiero—. Ya habiendo revelado quién es el Salvador que se había profetizado, a quien habíamos estado esperando durante tantos años, desde Génesis 3:15 hasta el momento en el que Cristo vino. Ya sabiendo quién es Cristo, y Cristo habiendo ascendido diciendo “esperen porque voy a regresar”, entonces Pablo escribe esta carta.
 
 Y escribe esta carta para revelarnos un propósito. ¿Quién es Dios? ¿Cuál es su propósito? ¿Quiénes somos en Cristo? Vamos a navegar a través de esto para entender cuál es nuestra misión de vida, el rol al que pertenecemos. Pero sobre todo, esta carta y lo que veremos es como una constitución de la iglesia. ¿Qué es la iglesia? ¿Quiénes somos como iglesia? ¿Cómo funcionamos como iglesia? ¿Y cómo debemos de comportarnos unos con otros?
 

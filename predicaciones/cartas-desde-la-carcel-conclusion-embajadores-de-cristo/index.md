@@ -1,10 +1,10 @@
 # Conclusión: embajadores de Cristo, todo lo puedo en Él
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
-- Fecha: octubre de 2023, Intensivo Convivencia en línea
+- Fecha: octubre de 2023, Intensivo Convivencia
 - Video: https://www.youtube.com/watch?v=ao1TuWjOhbM
 - URL: https://daniellira.com/predicaciones/cartas-desde-la-carcel-conclusion-embajadores-de-cristo/
 - Idioma: es-MX

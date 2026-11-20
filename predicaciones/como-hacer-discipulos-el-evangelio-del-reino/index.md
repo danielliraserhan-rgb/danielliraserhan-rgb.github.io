@@ -1,10 +1,10 @@
 # El evangelio del Reino desde Génesis
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia en línea.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en octubre de 2023 en Intensivo Convivencia.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
-- Fecha: octubre de 2023, Intensivo Convivencia en línea
+- Fecha: octubre de 2023, Intensivo Convivencia
 - Video: https://www.youtube.com/watch?v=TvD7fmFk9tw
 - URL: https://daniellira.com/predicaciones/como-hacer-discipulos-el-evangelio-del-reino/
 - Idioma: es-MX
