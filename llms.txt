@@ -210,5 +210,5 @@ Predicaciones y clases de Daniel Lira (pastor de jóvenes en Convivencia Familia
 - [Texto completo de ensayos y clases](https://daniellira.com/llms-full.txt): todo el contenido en un solo archivo Markdown
 - [YouTube](https://www.youtube.com/@danielliraserhan): canal de enseñanza bíblica
 - [X (@Danielliraa11)](https://x.com/Danielliraa11)
-- [Intensivo Convivencia](https://intensivoconvivencia.com): ministerio de discipulado
+- [Intensivo](https://daniellira.com/intensivo/): Daniel Lira dirige Intensivo, un programa bíblico de 4 meses en Monterrey para jóvenes de 18 a 27 años (sitio oficial: https://intensivoconvivencia.com/)
 - Correo: danielliraserhan@gmail.com

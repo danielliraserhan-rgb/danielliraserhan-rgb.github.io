@@ -327,3 +327,10 @@ footer .legal .wrap{display:block;padding-top:16px;padding-bottom:18px;color:#9c
 /* Hueco entre el encabezado y el artículo cuando no hay migas */
 .post-hero:has(+ .article){padding-bottom:12px}
 .post-hero + .article{padding-top:16px}
+.intensivo-logo{background:var(--tinta);padding:26px 28px;margin:0 0 32px}
+.intensivo-logo img{display:block;width:229px;max-width:100%;height:auto}
+.intensivo-lema{font-style:italic;font-size:clamp(1.4rem,2.6vw,1.9rem);color:var(--acento);margin:1em 0;font-variation-settings:"opsz" 48}
+.intensivo .pillars{max-width:var(--medida)}
+.intensivo-cta{border-top:2px solid var(--acento);background:var(--pergamino);padding:18px 22px;margin:40px 0 0}
+.intensivo-cta .box-h{color:var(--acento);margin:0 0 6px;font-size:12px}
+.intensivo-cta p{margin:0;font-size:16.5px}
