@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 6 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Levítico: Sesión 6 (clase grabada)
 - URL: https://daniellira.com/clases/levitico-todo-apunta-a-cristo/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 6 (parte 6 de 6)
+- Serie: Orígenes · Levítico · Sesión 6 (parte 6 de 6)
 - Anterior: https://daniellira.com/clases/levitico-las-fiestas-de-otono/
 - Siguiente serie (Números): https://daniellira.com/clases/numeros-el-libro-del-desierto/
 

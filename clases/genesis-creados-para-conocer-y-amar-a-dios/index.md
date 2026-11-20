@@ -1,14 +1,14 @@
 # Génesis: creados para conocer y amar a Dios
 
-> La serie Orígenes recorre el Pentateuco, cinco libros que funcionan como uno solo, y Génesis pone las bases: en él ya está el evangelio. En el principio, Dios crea todo bueno, no porque lo necesite, sino para darse a conocer. El clímax de la creación es el ser humano, hecho a su imagen para conocerlo, amarlo y disfrutarlo, para relacionarse, dar vida y administrar la tierra. Que Dios busque ser alabado no es egoísmo: lo alabamos porque nos deleitamos en su servicio. Y en el huerto, dos árboles presentan la decisión de siempre: depender de Dios o definir por nuestra cuenta el bien y el mal.
+> Orígenes recorre el Pentateuco, cinco libros que funcionan como uno solo, y Génesis pone las bases: en él ya está el evangelio. En el principio, Dios crea todo bueno, no porque lo necesite, sino para darse a conocer. El clímax de la creación es el ser humano, hecho a su imagen para conocerlo, amarlo y disfrutarlo, para relacionarse, dar vida y administrar la tierra. Que Dios busque ser alabado no es egoísmo: lo alabamos porque nos deleitamos en su servicio. Y en el huerto, dos árboles presentan la decisión de siempre: depender de Dios o definir por nuestra cuenta el bien y el mal.
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Génesis: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Génesis: Introducción y Sesión 1 (clase grabada)
 - URL: https://daniellira.com/clases/genesis-creados-para-conocer-y-amar-a-dios/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 1 (parte 1 de 6)
+- Serie: Orígenes · Génesis · Sesión 1 (parte 1 de 6)
 - Siguiente: https://daniellira.com/clases/genesis-la-caida-y-la-promesa-de-la-semilla/
 
 ## Puntos clave

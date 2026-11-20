@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Números: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Números: Introducción y Sesión 1 (clase grabada)
 - URL: https://daniellira.com/clases/numeros-el-libro-del-desierto/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Números · Sesión 1 (parte 1 de 8)
+- Serie: Orígenes · Números · Sesión 1 (parte 1 de 8)
 - Serie anterior (Levítico): https://daniellira.com/clases/levitico-todo-apunta-a-cristo/
 - Siguiente: https://daniellira.com/clases/numeros-el-campamento-en-forma-de-cruz/
 

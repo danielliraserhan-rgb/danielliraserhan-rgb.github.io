@@ -3340,15 +3340,15 @@ No vivimos para este mundo, sino para la era venidera, y el mundo no se va a aca
 
 # Génesis: creados para conocer y amar a Dios
 
-> La serie Orígenes recorre el Pentateuco, cinco libros que funcionan como uno solo, y Génesis pone las bases: en él ya está el evangelio. En el principio, Dios crea todo bueno, no porque lo necesite, sino para darse a conocer. El clímax de la creación es el ser humano, hecho a su imagen para conocerlo, amarlo y disfrutarlo, para relacionarse, dar vida y administrar la tierra. Que Dios busque ser alabado no es egoísmo: lo alabamos porque nos deleitamos en su servicio. Y en el huerto, dos árboles presentan la decisión de siempre: depender de Dios o definir por nuestra cuenta el bien y el mal.
+> Orígenes recorre el Pentateuco, cinco libros que funcionan como uno solo, y Génesis pone las bases: en él ya está el evangelio. En el principio, Dios crea todo bueno, no porque lo necesite, sino para darse a conocer. El clímax de la creación es el ser humano, hecho a su imagen para conocerlo, amarlo y disfrutarlo, para relacionarse, dar vida y administrar la tierra. Que Dios busque ser alabado no es egoísmo: lo alabamos porque nos deleitamos en su servicio. Y en el huerto, dos árboles presentan la decisión de siempre: depender de Dios o definir por nuestra cuenta el bien y el mal.
 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Génesis: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Génesis: Introducción y Sesión 1 (clase grabada)
 - URL: https://daniellira.com/clases/genesis-creados-para-conocer-y-amar-a-dios/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 1 (parte 1 de 6)
+- Serie: Orígenes · Génesis · Sesión 1 (parte 1 de 6)
 - Siguiente: https://daniellira.com/clases/genesis-la-caida-y-la-promesa-de-la-semilla/
 
 ## Puntos clave
@@ -3449,10 +3449,10 @@ Para deleitarte en la creación y conocer a Dios, tienes que poder decidir hacer
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Génesis: Sesión 2 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Génesis: Sesión 2 (clase grabada)
 - URL: https://daniellira.com/clases/genesis-la-caida-y-la-promesa-de-la-semilla/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 2 (parte 2 de 6)
+- Serie: Orígenes · Génesis · Sesión 2 (parte 2 de 6)
 - Anterior: https://daniellira.com/clases/genesis-creados-para-conocer-y-amar-a-dios/
 - Siguiente: https://daniellira.com/clases/genesis-de-cain-al-diluvio-y-babel/
 
@@ -3546,10 +3546,10 @@ Este patrón lo veremos repetirse una y otra vez: hay una tentación, hay un pec
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Génesis: Sesión 3 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Génesis: Sesión 3 (clase grabada)
 - URL: https://daniellira.com/clases/genesis-de-cain-al-diluvio-y-babel/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 3 (parte 3 de 6)
+- Serie: Orígenes · Génesis · Sesión 3 (parte 3 de 6)
 - Anterior: https://daniellira.com/clases/genesis-la-caida-y-la-promesa-de-la-semilla/
 - Siguiente: https://daniellira.com/clases/genesis-el-pacto-con-abraham/
 
@@ -3641,10 +3641,10 @@ Pero si has entendido los patrones, sabes que no solo hay consecuencias y corrup
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Génesis: Sesión 4 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Génesis: Sesión 4 (clase grabada)
 - URL: https://daniellira.com/clases/genesis-el-pacto-con-abraham/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 4 (parte 4 de 6)
+- Serie: Orígenes · Génesis · Sesión 4 (parte 4 de 6)
 - Anterior: https://daniellira.com/clases/genesis-de-cain-al-diluvio-y-babel/
 - Siguiente: https://daniellira.com/clases/genesis-isaac-jacob-y-jose/
 
@@ -3734,10 +3734,10 @@ El mensaje ahora era para Isaac, y la promesa fue confirmada en él: solo Dios p
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Génesis: Sesión 5 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Génesis: Sesión 5 (clase grabada)
 - URL: https://daniellira.com/clases/genesis-isaac-jacob-y-jose/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 5 (parte 5 de 6)
+- Serie: Orígenes · Génesis · Sesión 5 (parte 5 de 6)
 - Anterior: https://daniellira.com/clases/genesis-el-pacto-con-abraham/
 - Siguiente: https://daniellira.com/clases/genesis-siloh-el-rey-que-vendra/
 
@@ -3827,10 +3827,10 @@ Faraón le da a la familia de Jacob un pedazo de tierra muy fértil en Egipto. E
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Génesis: Sesión 6 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Génesis: Sesión 6 (clase grabada)
 - URL: https://daniellira.com/clases/genesis-siloh-el-rey-que-vendra/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 6 (parte 6 de 6)
+- Serie: Orígenes · Génesis · Sesión 6 (parte 6 de 6)
 - Anterior: https://daniellira.com/clases/genesis-isaac-jacob-y-jose/
 - Siguiente serie (Éxodo): https://daniellira.com/clases/exodo-dios-se-presenta-por-nombre/
 
@@ -3890,10 +3890,10 @@ Así que quiero animarte, al terminar esta clase: enamórate de la palabra. Enam
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Éxodo: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Éxodo: Introducción y Sesión 1 (clase grabada)
 - URL: https://daniellira.com/clases/exodo-dios-se-presenta-por-nombre/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Éxodo · Sesión 1 (parte 1 de 5)
+- Serie: Orígenes · Éxodo · Sesión 1 (parte 1 de 5)
 - Serie anterior (Génesis): https://daniellira.com/clases/genesis-siloh-el-rey-que-vendra/
 - Siguiente: https://daniellira.com/clases/exodo-los-sacare-los-librare-los-redimire/
 
@@ -4021,10 +4021,10 @@ La enemistad, la lucha comienza. No solamente está la serpiente intentando opri
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Éxodo: Sesión 2 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Éxodo: Sesión 2 (clase grabada)
 - URL: https://daniellira.com/clases/exodo-los-sacare-los-librare-los-redimire/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Éxodo · Sesión 2 (parte 2 de 5)
+- Serie: Orígenes · Éxodo · Sesión 2 (parte 2 de 5)
 - Anterior: https://daniellira.com/clases/exodo-dios-se-presenta-por-nombre/
 - Siguiente: https://daniellira.com/clases/exodo-el-sinai-una-boda-entre-dios-y-su-pueblo/
 
@@ -4164,10 +4164,10 @@ En la siguiente sesión veremos que todo lo que sucede en el Sinaí está constr
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Éxodo: Sesión 3 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Éxodo: Sesión 3 (clase grabada)
 - URL: https://daniellira.com/clases/exodo-el-sinai-una-boda-entre-dios-y-su-pueblo/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Éxodo · Sesión 3 (parte 3 de 5)
+- Serie: Orígenes · Éxodo · Sesión 3 (parte 3 de 5)
 - Anterior: https://daniellira.com/clases/exodo-los-sacare-los-librare-los-redimire/
 - Siguiente: https://daniellira.com/clases/exodo-un-santuario-para-habitar-entre-ellos/
 
@@ -4295,10 +4295,10 @@ En la siguiente sesión, Dios nos recordará la razón por la que creó todas la
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Éxodo: Sesión 4 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Éxodo: Sesión 4 (clase grabada)
 - URL: https://daniellira.com/clases/exodo-un-santuario-para-habitar-entre-ellos/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Éxodo · Sesión 4 (parte 4 de 5)
+- Serie: Orígenes · Éxodo · Sesión 4 (parte 4 de 5)
 - Anterior: https://daniellira.com/clases/exodo-el-sinai-una-boda-entre-dios-y-su-pueblo/
 - Siguiente: https://daniellira.com/clases/exodo-las-cuatro-copas-de-la-pascua/
 
@@ -4442,10 +4442,10 @@ Aquí sigue Levítico. Levítico inicia con una conjunción en hebreo, como cuan
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Éxodo: Las copas, sesión extra (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Éxodo: Las copas, sesión extra (clase grabada)
 - URL: https://daniellira.com/clases/exodo-las-cuatro-copas-de-la-pascua/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Éxodo · Sesión 5 (parte 5 de 5)
+- Serie: Orígenes · Éxodo · Sesión 5 (parte 5 de 5)
 - Anterior: https://daniellira.com/clases/exodo-un-santuario-para-habitar-entre-ellos/
 - Siguiente serie (Levítico): https://daniellira.com/clases/levitico-acercate-un-llamado-de-gracia/
 
@@ -4575,10 +4575,10 @@ Espero que hayas disfrutado esta última sesión, y que cada vez que tomes la Sa
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Levítico: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Levítico: Introducción y Sesión 1 (clase grabada)
 - URL: https://daniellira.com/clases/levitico-acercate-un-llamado-de-gracia/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 1 (parte 1 de 6)
+- Serie: Orígenes · Levítico · Sesión 1 (parte 1 de 6)
 - Serie anterior (Éxodo): https://daniellira.com/clases/exodo-las-cuatro-copas-de-la-pascua/
 - Siguiente: https://daniellira.com/clases/levitico-los-cinco-sacrificios/
 
@@ -4696,10 +4696,10 @@ La ley, Levítico, es el sacramento que identifica a Israel y lo separa. ¿Por q
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 2 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Levítico: Sesión 2 (clase grabada)
 - URL: https://daniellira.com/clases/levitico-los-cinco-sacrificios/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 2 (parte 2 de 6)
+- Serie: Orígenes · Levítico · Sesión 2 (parte 2 de 6)
 - Anterior: https://daniellira.com/clases/levitico-acercate-un-llamado-de-gracia/
 - Siguiente: https://daniellira.com/clases/levitico-los-sacerdotes-y-el-octavo-dia/
 
@@ -4823,10 +4823,10 @@ Pero sobre todo, se hacían a un solo Dios. No a ángeles, no a demonios: a un s
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 3 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Levítico: Sesión 3 (clase grabada)
 - URL: https://daniellira.com/clases/levitico-los-sacerdotes-y-el-octavo-dia/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 3 (parte 3 de 6)
+- Serie: Orígenes · Levítico · Sesión 3 (parte 3 de 6)
 - Anterior: https://daniellira.com/clases/levitico-los-cinco-sacrificios/
 - Siguiente: https://daniellira.com/clases/levitico-las-fiestas-de-primavera/
 
@@ -4938,10 +4938,10 @@ Hay una gracia hermosa en la ley. Podemos perdernos en los detalles, pero cuando
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 4 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Levítico: Sesión 4 (clase grabada)
 - URL: https://daniellira.com/clases/levitico-las-fiestas-de-primavera/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 4 (parte 4 de 6)
+- Serie: Orígenes · Levítico · Sesión 4 (parte 4 de 6)
 - Anterior: https://daniellira.com/clases/levitico-los-sacerdotes-y-el-octavo-dia/
 - Siguiente: https://daniellira.com/clases/levitico-las-fiestas-de-otono/
 
@@ -5061,10 +5061,10 @@ Y escatológicamente anuncia este día que eventualmente entenderemos, donde Dio
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 5 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Levítico: Sesión 5 (clase grabada)
 - URL: https://daniellira.com/clases/levitico-las-fiestas-de-otono/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 5 (parte 5 de 6)
+- Serie: Orígenes · Levítico · Sesión 5 (parte 5 de 6)
 - Anterior: https://daniellira.com/clases/levitico-las-fiestas-de-primavera/
 - Siguiente: https://daniellira.com/clases/levitico-todo-apunta-a-cristo/
 
@@ -5148,10 +5148,10 @@ En la siguiente sesión vamos a descubrir cómo todo esto, en conjunto, nos habl
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 6 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Levítico: Sesión 6 (clase grabada)
 - URL: https://daniellira.com/clases/levitico-todo-apunta-a-cristo/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 6 (parte 6 de 6)
+- Serie: Orígenes · Levítico · Sesión 6 (parte 6 de 6)
 - Anterior: https://daniellira.com/clases/levitico-las-fiestas-de-otono/
 - Siguiente serie (Números): https://daniellira.com/clases/numeros-el-libro-del-desierto/
 
@@ -5289,10 +5289,10 @@ Todo sobre Él en las Escrituras. El Hijo ya existía, y el Hijo se hizo carne, 
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Números: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Números: Introducción y Sesión 1 (clase grabada)
 - URL: https://daniellira.com/clases/numeros-el-libro-del-desierto/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Números · Sesión 1 (parte 1 de 8)
+- Serie: Orígenes · Números · Sesión 1 (parte 1 de 8)
 - Serie anterior (Levítico): https://daniellira.com/clases/levitico-todo-apunta-a-cristo/
 - Siguiente: https://daniellira.com/clases/numeros-el-campamento-en-forma-de-cruz/
 
@@ -5398,10 +5398,10 @@ Vemos cómo entonces estamos pasando de un pueblo desordenado a una nación orde
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Números: Sesión 2 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Números: Sesión 2 (clase grabada)
 - URL: https://daniellira.com/clases/numeros-el-campamento-en-forma-de-cruz/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Números · Sesión 2 (parte 2 de 8)
+- Serie: Orígenes · Números · Sesión 2 (parte 2 de 8)
 - Anterior: https://daniellira.com/clases/numeros-el-libro-del-desierto/
 - Siguiente: https://daniellira.com/clases/numeros-unidos-pero-diversos-en-funcion/
 
@@ -5485,10 +5485,10 @@ El pueblo se va a manchar. Eventualmente, en el libro de Números te vas a dar c
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Números: Sesión 3 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Números: Sesión 3 (clase grabada)
 - URL: https://daniellira.com/clases/numeros-unidos-pero-diversos-en-funcion/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Números · Sesión 3 (parte 3 de 8)
+- Serie: Orígenes · Números · Sesión 3 (parte 3 de 8)
 - Anterior: https://daniellira.com/clases/numeros-el-campamento-en-forma-de-cruz/
 - Siguiente: https://daniellira.com/clases/numeros-las-siete-lamparas/
 
@@ -5564,10 +5564,10 @@ De la misma manera que vimos en Éxodo, Moisés entraba al lugar secreto, al lug
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Números: Sesión 4 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Números: Sesión 4 (clase grabada)
 - URL: https://daniellira.com/clases/numeros-las-siete-lamparas/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Números · Sesión 4 (parte 4 de 8)
+- Serie: Orígenes · Números · Sesión 4 (parte 4 de 8)
 - Anterior: https://daniellira.com/clases/numeros-unidos-pero-diversos-en-funcion/
 - Siguiente: https://daniellira.com/clases/numeros-la-queja-y-los-dos-reportes/
 
@@ -5639,10 +5639,10 @@ Así concluye nuestra primera sección del libro de Números, que es el censo. A
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Números: Sesión 5 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Números: Sesión 5 (clase grabada)
 - URL: https://daniellira.com/clases/numeros-la-queja-y-los-dos-reportes/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Números · Sesión 5 (parte 5 de 8)
+- Serie: Orígenes · Números · Sesión 5 (parte 5 de 8)
 - Anterior: https://daniellira.com/clases/numeros-las-siete-lamparas/
 - Siguiente: https://daniellira.com/clases/numeros-de-core-a-la-serpiente-de-bronce/
 
@@ -5754,10 +5754,10 @@ En la siguiente sesión vamos a ver cómo este pecado se extiende. Cómo Moisés
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Números: Sesión 6 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Números: Sesión 6 (clase grabada)
 - URL: https://daniellira.com/clases/numeros-de-core-a-la-serpiente-de-bronce/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Números · Sesión 6 (parte 6 de 8)
+- Serie: Orígenes · Números · Sesión 6 (parte 6 de 8)
 - Anterior: https://daniellira.com/clases/numeros-la-queja-y-los-dos-reportes/
 - Siguiente: https://daniellira.com/clases/numeros-balaam-y-la-estrella-de-jacob/
 
@@ -5859,10 +5859,10 @@ Aunque el pecado abunde, aquel que mire la serpiente será sano. Aunque el pecad
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Números: Sesión 7 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Números: Sesión 7 (clase grabada)
 - URL: https://daniellira.com/clases/numeros-balaam-y-la-estrella-de-jacob/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Números · Sesión 7 (parte 7 de 8)
+- Serie: Orígenes · Números · Sesión 7 (parte 7 de 8)
 - Anterior: https://daniellira.com/clases/numeros-de-core-a-la-serpiente-de-bronce/
 - Siguiente: https://daniellira.com/clases/numeros-una-nueva-generacion-junto-al-jordan/
 
@@ -5988,10 +5988,10 @@ Pero todo aquel que, igual que Finees, ha demostrado un celo, un amor por regres
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Números: Sesión 8 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Números: Sesión 8 (clase grabada)
 - URL: https://daniellira.com/clases/numeros-una-nueva-generacion-junto-al-jordan/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Números · Sesión 8 (parte 8 de 8)
+- Serie: Orígenes · Números · Sesión 8 (parte 8 de 8)
 - Anterior: https://daniellira.com/clases/numeros-balaam-y-la-estrella-de-jacob/
 - Siguiente serie (Deuteronomio): https://daniellira.com/clases/deuteronomio-recuerda-para-que-no-vuelva-a-suceder/
 
@@ -6087,10 +6087,10 @@ Recuerda, hemos visto todo esto como si fuera una escalerita. Génesis estableci
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Deuteronomio: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Deuteronomio: Introducción y Sesión 1 (clase grabada)
 - URL: https://daniellira.com/clases/deuteronomio-recuerda-para-que-no-vuelva-a-suceder/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Deuteronomio · Sesión 1 (parte 1 de 5)
+- Serie: Orígenes · Deuteronomio · Sesión 1 (parte 1 de 5)
 - Serie anterior (Números): https://daniellira.com/clases/numeros-una-nueva-generacion-junto-al-jordan/
 - Siguiente: https://daniellira.com/clases/deuteronomio-cuida-tu-corazon-y-el-shema/
 
@@ -6204,10 +6204,10 @@ En la siguiente sesión vamos a hablar de que solo hay un Dios, y de la importan
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Deuteronomio: Sesión 2 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Deuteronomio: Sesión 2 (clase grabada)
 - URL: https://daniellira.com/clases/deuteronomio-cuida-tu-corazon-y-el-shema/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Deuteronomio · Sesión 2 (parte 2 de 5)
+- Serie: Orígenes · Deuteronomio · Sesión 2 (parte 2 de 5)
 - Anterior: https://daniellira.com/clases/deuteronomio-recuerda-para-que-no-vuelva-a-suceder/
 - Siguiente: https://daniellira.com/clases/deuteronomio-circuncida-tu-corazon/
 
@@ -6323,10 +6323,10 @@ Pero te creó para que pudieras disfrutarlo. De esto se trata Deuteronomio. De e
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Deuteronomio: Sesión 3 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Deuteronomio: Sesión 3 (clase grabada)
 - URL: https://daniellira.com/clases/deuteronomio-circuncida-tu-corazon/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Deuteronomio · Sesión 3 (parte 3 de 5)
+- Serie: Orígenes · Deuteronomio · Sesión 3 (parte 3 de 5)
 - Anterior: https://daniellira.com/clases/deuteronomio-cuida-tu-corazon-y-el-shema/
 - Siguiente: https://daniellira.com/clases/deuteronomio-un-rey-y-un-profeta-como-moises/
 
@@ -6442,10 +6442,10 @@ En la siguiente sesión vamos a saltarnos un poco de los siguientes capítulos p
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Deuteronomio: Sesión 4 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Deuteronomio: Sesión 4 (clase grabada)
 - URL: https://daniellira.com/clases/deuteronomio-un-rey-y-un-profeta-como-moises/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Deuteronomio · Sesión 4 (parte 4 de 5)
+- Serie: Orígenes · Deuteronomio · Sesión 4 (parte 4 de 5)
 - Anterior: https://daniellira.com/clases/deuteronomio-circuncida-tu-corazon/
 - Siguiente: https://daniellira.com/clases/deuteronomio-escoge-la-vida/
 
@@ -6529,10 +6529,10 @@ En la siguiente sesión vamos a terminar de ver el hilo profético de las bendic
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Deuteronomio: Sesión 5 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Deuteronomio: Sesión 5 (clase grabada)
 - URL: https://daniellira.com/clases/deuteronomio-escoge-la-vida/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Deuteronomio · Sesión 5 (parte 5 de 5)
+- Serie: Orígenes · Deuteronomio · Sesión 5 (parte 5 de 5)
 - Anterior: https://daniellira.com/clases/deuteronomio-un-rey-y-un-profeta-como-moises/
 
 ## Puntos clave
@@ -6654,11 +6654,11 @@ Espero que al tomar esta clase tengas el contexto suficiente para seguir leyendo
 
 # Efesios 1: adoptados, redimidos y sellados en Cristo
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
-- Fecha: febrero de 2026, Estudio 12:2
+- Fecha: febrero de 2026
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/efesios-1-adoptados-redimidos-y-sellados-en-cristo/
 - Idioma: es-MX
@@ -6748,11 +6748,11 @@ Así que ya conoces tú quién es Dios y qué es lo que ha hecho, pero sobre tod
 
 # Efesios 1: el plan de Dios, Cristo sobre todas las cosas
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
-- Fecha: febrero de 2026, Estudio 12:2
+- Fecha: febrero de 2026
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/efesios-1-el-plan-de-dios-cristo-sobre-todas-las-cosas/
 - Idioma: es-MX
@@ -6834,11 +6834,11 @@ Y en Cristo Jesús podemos deleitarnos del Padre, del Hijo y del Espíritu Santo
 
 # Efesios 2: «pero Dios», somos su obra maestra
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
-- Fecha: febrero de 2026, Estudio 12:2
+- Fecha: febrero de 2026
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/efesios-2-pero-dios-somos-su-obra-maestra/
 - Idioma: es-MX
@@ -6926,11 +6926,11 @@ Pero Dios, en su gracia y en su misericordia, proveyó a Cristo Jesús. Él mism
 
 # Efesios 3–4: el misterio revelado y la unidad del cuerpo
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
-- Fecha: febrero de 2026, Estudio 12:2
+- Fecha: febrero de 2026
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/efesios-3-4-el-misterio-revelado-y-la-unidad-del-cuerpo/
 - Idioma: es-MX
@@ -7020,11 +7020,11 @@ Necesitamos la multiforme expresión de la iglesia para poder conocer la multifo
 
 # Efesios 4–5: dones para edificar y vestirse del nuevo hombre
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
-- Fecha: febrero de 2026, Estudio 12:2
+- Fecha: febrero de 2026
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/efesios-4-5-dones-para-edificar-y-vestirse-del-nuevo-hombre/
 - Idioma: es-MX
@@ -7122,11 +7122,11 @@ Renueva tu mente, y entonces alumbra a Cristo, porque hay otros que duermen, hay
 
 # Efesios 5–6: sometidos unos a otros, en casa y en el trabajo
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
-- Fecha: febrero de 2026, Estudio 12:2
+- Fecha: febrero de 2026
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/efesios-5-6-sometidos-unos-a-otros-en-casa-y-en-el-trabajo/
 - Idioma: es-MX
@@ -7230,11 +7230,11 @@ Pero todos tenemos una diversidad de funciones o estratos sociales, a los cuales
 
 # Efesios 6: la armadura de Dios y las vestiduras del sacerdote
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
-- Fecha: febrero de 2026, Estudio 12:2
+- Fecha: febrero de 2026
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/efesios-6-la-armadura-de-dios-y-las-vestiduras-del-sacerdote/
 - Idioma: es-MX

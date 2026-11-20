@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Números: Sesión 2 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Números: Sesión 2 (clase grabada)
 - URL: https://daniellira.com/clases/numeros-el-campamento-en-forma-de-cruz/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Números · Sesión 2 (parte 2 de 8)
+- Serie: Orígenes · Números · Sesión 2 (parte 2 de 8)
 - Anterior: https://daniellira.com/clases/numeros-el-libro-del-desierto/
 - Siguiente: https://daniellira.com/clases/numeros-unidos-pero-diversos-en-funcion/
 

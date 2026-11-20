@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Deuteronomio: Sesión 2 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Deuteronomio: Sesión 2 (clase grabada)
 - URL: https://daniellira.com/clases/deuteronomio-cuida-tu-corazon-y-el-shema/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Deuteronomio · Sesión 2 (parte 2 de 5)
+- Serie: Orígenes · Deuteronomio · Sesión 2 (parte 2 de 5)
 - Anterior: https://daniellira.com/clases/deuteronomio-recuerda-para-que-no-vuelva-a-suceder/
 - Siguiente: https://daniellira.com/clases/deuteronomio-circuncida-tu-corazon/
 

@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Números: Sesión 7 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Números: Sesión 7 (clase grabada)
 - URL: https://daniellira.com/clases/numeros-balaam-y-la-estrella-de-jacob/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Números · Sesión 7 (parte 7 de 8)
+- Serie: Orígenes · Números · Sesión 7 (parte 7 de 8)
 - Anterior: https://daniellira.com/clases/numeros-de-core-a-la-serpiente-de-bronce/
 - Siguiente: https://daniellira.com/clases/numeros-una-nueva-generacion-junto-al-jordan/
 

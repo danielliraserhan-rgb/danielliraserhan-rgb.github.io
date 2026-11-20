@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Deuteronomio: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Deuteronomio: Introducción y Sesión 1 (clase grabada)
 - URL: https://daniellira.com/clases/deuteronomio-recuerda-para-que-no-vuelva-a-suceder/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Deuteronomio · Sesión 1 (parte 1 de 5)
+- Serie: Orígenes · Deuteronomio · Sesión 1 (parte 1 de 5)
 - Serie anterior (Números): https://daniellira.com/clases/numeros-una-nueva-generacion-junto-al-jordan/
 - Siguiente: https://daniellira.com/clases/deuteronomio-cuida-tu-corazon-y-el-shema/
 

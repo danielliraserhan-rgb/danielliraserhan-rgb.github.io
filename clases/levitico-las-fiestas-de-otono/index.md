@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Levítico: Sesión 5 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Levítico: Sesión 5 (clase grabada)
 - URL: https://daniellira.com/clases/levitico-las-fiestas-de-otono/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 5 (parte 5 de 6)
+- Serie: Orígenes · Levítico · Sesión 5 (parte 5 de 6)
 - Anterior: https://daniellira.com/clases/levitico-las-fiestas-de-primavera/
 - Siguiente: https://daniellira.com/clases/levitico-todo-apunta-a-cristo/
 

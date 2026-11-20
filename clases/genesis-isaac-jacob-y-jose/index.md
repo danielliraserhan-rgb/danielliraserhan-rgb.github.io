@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Génesis: Sesión 5 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Génesis: Sesión 5 (clase grabada)
 - URL: https://daniellira.com/clases/genesis-isaac-jacob-y-jose/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Génesis · Sesión 5 (parte 5 de 6)
+- Serie: Orígenes · Génesis · Sesión 5 (parte 5 de 6)
 - Anterior: https://daniellira.com/clases/genesis-el-pacto-con-abraham/
 - Siguiente: https://daniellira.com/clases/genesis-siloh-el-rey-que-vendra/
 

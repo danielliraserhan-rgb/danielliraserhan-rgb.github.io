@@ -1,10 +1,10 @@
 # Efesios 4–5: dones para edificar y vestirse del nuevo hombre
 
-*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026 en Estudio 12:2.*
+*Transcripción completa de una clase, con las palabras de Daniel Lira; solo se añadieron subtítulos, párrafos y puntuación, y se limpiaron muletillas, repeticiones y errores de transcripción. Publicada en febrero de 2026.*
 
 - Autor: Daniel Lira
 - Tipo: Clase
-- Fecha: febrero de 2026, Estudio 12:2
+- Fecha: febrero de 2026
 - Video: sin video publicado
 - URL: https://daniellira.com/predicaciones/efesios-4-5-dones-para-edificar-y-vestirse-del-nuevo-hombre/
 - Idioma: es-MX

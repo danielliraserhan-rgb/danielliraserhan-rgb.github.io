@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Levítico: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Levítico: Introducción y Sesión 1 (clase grabada)
 - URL: https://daniellira.com/clases/levitico-acercate-un-llamado-de-gracia/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Levítico · Sesión 1 (parte 1 de 6)
+- Serie: Orígenes · Levítico · Sesión 1 (parte 1 de 6)
 - Serie anterior (Éxodo): https://daniellira.com/clases/exodo-las-cuatro-copas-de-la-pascua/
 - Siguiente: https://daniellira.com/clases/levitico-los-cinco-sacrificios/
 

@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Deuteronomio: Sesión 3 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Deuteronomio: Sesión 3 (clase grabada)
 - URL: https://daniellira.com/clases/deuteronomio-circuncida-tu-corazon/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Deuteronomio · Sesión 3 (parte 3 de 5)
+- Serie: Orígenes · Deuteronomio · Sesión 3 (parte 3 de 5)
 - Anterior: https://daniellira.com/clases/deuteronomio-cuida-tu-corazon-y-el-shema/
 - Siguiente: https://daniellira.com/clases/deuteronomio-un-rey-y-un-profeta-como-moises/
 

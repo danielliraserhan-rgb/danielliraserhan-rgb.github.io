@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Éxodo: Introducción y Sesión 1 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Éxodo: Introducción y Sesión 1 (clase grabada)
 - URL: https://daniellira.com/clases/exodo-dios-se-presenta-por-nombre/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Éxodo · Sesión 1 (parte 1 de 5)
+- Serie: Orígenes · Éxodo · Sesión 1 (parte 1 de 5)
 - Serie anterior (Génesis): https://daniellira.com/clases/genesis-siloh-el-rey-que-vendra/
 - Siguiente: https://daniellira.com/clases/exodo-los-sacare-los-librare-los-redimire/
 

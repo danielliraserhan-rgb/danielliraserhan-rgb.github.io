@@ -5,10 +5,10 @@
 *Adaptado con ayuda de IA a partir de una clase en vivo.*
 
 - Autor: Daniel Lira Serhan (https://daniellira.com/)
-- Fuente: Orígenes (Estudio 12:2) · Éxodo: Sesión 4 (clase grabada, Estudio 12:2)
+- Fuente: Orígenes · Éxodo: Sesión 4 (clase grabada)
 - URL: https://daniellira.com/clases/exodo-un-santuario-para-habitar-entre-ellos/
 - Idioma: es-MX
-- Serie: Orígenes (Estudio 12:2) · Éxodo · Sesión 4 (parte 4 de 5)
+- Serie: Orígenes · Éxodo · Sesión 4 (parte 4 de 5)
 - Anterior: https://daniellira.com/clases/exodo-el-sinai-una-boda-entre-dios-y-su-pueblo/
 - Siguiente: https://daniellira.com/clases/exodo-las-cuatro-copas-de-la-pascua/
 
