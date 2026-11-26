@@ -334,3 +334,14 @@ footer .legal .wrap{display:block;padding-top:16px;padding-bottom:18px;color:#9c
 .intensivo-cta{border-top:2px solid var(--acento);background:var(--pergamino);padding:18px 22px;margin:40px 0 0}
 .intensivo-cta .box-h{color:var(--acento);margin:0 0 6px;font-size:12px}
 .intensivo-cta p{margin:0;font-size:16.5px}
+/* Portada corta: «Dónde enseño» (nov 2026) */
+.lugares{display:grid;grid-template-columns:repeat(3,minmax(0,1fr));gap:var(--gap,24px);margin:22px 0 56px}
+.lugar{display:flex;flex-direction:column;gap:10px;padding:28px 26px 26px;border:1px solid var(--tinta);background:var(--pergamino);color:var(--tinta);text-decoration:none;min-height:230px;transition:transform .15s ease,box-shadow .15s ease}
+.lugar:hover,.lugar:focus-visible{transform:translateY(-2px);box-shadow:6px 6px 0 0 var(--filete)}
+.lugar-meta{font-size:11.5px;color:var(--piedra)}
+.lugar-t{font-family:var(--serif);font-size:clamp(1.7rem,2.6vw,2.2rem);line-height:1.1}
+.lugar-d{font-size:17px;line-height:1.5;color:#3a332d;flex:1}
+.lugar-ir{font-family:var(--mono);font-size:12.5px;letter-spacing:.08em;text-transform:uppercase;text-decoration:underline;text-decoration-color:var(--acento)}
+#origenes .lead,#contacto .lead{margin:0 0 10px}
+#origenes .btns,#contacto .lead:last-child{margin-bottom:56px}
+@media (max-width:860px){.lugares{grid-template-columns:1fr}.lugar{min-height:0}}
